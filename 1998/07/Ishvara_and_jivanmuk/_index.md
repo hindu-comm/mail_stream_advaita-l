@@ -1,0 +1,4 @@
++++
+title = "Ishvara and jivanmukta"
+
++++

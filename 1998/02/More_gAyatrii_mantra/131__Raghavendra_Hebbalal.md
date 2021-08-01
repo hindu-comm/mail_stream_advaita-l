@@ -1,0 +1,15 @@
++++
+title = "131 Raghavendra Hebbalalu"
+date = "1998-02-20"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/1998-February/008089.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/1998-February/008089.html)
+
+Very beautiful ! I was wondering if the words used to signify the deities in
+the gAyatrii s
+had special significance. e.g in Rudra/Shiva gAyatrii: tanno rudrah
+prachodayaat.h is used and not tannah shivah prachodyaat.h.
+Like in nAraayaNa gAyatri the words nArAyaNa, vAsudEva and vishnu are used.
+-Raghavendra.
+

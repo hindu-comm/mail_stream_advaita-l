@@ -1,0 +1,4 @@
++++
+title = "ardhanArIshvara (ambaa-l)"
+
++++

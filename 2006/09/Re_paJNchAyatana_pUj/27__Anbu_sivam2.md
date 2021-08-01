@@ -1,0 +1,267 @@
++++
+title = "27 Anbu sivam2"
+date = "2006-09-09"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2006-September/017427.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2006-September/017427.html)
+
+Dear Sri Viswanathji,
+
+Your original topic was in the domain of the prakrthi and I answered in the
+same domain.  You are now talking beyond prakrthi.  There is nothing but
+Brahman there and words cannot reach there.
+
+Pranaams,
+Anbu
+
+On 9/9/06, Viswanathan N <vishy1962 at yahoo.com> wrote:
+>
+> Dear Thiru Anbuji  Vanakkam
+>
+>   If you go deeper in the Advaitha, how can one perceive Eswara sitting
+> seperately somewhere and decending down whenever necessary?
+>   Than whats the meaning of all mahavakyas?
+>   I infer the verse you have quoated as "  I am every where, all pervading
+> and manifest in a particular form and place  to restore the balance whenever
+> necessary" . Just balance, not even as good over bad / punya over papa/
+> devas over asuras/   beyond a level .Brahman is attributeless, isnt it!
+>   I think our inferences are to mainatain an orderliness in the society at
+> large, just to create carrot& stcik approch for mainatining morality.
+> Ofcourse these too are genune in their ownway to maintain the fabric of the
+> society.But for one whose goal is to realise the 'Brahman' itsef, I think
+> , one should cross over all these dualities.Thats what I see as core of
+> Advaitha.
+>
+> Pranams
+>   Vishwanathan
+> Anbu sivam2 <anbesivam2 at gmail.com> wrote:
+>   Dear Sri Viswanathji,
+>
+> The purpose of the Avatars has been clearly stated by Sri Krishna as
+> "ParithrAnAya SadhunAm VinAsAyacha DhushkrithAm, Dharma SamsthAbhanArthAya
+> SambhavAmi YugE YugE". Therefore your fancying " I would rather prefer to
+> see even Krishna as any normal human, but who had attained that Godliness
+> "
+> Aham Brhamasmi". ?" is not correct. Easwara is playing his role in all his
+> three aspects of Srishti, Sthithi and Pralayam.
+>
+> Regards,
+> Anbu
+>
+> On 9/9/06, Viswanathan N wrote:
+> >
+> > Shri Siddarthaji....Namaskaram
+> >
+> > The question, views and counterviews on ithihasas and puranas are really
+> > interesting and debatable. I would still say most of the puranas are
+> just
+> > stories to drive some point . But as far as ithihasas are concerned they
+> > could be real life incidents, bit blown out of proportion, by the
+> > hitorians to glorify the charecters.
+> > I would rather prefer to see even Krishna as any normal human, but who
+> > had attained that Godliness " Aham Brhamasmi". Perhaps the realisation
+> might
+> > have happened to him in very early stage or even might have born as
+> realised
+> > due to his earlier karmas. At times I even think, going by dasavathara
+> story
+> > line, he elvated himself from lowest form to that of " Purushotama" in
+> > Ramavatar and attained that Advaithic completeness in Krishnavatar.
+> Than,
+> > whatever, he preached to arjuna from the state of realized person
+> couldnt be
+> > lesser than that of Baghavad Geetha.
+> >
+> > I would say the conciousness at that level is what is refered as krishna
+> > conciousness and every one should try to attain by culmination of Jnana/
+> > karama/bhakthi/raja yogas.
+> >
+> > These are purely my inferences and all in the list pardon, if I have
+> > errored, and correct me.
+> >
+> > Pranams
+> > Vishwanath
+> > Annapureddy Siddhartha Reddy wrote:
+> > praNAm.h Vishwanathanji, Bhaskarji, Ramaji, Shiva Senani gAru,
+> > Thanks for responding with your views. I am responding to all of your
+> > points in this mail. Please see my comments below:
+> >
+> >
+> > > So, would I be right in saying that advaita vEdAnta as a tradition
+> does
+> > > not
+> > > uphold one view over the other; that all of these views are fine in as
+> > far
+> > > as they make the sAdhaka realize the nirguNa nature of brahma?
+> >
+> >
+> > Could you tell me if the above approach is sanctioned by the tradition
+> of
+> > advaita vEdAnta?
+> >
+> >
+> > > I felt that these puranas are told to just to drive / uphold some
+> moral
+> > > values and nothng more. The story tellers were different and were just
+> > using
+> > > the same names/ charecters in thier stories without botheirng much
+> about
+> > > their role in earlier stories. So we need to see the final moral of
+> the
+> > > story rather than the charecters.
+> >
+> >
+> > Viswanathanji, while the above is a position that could be taken, I am
+> not
+> > sure if the tradition holds the same view about the itihAsas (if not the
+> > purANas). Given the importance of the rAmAyaNa and the mahAbhArata, it
+> is
+> > not easy to dismiss them. Though these itihAsas have been tampered with,
+> > the
+> > basic stories seem to be accepted by all vEdAntic traditions.
+> >
+> > Also, it raises questions about the bhagavad.h gIta. How could you
+> accept
+> > the bhagavad.h gIta as a pramANa without treating the mahAbhArata in
+> which
+> > it occurs to be so (at least in as far as the mahAbhArata does not go
+> > against the vEdas)?
+> >
+> > and in shruti itself there is a mention that Indra,
+> > > agni, varuNa & vAyu suffered defeat in the hands of *yaksha rUpi
+> > > Ishwara*....Here it is evident that Indra, varuNa, agni etc. are all
+> > > *ahimAni dEvata-s* & they have some super natural powers when compared
+> > to
+> >
+> >
+> > Bhaskarji, while that statement could be so interpreted literally, it
+> > could
+> > also have been metaphorical. This concept of abhimAni dEvatas, is it
+> > acceptable to advaita vEdAnta? And if the indra, varuNa referred to here
+> > are
+> > subordinate to Ishvara, is the "ekaM sat.h" verse talking about the
+> unity
+> > of
+> > subordinate dEvatas?
+> >
+> >
+> > > Re: Venkateshvara. Is he anything other than nArAyaNa himself? What is
+> > > the need for a separate pramANa?
+> >
+> >
+> > Ramaji, how do we know vEnkatEshvara svAmi is nArAyaNa Himself? It must
+> > have
+> > been mentioned in some purANa. By the same yardstick, even the budhda is
+> > treated as an incarnation of viShNu. But in the refutation of Buddhism
+> in
+> > the shArIraka bhAShya, shaN^kara criticizes the budhda in strong words
+> > (accusing him either of being incoherent or down-right malevolent,
+> modulo
+> > translation artefacts by svAmi gambhIrAnandaji). Given this context, how
+> > could we accept the purANa references to vEnkatEshvara svAmi? (Note that
+> > there are references to shrI rAma and shrI kR^iShNa even in the vEda, so
+> > this issue does not seem to be a problem in their case).
+> >
+> > Re: indra. Who said he is lower than shiva or vishhNu? The yoga
+> > > vasshiShTha clearly says that episodes involving brahma, etc are not
+> > > to be interpreted as meaning that they are ignorant. Sankaraananda, a
+> > > very early writer, says that Ishvara can be worshiped in any form
+> > > "sivam vaa viShNum vaa api indram anyam vaa". That should be quite
+> > > clear. Don't buy into amar chitra katha comic versions of indra,
+> > > vaayu, etc., and think that they are just a bunch of ignorant jokers.
+> >
+> >
+> > Ramaji, leave aside the Amar Chitra Katha stories, even in the rAmAyaNa,
+> > there is this story of how shiva lost to viShNu when the dEvatas wanted
+> to
+> > test their strength, and in anger threw down his bow, which then came
+> > under
+> > the charge of the janakas (as recounted by paraShurAma before
+> challenging
+> > shrI rAma). Or consider the episode of ahalya and indra.
+> >
+> > Now there are a couple of positions one could take on this (amongst many
+> > other pUrvapakShas, I guess):
+> > -- Treat stories like ahalya's in the rAmAyaNa as mere arthavAda, only
+> > taking the moral from the story and not treating it as a fact sanctioned
+> > by
+> > the vEdas. Then, we could again treat indra as being without any sins.
+> >
+> > -- Accept the story in the rAmAyaNa but treat indra(ship) as a position
+> > which can be attained by a hundred ashvamEdha sacrifices (or some such
+> > achievement begotten by karma). Then, we can blame that particular jIva
+> > who
+> > happened to be in the position of indra for the wrongdoing. This raises
+> > the
+> > question of who the indra was who was praised so effusively in the
+> R^ik.h
+> > vEda etc. We could say that Ishvara Himself took the position of indra
+> in
+> > some bygone kalpas (just like He took form as a man like shrI rAma etc.)
+> > Now, this makes it seem that brahma, viShNu and shiva with their
+> > respective
+> > functions are themselves positions that could be attained by jIvas.
+> > This could also explain why shiva lost to viShNu in the episode in
+> > rAmAyaNa.
+> >
+> >
+> > -- If the above positions are unacceptable (for whatever reasons),
+> please
+> > let me know a consistent position on the itihAsas from an advaita
+> vEdAntic
+> > perspective.
+> >
+> > Thanks.
+> >
+> > A.Siddhartha.
+> > _______________________________________________
+> > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> >
+> > To unsubscribe or change your options:
+> > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> >
+> >
+> >
+> > ---------------------------------
+> > Find out what India is talking about on - Yahoo! Answers India
+> > Send FREE SMS to your friend's mobile from Yahoo! Messenger Version 8.
+> Get
+> > it NOW
+> > _______________________________________________
+> > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> >
+> > To unsubscribe or change your options:
+> > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> >
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
+>
+>
+> ---------------------------------
+> Find out what India is talking about on  - Yahoo! Answers India
+> Send FREE SMS to your friend's mobile from Yahoo! Messenger Version 8. Get
+> it NOW
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
+

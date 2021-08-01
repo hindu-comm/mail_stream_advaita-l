@@ -1,0 +1,4 @@
++++
+title = "adhyAsa and mind"
+
++++

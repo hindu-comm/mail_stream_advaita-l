@@ -1,0 +1,4 @@
++++
+title = "Learning Vedanta formally"
+
++++

@@ -1,0 +1,4 @@
++++
+title = "logic and shastra"
+
++++

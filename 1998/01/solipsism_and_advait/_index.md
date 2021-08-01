@@ -1,0 +1,4 @@
++++
+title = "solipsism and advaita"
+
++++

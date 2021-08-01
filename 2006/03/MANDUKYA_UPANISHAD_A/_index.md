@@ -1,0 +1,4 @@
++++
+title = "MANDUKYA UPANISHAD AND KARIKA:"
+
++++

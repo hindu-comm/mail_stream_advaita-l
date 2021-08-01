@@ -1,0 +1,4 @@
++++
+title = "mandukya rahasya vritti"
+
++++

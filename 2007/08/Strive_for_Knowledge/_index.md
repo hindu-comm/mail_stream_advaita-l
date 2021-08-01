@@ -1,0 +1,4 @@
++++
+title = "Strive for Knowledge."
+
++++

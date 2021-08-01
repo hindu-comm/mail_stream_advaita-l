@@ -1,0 +1,4 @@
++++
+title = "knowledge and wisdom"
+
++++

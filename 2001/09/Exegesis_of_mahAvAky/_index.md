@@ -1,0 +1,4 @@
++++
+title = "Exegesis of mahAvAkyas"
+
++++

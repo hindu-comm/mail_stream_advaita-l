@@ -1,0 +1,4 @@
++++
+title = "Quotations by Shankara"
+
++++

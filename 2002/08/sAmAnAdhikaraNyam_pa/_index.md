@@ -1,0 +1,4 @@
++++
+title = "sAmAnAdhikaraNyam/part1"
+
++++

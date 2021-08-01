@@ -1,0 +1,4 @@
++++
+title = "The \"Royal Way\""
+
++++

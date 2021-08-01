@@ -1,0 +1,4 @@
++++
+title = "Lakshmi-Nrsimha-Pancharatnam -"
+
++++

@@ -1,0 +1,4 @@
++++
+title = "Badari Jyotirmatha History"
+
++++

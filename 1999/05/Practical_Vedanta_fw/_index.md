@@ -1,0 +1,4 @@
++++
+title = "Practical Vedanta (fwd)"
+
++++

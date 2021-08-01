@@ -1,0 +1,4 @@
++++
+title = "philosophical musing"
+
++++

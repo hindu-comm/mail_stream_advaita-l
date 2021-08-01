@@ -1,0 +1,4 @@
++++
+title = "Gayatri Shankara Bhashya"
+
++++

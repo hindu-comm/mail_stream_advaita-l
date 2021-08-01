@@ -1,0 +1,4 @@
++++
+title = "Advaitic quotes"
+
++++

@@ -1,0 +1,57 @@
++++
+title = "227 Viswanathan N"
+date = "2006-05-18"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2006-May/016668.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2006-May/016668.html)
+
+Dear Krunalji
+
+  That thinking is still on using same metaphor....
+  now if take your manas as the empty film on which all samskaras get recorded....how to put a stop for such recirdings...
+  first after recording  to make it permenenat imprint we develop in the same dark room (the dark room..the world and aritificla darkness of our own creation)...but if you just ome out to the bright light (I am sure you know what I mean) and expose than all the recordings are just washed off even before they develop as permenant imprints.....so if you keep doing this no further recordings on the film and as soon as the past projections are over the entire thing wud come to an end with the age of projector itself and no need for looking for new projector......
+  I call this act of  exposing the film to bright light as " Mediatation"
+  Hope you can relate this to manas, samskaras, punarjanma.....
+
+  Thanks a lot for igniting the thinking process
+
+  Vish
+
+Krunal Makwana <krunalmakwana at hotmail.com> wrote:
+  namo nArAyana
+
+Dear Vishwanathji,
+
+Thank you so much, the e-mail clarified so much, i think we were singing from the same hymn sheet but in two different rAgas, and i think the 'projector' metaphor can be used in many different ways to understand the same point of view in different ways.
+
+After contemplating on the e-mail that you had written, i think we both had used the same metaphor to convey the same meaning in two different ways. Vishwanathiji thank you, as i had never thought of using your view before, and the metaphor can make much more sense if 'more' deep thought is given
+
+Once again thank you
+Kind regards,Krunal
+
+
+
+> Date: Wed, 17 May 2006 13:35:35 +0100> From: vishy1962 at yahoo.com> Subject: RE: Re: [Advaita-l] Real vs Unreal> To: advaita-l at lists.advaita-vedanta.org> > Krunalji> > Thanks a lot...Again just on the same anology, more I think more clarity I get....> thanks for giving this oppurtunity...let me elobarte bit more if you dont mind..> > I equated the projector to this body and smaskaras to the film, or rather manas to be the empty film and smaskaras to be impressions made o the film . the film could be horror film, a comedy, even ramayan/mahabharath like..its just impressions on the film without real existance....just think bit more deeply> > projector is needed as long as you have films...If projector gets damaged before film is fully over, still the projection continues with another projector...before you finish the present film> as long as the film roll is there more and more getting recorded on it and so the projector and projection continues....and as long you keep the
+ environ dark to keep the projection on and on> > so if you destroy the film itself.....than no recordings to project..hence no need for projector...so no artificial /selfmade darkning is needed. than u r in bright light always ..where are you? no where...in otherwords excpet that light nothing exisits....the show is over > > hope you have understood what I am trying to arrive at???> > regards> Viswanath> Viswanathan N wrote:> Krunalji> > > I was assuming this body to be the projector and the electricity which runs the projector as Brahman.becaz the porj is there was for a specif purpose, has a beginning nd certainly an end....so cant be Brahman.(you also agree Brhaman is ' aakartha, without beginning/end)..> > When I say eletricity/ light , I meant the power at large, it doesnt mean just the> power supplied thru cables by electricity boards. Like wise the light is everywhere only when it is focused at a place (with concenration) it statrts projecting whats is there in the
+ film role called mind. > > when the film is over you see the focused lght that is one view of Brahmna.> Also take this way, when film show is running, athough the light is everwhere you purposefully, on your own, make the room (take this prjection room as this world/ the environment )you live darker so that you see the film and not the light> If you remain in that hall you see the light after film is completely over, but for the learned, he always see the light as he knows whats insdie and never enters> that room itself.> > I tried my best to infuse some light......over to you again> > > regards> > Viswanath> > Krunal Makwana wrote:> namo nArAyana> > Dear Vishwanathaji,> > > In this analogy equating the light/electricity behind the light as Maya is not appropriate, I feel. > I used to say thats the 'self' within. but the thoughts in the mind is the film role inside the the projector thats being projected as external world. The movement you cleanup your mind and make it
+ thought less is there wud be no projection and you see the orginal self alone on the screen.Thank you for your contribution, I was personally pondering as well if i should name electricity mAyA but i feel the statement is justified. Here are some of my reasons why. > > 1. As electricity is not an inherent element of the projector, ajnAna is not inherent in brahman but a superimposition.> 2. Brahman (projector) will always remain constant and 'akartA', there is no 'real' modification to Brahman. And the modification that does take place is only during projection.> 3. The projection is the samskAras (subtle imprints) that are projected.> 4. The 'more' you clean up your mind, the more you'll understand that the projection is only impressions of past actions, and the electricity (mAyA) tries to deny the soul the existence of the projector but makes the jiva believe the projection is real. > 5. If electricity was the light of the self then the power would be inherent within the
+ projector (brahman) but that is not the case.> 6. The electricity cannot be the 'self' as when the projection is over, no light remains, only the projector (brahman), so if brahman was the light, that would then lead to brahman also being subject to creation and dissolution.> 7. The original self cannot also be projected on screen as this also is dependent on electricity (mAyA).> > Vishwanathaji please correct me if i am wrong in my views, advaita is a ever learning process :)> Kind regards,Krunal> _________________________________________________________________> Express yourself instantly with MSN Messenger! Download today it's FREE!> http://messenger.msn.click-url.com/go/onm00200471ave/direct/01/_______________________________________________> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/> > To unsubscribe or change your options:> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l> > For assistance, contact:> listmaster at advaita-vedanta.org> > >
+ > ---------------------------------> Why was V. Sehwag warned by the BCCI? Share your knowledge on Yahoo! Answers India> Send instant messages to your online friends - NOW> _______________________________________________> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/> > To unsubscribe or change your options:> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l> > For assistance, contact:> listmaster at advaita-vedanta.org> > > > ---------------------------------> Why was V. Sehwag warned by the BCCI? Share your knowledge on Yahoo! Answers India> Send instant messages to your online friends - NOW> _______________________________________________> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/> > To unsubscribe or change your options:> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l> > For assistance, contact:> listmaster at advaita-vedanta.org
+_________________________________________________________________
+Express yourself instantly with MSN Messenger! Download today it's FREE!
+http://messenger.msn.click-url.com/go/onm00200471ave/direct/01/_______________________________________________
+Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+
+To unsubscribe or change your options:
+http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+
+For assistance, contact:
+listmaster at advaita-vedanta.org
+
+
+
+---------------------------------
+ Why was V. Sehwag warned by the BCCI? Share your knowledge on Yahoo! Answers India
+ Send instant messages to your online friends - NOW
+

@@ -1,0 +1,4 @@
++++
+title = "thought and Jnana"
+
++++

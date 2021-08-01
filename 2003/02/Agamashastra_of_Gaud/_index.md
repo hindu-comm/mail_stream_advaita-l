@@ -1,0 +1,4 @@
++++
+title = "Agamashastra of Gaudapada"
+
++++

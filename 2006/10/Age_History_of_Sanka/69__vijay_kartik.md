@@ -1,0 +1,214 @@
++++
+title = "69 vijay kartik"
+date = "2006-10-08"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2006-October/017608.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2006-October/017608.html)
+
+
+  It is indeed strange that you are not aware of this 5 Sankaras theory which is propounded by none other than the Kanchi Mutt itself.
+
+  One reference is in our own List archives. please refer:
+
+  http://advaita-vedanta.org/archives/advaita-l/2003-August/012821.html
+
+  As I had mentioned earlier, many such queer theories were formulated each one to validate or defend an earlier queer theory.
+
+  Since each theory conflicted with accepted history and tradition fresh theories were necessary.
+
+  For eg, if Sankara is claimed to have lived 2500 years ago, did he live before Buddha and therefore did not deserve the epithet ' Bouddha matha kandana"
+
+  Ok, propose another theory that Sankara never had anything to do with conquering Buddhistic influence
+
+  Again, some of the books the Kanchi Mutt rely on refer to Sankara having been born in Chidambaram!  How to defend this?
+
+  Ok propound a new theory that actually the one born in Chidambaram was Abhinava Sankara who alone lived in 8th century and who was confused with the real Sankara.
+
+  Again Kanchi Mutt says Samkara ascended Sarvagna Peetha in Kanchi and not at Kashmir as tradition used to say.
+
+  Ok say again that it was Abhinava Sankara who actually went to Kashmir.
+
+  Again if Sankara is back dated to 2500 years, how to counter the claim that then some of the slokas and works do not appear that old?
+
+  Again come out with a claim that some of the works written by later Sankara like Krpa Sankara and Abhinava seem to be confused with Adi Sankara's works.
+
+  Most of the above are still found even in the Kanchi mutt website.
+
+  These are only examples of how there has been lot of sustained efforts to recreate a totally new version of Sankara's life that directly conflicted with accepted tradition till 100 years ago.
+
+  I read Muka Panchashati as part of my Sanskrit literature class and also History of Sanskrit literature syllabus. I can still try to get reference of these text books .
+
+  What about the Kanchi Mutt version about Vidya Theertha and Vedanta Desika?
+  VIdyaSankara was a well-known guru of the Sringeri Parampara and his temple in Sringeri is well-known.
+
+  How is it that he is being claimed as belonging to the Kanchi Mutt?
+
+  Again what about the point about Vedanta Desika being a student of the Kanchi Mutt? Ludicrous- one should say.
+
+  Please note that continued efforts at spreading untruths are more likely to hurt Hinduism and Sanatana Dharma principles than any external influence.
+
+  You should be aware that even in the recent years books elaborating on some of the above " theories" are being published by the Kanchi Mutt.
+
+  So tempering and concern about threat to Hinduism should start with everyone.
+
+  We are after all a forum with a few hundred truth-seekers.
+
+
+
+  It will be clear from the above that certainly I am not the one with admirable fantasizing skills.
+
+
+
+
+B Shridhar <kameshwarii at gmail.com> wrote:
+  Where is this theory of 5 sankaras that you mention? is this theory yours?
+I fear that the person who must have taught you about panchadasi must have
+forgot to tell you about Muka kavi belonging to the kanchi parampara. Your
+insufficient knowledge cannot be a basis of incorrect history.
+There has been never a doubt about Bhagavan Bhodendra not to belong to the
+Kanchi parampara even in Govindapuram. Which book before 50 years are you
+talking about not mentioning the same.
+Further do you think that the Kudali mutt has just appeared now?
+Your words are just hearsay and just have no basis even for an argument.
+Please kindly give sufficient references before you make statements
+
+B. Shridhar
+
+
+On 10/7/06, vijay kartik wrote:
+>
+> There is this famous theory which says that there were at least 5 Sankaras
+> whom people confuse with the original Sankara.
+>
+> This includes Muka Sankara who wrote Muka Panchasati
+> and Abhinava Sankara who is said to haved lived between 788 AD and 820
+> AD and who is claimed to be the reason for confusion with Adi Sankara who
+> actually lived 2500 years back etc......
+>
+> The strange thing is all the 5 Sankaras only lived in Kanchi and nowhere
+> else.
+>
+> I have always learnt in my younger days that Mukapanchasati was written
+> by Muka Kavi and no reference to Kanchi parampara. But nowadays it is
+> different. Same is the case with Bhagavannama Bodhendra. Books before 50
+> years or so did not mention any Kanchi mutt affiliation to Bodhendra but
+> nowadays it is different.
+>
+> Then there is suddenly "research " about how Sankara established a mutt
+> not at Sringeri but only at Kudali and how Kanchi Mutt strongly patronised
+> the Swamijis of the Kudali Mutt and spread messages in Chennai even in
+> 1960's that Kudali alone is the true mutt and not Sringeri ....
+>
+> A select group of"reputed scholars" have been propagating new versions
+> such as above since the 1950's and it is no secret who used to patronise
+> these "scholars".
+>
+> On a slightly different note, how many of us know that Vedanata Desika
+> was trained by a guru of the Kanchi Mutt- this is what the Kanchi mutt
+> website says. Not just that- the Guru who taught him was Vidya Sankara who
+> actually was a Guru of the Sringeri Mutt and in whose memory the famous
+> Vidya Sankara temple stands.
+>
+> Do the Vaishnavas agree to this part about Desika? I am quite curious.
+>
+> You keep saying the same thing over and over and you say it through
+> people who carry credibility-- everything becomes history and truth.
+>
+>
+> Vijay Kartik
+>
+>
+>
+>
+> Shyam Subramanian wrote:
+> vijay kartik wrote:
+> > One hates to say this, but certainly a lot of "sponsored research" was
+> conducted and published in the last century on some of these topics relating
+> to Sankara's life.
+> >
+> > Lots of new theories and evidence was brought out suddenly in the last
+> century ,each one of these reports reinforcing what another research report
+> said. The irony is, a lot of these reports sought to bring versions of
+> Sankara's life almost unknown till that time.
+> >
+> > The added irony is that, anyone who tries to highlight the conflicts of
+> these reports with accepted traditions/ known history is branded as negative
+> and narrow-minded.
+> >
+> Don't you think it is necessary to give some references when you make
+> such claims, especially for the benefit of the kanchi matha supporters
+> (who obviously have no reason to believe or reject it otherwise). FYI, I
+> am a devotee of the sringeri matha. (and yes, you are not explicitly
+> mentioning kanchi here but your first line and previous mails do
+> indicate so).
+>
+> Regarding W.R.Antarkar, some of Antarkar's papers, especially the ones
+> relating to the sankara vijayams are at http://www.easterntradition.org
+> , (a website hosted by people who believe in the 5BCE date for adi
+> sankara but who simultaneously reject his writing of the bhashyas!).
+> This website also has Narayana Sastri's "The Age of Sankara" which (in
+> my opinion strictly) is so full of bias in its criticism of the
+> madhaviyam and the sringeri matha that even Antarkar rejects Sastri's
+> claims about the madhaviyam (though he does consider it again at the
+> end). Some of the contents of Sri Vidyasankar's paper (and counterpoints
+> by Sri Ravishankar and further replies by Vidyasankar) are at
+> http://www.advaita-vedanta.org/archives/advaita-l/2005-January.txt.gz
+> (search for "sankaravijaya texts") and at
+> http://www.advaita-vedanta.org/archives/advaita-l/2000-June/001047.html.
+> His criticism of Antarkar is not there but he gives his refutations to
+> some of the points Antarkar has raised . I request Sri B.Shridhar to
+> read both and check for himself which of the opinions is biased (or
+> rather, more biased).
+>
+> Finally, I would like to add that I do consider SrI candraSekharendra
+> sarasvati to be a jIvanmukta and respect him for being a Srotriya and a
+> brahmanishTha. I would like to ask, as was asked by Sri Amuthan, is a
+> jIvanmukta necessarily a sarvaj~na too?
+>
+> I hope I am being objective here.
+>
+> Regards,
+> Shyam
+>
+>
+>
+>
+>
+>
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
+>
+>
+> ---------------------------------
+> Get your email and more, right on the new Yahoo.com
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
+_______________________________________________
+Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+
+To unsubscribe or change your options:
+http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+
+For assistance, contact:
+listmaster at advaita-vedanta.org
+
+
+
+---------------------------------
+Yahoo! Messenger with Voice. Make PC-to-Phone Calls to the US (and 30+ countries) for 2¢/min or less.
+

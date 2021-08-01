@@ -1,0 +1,4 @@
++++
+title = "SAmkhya and VedAnta"
+
++++

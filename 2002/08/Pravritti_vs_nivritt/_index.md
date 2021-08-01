@@ -1,0 +1,4 @@
++++
+title = "Pravritti vs nivritti"
+
++++

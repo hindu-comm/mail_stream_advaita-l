@@ -1,0 +1,79 @@
++++
+title = "317 Shrisha Rao"
+date = "2009-10-26"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2009-October/023035.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2009-October/023035.html)
+
+On Mon, Oct 26, 2009 at 4:57 PM, Ramesh Krishnamurthy
+<rkmurthy at gmail.com> wrote:
+
+> 2009/10/26 Shrisha Rao <shrao at nyx.net>:
+>>
+>> Correct, actually; both were neo-Vedantins. There may be numerous
+>> such examples from recent times, but it would be a lot more persuasive
+>> in determining the way tradition goes if it were the case that, say,
+>> Vidyaranya was a क्षत्रिय or that Madhusudana Saraswati was a वैश्य.
+>>
+>
+> If you are looking for scholarly personalities from pre-modern times
+> then the search may be difficult. However, if you look at the
+> tradition in more general terms then things are quite different. The
+
+We tend to forget that there are actually said to be scriptural
+injunctions behind all the rules that tradition is supposed to follow;
+we merely pick whatever real-world community we consider our own and
+consider its practices as normative, but this is not strictly correct
+though शिष्टाचार does have a role.  There are scriptural injunctions
+covering all kinds of behavior, including that one is not supposed to
+scratch one's head idly (I kid you not).  Sometimes, differing
+understandings of these injunctions can and do lead to variations in
+practice; I once heard a scholar describe how someone once asked a
+Bengali Vedic scholar how it is that in his community it is considered
+proper to eat fish, and further wondered if they drink alcohol too?
+The Bengali gentleman bristled at the suggestion, and noted that there
+is a specific श्रुति injunction न सुरां पिबेत् that forbids drinking
+spirits, but there is no blanket injunction against all meat, and no
+specific injunction against fish.  There is an injunction न कलञ्जं
+भक्षयेत् where कलञ्ज means विषदिग्ध बाणहत मृगस्य मांसम् -- the meat of
+an animal that has been killed with a poison-tipped arrow.  Thus,
+there is an injunction against eating the meat of an animal that has
+been felled by a poisoned arrow, but apparently not against its meat
+otherwise.  So as long as the Bengali gentleman did not use
+poison-tipped arrows to get his fish, he was okay.  We (those of us
+who are vegetarians) have to seek recourse to शिष्टाचार to justify our
+preference, and I have also heard of "clever" uses of श्रुति to cover
+this case (e.g., तेन त्यक्ते न भुञ्जीथ rather than the more standard
+parsing, to mean that whatever is rejected by Bhagavan as unsuitable
+for worship is also ipso facto unsuitable for consumption).
+
+>> It is said that the Visishtadvaita tradition was once very inclusive
+>> and open to anyone, but now it is as insular as they come, so these
+>> are not valid examples either. Or at any rate though these relatively
+>> recent groups might profess allegiance to Ramanuja, they definitely do
+>> not set the standard for what is traditional in Ramanuja's own
+>> unbroken line.
+>
+> The Ramanandi-s are far from being a recent group. They have been
+> around for 700 years.
+
+"Relatively" is key; further, they are no closer to being
+absorbed/unified with the "parent" community than ever.  (I do not
+believe the Iyengars, for instance, consider the Ramanandis as their
+brethren.)
+
+Anyway, my apologies for these intrusions.  I guess I have already
+said more than enough, and will stop now.  I would really just like to
+know what scriptural authorities have been cited by different scholars
+on this issue; that is the only thing of serious interest.  On the
+question of what is merely traditional, different people can have
+different views on what constitutes hoary tradition, and that aspect
+of the discussion is perhaps pointless.
+
+Regards,
+
+Shrisha Rao
+
+> Ramesh
+

@@ -1,0 +1,45 @@
++++
+title = "101 Jagannath Chatterjee"
+date = "2002-09-05"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2002-September/003679.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2002-September/003679.html)
+
+Dear Malolan,
+
+You are right. Here soma refers to divine inebriation.
+Many sadhaks have reported this stage which resembles
+outwardly the drunken stupor. It is a very high stage
+in sadhana. I have only read about the existence of
+such a state but do not know any details. Can anyone
+help?
+
+And Srikrishnaji, Turiya means the fourth stage beyond
+Tamas, rajas and sattwa, is it not?
+
+Regards
+Jagannath
+
+--- Malolan Cadambi <cadambi at HOTPOP.COM> wrote:
+> Soma is sap. But your metaphysical interpretation is
+> a good one. One the
+> paratattvam basis, one should try to understand the
+> significane of all
+> rituals. Some people even scholars belonging to the
+> western tradition
+> interpret soma as being alcoholic in nature. This is
+> not true and often
+> their interpretation stems from political basis.
+>
+> SurApAnam is alcohol. SomapAnam is to be treated as
+> divine elixir.
+>
+> -Malolan
+
+
+__________________________________________________
+Do You Yahoo!?
+Yahoo! Finance - Get real-time stock quotes
+http://finance.yahoo.com
+

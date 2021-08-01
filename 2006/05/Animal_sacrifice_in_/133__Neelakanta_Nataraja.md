@@ -1,0 +1,37 @@
++++
+title = "133 Neelakanta, Nataraja"
+date = "2006-05-09"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2006-May/016537.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2006-May/016537.html)
+
+Dear All,
+
+There is a practice of animal sacrifice in all the yagnas (by yagna, I
+mean only shrouta yagnas like somayaga, agnistoma, garudaschayana). I
+completely agree with the concept of the same, saying that, the
+animal(goat) will attain Suryaloka, which is very tough to attain even
+by us, being humans. First, a person can join vasu gana, then rudra gana
+and next is aditya gana or surya loka. Even when a person passes away,
+in the structure of paitrumedhika prayoga (last rites), this is what is
+followed.
+
+Now my question : Are there provisions for not doing animal sacrifice ?
+There are some references in Mahabharata, wherein, Lord Yama says 'I
+have made one person to perform yagna with pistapashu
+(purodaasha),(pistapashu means animal kind of doll made out of dough).
+And this is what is very auspicious'. 
+
+But, the main problem lies here : Whenever there is conflict between the
+Shruti and Smruti, you should override Smruti to consider Shruti. So, in
+such a case, animal sacrifice will become a must while performing
+yagnas.
+
+Does anyone have any reference from Shruti, where in, it says there is a
+provision for not doing animal sacrifice ?
+
+Best Regards,
+nattu
+
+

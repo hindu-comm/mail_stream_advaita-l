@@ -1,0 +1,4 @@
++++
+title = "upanishad mahAvAkya-s"
+
++++

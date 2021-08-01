@@ -1,0 +1,4 @@
++++
+title = "shatarudriyam as upanishad"
+
++++

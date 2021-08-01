@@ -1,0 +1,4 @@
++++
+title = "Epigraphica about Vidyaranya"
+
++++

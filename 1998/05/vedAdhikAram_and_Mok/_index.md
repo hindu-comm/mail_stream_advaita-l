@@ -1,0 +1,4 @@
++++
+title = "vedAdhikAram and MokshAdhikAra"
+
++++

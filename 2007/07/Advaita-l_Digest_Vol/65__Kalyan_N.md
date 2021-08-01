@@ -1,0 +1,244 @@
++++
+title = "65 Kalyan N"
+date = "2007-07-26"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2007-July/019105.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2007-July/019105.html)
+
+Dear All Members
+
+Hari Om
+
+*On Vairgya*
+
+Vairagya without Viveka is difficult to hold on. Viveka comes out of
+knowledge of the reality. When you hold on to something by giving up
+something is not vairagya. The fact that King Ashoka did not fight
+again clearly shows that he followed one of the values of "Ahimsa" and he
+found satisfaction in following Buddhism. We should follow an exit strategy
+of 4 Ds. Discrimination, Dispassion, Discipline and Desire as mentioned in
+the Sadhana Chatushtayam as very well explained by Swami Paramarthananda in
+his lecture - Tatvabhoda. If you discard something or give up something
+without a complete understanding of why, there is every possibility of
+holding on to something lower than that we gave up. We should hold on to
+higher ideals like Ashoka of holding on to Ahimsa will take us further in
+the path of knowledge & remove the bondages which will be the real vairagya.
+
+Hari Om
+
+In His Seva
+
+Kalyan
+
+
+
+
+
+
+On 7/25/07, advaita-l-request at lists.advaita-vedanta.org <
+advaita-l-request at lists.advaita-vedanta.org> wrote:
+>
+> Send Advaita-l mailing list submissions to
+>        advaita-l at lists.advaita-vedanta.org
+>
+> To subscribe or unsubscribe via the World Wide Web, visit
+>        http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> or, via email, send a message with subject or body 'help' to
+>        advaita-l-request at lists.advaita-vedanta.org
+>
+> You can reach the person managing the list at
+>        advaita-l-owner at lists.advaita-vedanta.org
+>
+> When replying, please edit your Subject line so it is more specific
+> than "Re: Contents of Advaita-l digest..."
+>
+>
+> Today's Topics:
+>
+>   1. New member introduction: C.N.S. Adishesha (Jaldhar H. Vyas)
+>   2. Re: Vadakkunatha (Ramakrishnan Balasubramanian)
+>   3. Re: Is vairAgya/renunciation  a result of glumness??
+>      (srirudra at vsnl.com)
+>
+>
+> ----------------------------------------------------------------------
+>
+> Message: 1
+> Date: Tue, 24 Jul 2007 17:39:08 -0400 (EDT)
+> From: "Jaldhar H. Vyas" <jaldhar at braincells.com>
+> Subject: [Advaita-l] New member introduction: C.N.S. Adishesha
+> To: Advaita-L <advaita-l at lists.advaita-vedanta.org>
+> Message-ID: <Pine.LNX.4.64.0707241737470.21500 at jaldhar-laptop>
+> Content-Type: TEXT/PLAIN; charset=US-ASCII; format=flowed
+>
+> I am 48 years old and presently working as manager in
+> Canara Bank in India.
+>
+> About 25 years back I developed interest in vedanta ,
+> more particularly in advaita school as my family
+> traditionally belong to this school.
+>
+> As my job is transferable, I could not get initiated
+> into formal study of philosophy as traditional people
+> do in India. However I could able to get all the
+> original works of Adishankara and on my own I am
+> studying them. I am more interested in studying works
+> on Upanishads, rather than Brahmasutras. I am not much
+> interested in reading post Shankara advaita works
+> except a few, namely the works of Sureshwara, known as
+> direct disciple of Adishankara and works of Sri
+> Sattchidanandendra Saraswathi.
+>
+> I would like to join this group as this appears to be
+> helpful to me in enriching my knowledge.
+>
+>
+>
+> ------------------------------
+>
+> Message: 2
+> Date: Tue, 24 Jul 2007 18:25:41 -0700
+> From: "Ramakrishnan Balasubramanian" <rama.balasubramanian at gmail.com>
+> Subject: Re: [Advaita-l] Vadakkunatha
+> To: "A discussion group for Advaita Vedanta"
+>        <advaita-l at lists.advaita-vedanta.org>
+> Message-ID:
+>        <d6ea147d0707241825y4941f435xa2f9ebf522491313 at mail.gmail.com>
+> Content-Type: text/plain; charset=ISO-8859-1; format=flowed
+>
+> >From my Tamil Grammar knowledge, I was inclined to say vaDakkunAthan.
+> The vaDakku +  nAthan. The 'n' doesn't duplicate. On the other hand I
+> believe it is vaDakkutthisai (Northern direction), the 't' duplicates.
+> When I saw the reply by Ramesh, I was a little puzzled. I asked my
+> wife, who is from Kerala, and she confirmed that it should be
+> vaDakkunAthan. But she wasn't able to give the syntactical rule for
+> it. I'll ask my father-in-law who is pretty good at Malayalam Grammar
+> and confirm it.
+>
+> Rama
+>
+> On 7/22/07, Guy Werlings <werlings.guy at wanadoo.fr> wrote:
+> > All my deepest thanks to shrii Ramesh Krishnamurthy.
+> > PraNAm-s
+> > Dji-dobolyu
+> > ----- Original Message -----
+> > From: "Ramesh Krishnamurthy" <rkmurthy at gmail.com>
+> > To: "A discussion group for Advaita Vedanta"
+> > <advaita-l at lists.advaita-vedanta.org>
+> > Sent: Sunday, July 22, 2007 6:29 PM
+> > Subject: Re: [Advaita-l] Vadakkunatha
+> >
+> >
+> > > It's "vaDakunnAthan", literally "lord of the north"
+> > >
+> > > Ramesh (not a Malayali though)
+> >
+> >
+>
+>
+> ------------------------------
+>
+> Message: 3
+> Date: Wed, 25 Jul 2007 03:01:58 +0000 (GMT)
+> From: srirudra at vsnl.com
+> Subject: Re: [Advaita-l] Is vairAgya/renunciation  a result of
+>        glumness??
+> To: advaita-l at lists.advaita-vedanta.org
+> Message-ID: <e4c0d983602dd.46a6bd26 at vsnl.com>
+> Content-Type: text/plain; charset=us-ascii
+>
+> Dear Members
+> Yes it is true that a shock results in deep thought about what exactly is
+> life.But soon we forget and carry on with our routines.King Ashoka comes
+> to
+> my mind when he vowed that he will not indulge in another war after the
+> Kalinga war in which he was victorious.His vairagya came after a success
+> and
+> he embraced Budhdhism.My point is one should be truly
+> get affected eitherby a sad event or a happy one  and set out to seek
+> remedy
+> IMMEDIATELY.All life stories of
+> great people only indicates this aspect.They never waited for an opportune
+> moment to get vairagya.It was spontaneous.
+> R.Krishnamoorthy.
+> ----- Original Message -----
+> From: <bhaskar.yr at in.abb.com>
+> To: <advaita-l at lists.advaita-vedanta.org>; <advaitin at yahoogroups.com>
+> Sent: Friday, July 20, 2007 11:44 AM
+> Subject: [Advaita-l] Is vairAgya/renunciation a result of glumness??
+>
+>
+> >
+> > praNAms
+> > Hare Krishna
+> >
+> > Yesterday I was discussing with one of my friends casually, the topic
+> was
+> > about vairAgya.  He said that vairAgya or dispassion is always a result
+> of
+> > some grief in one's life.  He took the examples of buddha, dhruva,
+> ramaNa
+> > maharshi & argued, see buddha had to see the miseries of life, dhruva
+> had
+> > to suffer from his step mother & ramaNa had to undergo that strange
+> > experience of death to get vairAgya....If everything is going fine in
+> > one's
+> > life, he/she never even think about vairAgya despite he/she is very
+> > philosophical & spiritual in his/her normal approach towards life.   My
+> > friend continued to argue, though most of us  know the importance & talk
+> > hours together about  dispassion & renunciation etc.  we never try to
+> put
+> > them into practice coz. we donot want to come out of our comfort zone.
+> I
+> > thought in a way, he is right!!! Because, I've not seen/heard any
+> incident
+> > where one, who was leading a comfortable & secured  life took saNyAsa by
+> > mere discrimination (vivEka) without any untoward incidents..Either
+> there
+> > must be a severe catastrophe in his/her life or there must be a
+> > traditional
+> > obligation (thouse who belong to & studied under the guidance of
+> orthodox
+> > saNyAsa Ashrama/ mutt) to force them to adopt themselves to saNyAsi way
+> of
+> > life or to the path of vairAgya.
+> >
+> > I know this is only limited vision of vairAya...I'd be highly obliged if
+> > prabhuji-s share any additional thoughts on this subject.  If those
+> > thoughts make me to think about  the path of vairAgya
+> seriously,  nothing
+> > like that!!
+> >
+> > Hari Hari Hari Bol!!!
+> > bhaskar
+> >
+> >
+> > _______________________________________________
+> > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> >
+> > To unsubscribe or change your options:
+> > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> >
+>
+>
+>
+> ------------------------------
+>
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
+>
+> End of Advaita-l Digest, Vol 51, Issue 14
+> *****************************************
+>
+

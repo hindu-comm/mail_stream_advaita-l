@@ -1,0 +1,4 @@
++++
+title = "[Fwd: Spiritual Practice]"
+
++++

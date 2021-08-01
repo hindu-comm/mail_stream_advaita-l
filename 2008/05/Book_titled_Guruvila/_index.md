@@ -1,0 +1,4 @@
++++
+title = "Book titled \"Guruvilasatarangi"
+
++++

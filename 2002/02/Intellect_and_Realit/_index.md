@@ -1,0 +1,4 @@
++++
+title = "Intellect and Reality"
+
++++

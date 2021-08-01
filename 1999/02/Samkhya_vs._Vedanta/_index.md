@@ -1,0 +1,4 @@
++++
+title = "Samkhya vs. Vedanta"
+
++++

@@ -1,0 +1,4 @@
++++
+title = "Mahavakyas of Upnishaths"
+
++++
