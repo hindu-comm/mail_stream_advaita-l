@@ -1,0 +1,96 @@
++++
+title = "128 H S Chandramouli"
+date = "2021-05-11"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2021-May/056662.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2021-May/056662.html)
+
+Namaste Sudhanshu Ji,
+
+It is not essential that travel for shabda must be accepted. For those who
+would like to consider it, the reasoning would still be valid.
+
+In case of lightning and thunder we are considering, travel could be taken
+into account only for light. The reasoning would still be valid.
+
+As I had mentioned earlier also, there is no specific location that can be
+identified for production of light and sound in this example.
+
+Regards
+
+Chandramouli
+
+<https://www.avast.com/sig-email?utm_medium=email&utm_source=link&utm_campaign=sig-email&utm_content=webmail>
+Virus-free.
+www.avast.com
+<https://www.avast.com/sig-email?utm_medium=email&utm_source=link&utm_campaign=sig-email&utm_content=webmail>
+<#DAB4FAD8-2DD7-40BB-A1B8-4E2AA1F9FDF2>
+
+On Tue, May 11, 2021 at 3:54 PM Sudhanshu Shekhar <sudhanshu.iitk at gmail.com>
+wrote:
+
+> Chandramouli ji,
+>
+> //These locations need not be the same as their origin.//
+>
+> In SiddhAnta, perception is said to be at the place of origin. Also,
+> shabda does not travel from place of origin to some other place of
+> perception. If it does, then how exactly does it happen. Clearly
+> veechi-tarang is refuted..
+>
+> Regards.
+>
+>
+> On Tue, May 11, 2021 at 12:16 AM H S Chandramouli <
+> hschandramouli at gmail.com> wrote:
+>
+>> Namaste.
+>>
+>> The following could perhaps form the basis for a resolution of the issue.
+>>
+>> What is cognized through vision is the rUpa (color) of the Vishaya. It
+>> could be considered as the light enveloping the object or emanating from it
+>> (in the case of lightning for example) as the case may be. While ‘being
+>>  distant’ is also perceived in the cognition, the actual location is not
+>> when the distance is large. Same with shabda or sound. While the sound is
+>> cognized as well as it being ‘distant’, exact distance is not involved in
+>> the cognition.
+>>
+>> We can now consider ‘where’  the cognition takes place when all the three
+>> involved in the cognition; namely antahkarana vritti,rUpa or light
+>> enveloping/emnating from the object, and shabda or sound emanating from the
+>> object;  all three are in motion, and the distances between the objects and
+>> the experience are large.The location where visual cognition takes place
+>> can be considered as the location where the rUpa or light enveloping the
+>> object or emanating from it is coincident with the antahkarana vritti
+>> issuing forth through the eyes. Similarly for the cognition of sound. These
+>> locations need not be the same as their origin. When distances involved are
+>> negligible compared to their speeds, location of cognition will be
+>> practically the same as the object. When distances are large, they could be
+>> quite different.
+>>
+>> This explains the reason for cognition taking place at different times in
+>> case of lightning and thunder for example. This would also cover anomalies
+>> in respect of cognition of very distant stars/planets etc.
+>>
+>> Regards
+>> Chandramouli
+>>
+>>
+>>>>>>>>>
+>>>>>>>>>
+>>
+>> <https://www.avast.com/sig-email?utm_medium=email&utm_source=link&utm_campaign=sig-email&utm_content=webmail> Virus-free.
+>> www.avast.com
+>> <https://www.avast.com/sig-email?utm_medium=email&utm_source=link&utm_campaign=sig-email&utm_content=webmail>
+>> <#m_-4801946635644723896_m_-4259070361755528703_m_-4332257227125025052_DAB4FAD8-2DD7-40BB-A1B8-4E2AA1F9FDF2>
+>>
+>
+>
+> --
+> Additional Commissioner of Income-tax,
+> Pune
+>
+> sudhanshushekhar.wordpress.com
+>

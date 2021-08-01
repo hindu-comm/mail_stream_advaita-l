@@ -1,0 +1,4 @@
++++
+title = "Iswara in Upanishads"
+
++++

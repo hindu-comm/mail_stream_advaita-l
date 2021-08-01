@@ -1,0 +1,54 @@
++++
+title = "92 V Subrahmanian"
+date = "2019-11-08"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2019-November/053527.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2019-November/053527.html)
+
+PeriyavAL: Know that there are Guttu Shlokas in Bharatam (Mahabharata)?
+
+Myself: These are Guttu Shlokas because they were composed to reduce the
+speed of PiLLaiyar's (Ganesha's) writing.
+
+PeriyavAL: There is a Guttu Shloka in Gita! You know?
+
+Myself: Don't know.
+
+PeriyavAL: '*aj~nAnenanAvR^itaM j~nAnaM tena muhyanti jantavaH | j~nAnena
+tu tadaj~nAnaM yeSAM nAshitamAtmanaH ||*' (5.15,16)
+
+"Atma who is *jnAnarUpam* (in the form of knowledge) is veiled with
+*ajnAnaM* (ignorance). People are deluded because of that. If the *ajnAnaM* is
+destroyed by *jnAnaM*, Moksha will be attained."
+
+Isn't this doctrine puzzling, confusing? How can *ajnAnaM* veil *jnAnaM*?
+If it is veiled, how by that same *jnAnaM* will *ajnAnaM* be destroyed? --
+is the confusion. Vinayaka blinks. In those few seconds Vyasa has readily
+composed the *shloka*s of many chapters.
+
+For this puzzle that comes in the fifth chapter, he gives the answer in the
+tenth chapter!
+
+teshAmanukampArtham ahamaj~nAnajaM tamaH |
+nAshayAmi AtmabhAvastaH j~nAnadIpena bhasvatA ||
+
+To show mercy on the *bhaktA*s who always sing and think only about me and
+melt by those acts in their hearts, I as the *jnAna rUpi* (form of
+knowledge) enter the state of mind that remains *akhaNdAkAram* (not
+fragmentary, entire, whole) and is known as *AtmabhAvam* (state of the
+soul), reach the *prati-bimbam* (reflection), strengthen the *jnAnam* and
+set aside (the veil) of ignorance.
+
+(In other words, *svarUpa jnAnam* by itself will not set aside ignorance.
+It only notifies its presence. But if the same *svarUpa jnAnam* is
+reflected by the *mano vRutti* (mode/nature/state of mind) that results
+from continued experience of the state of meditation on the Vedanta Maha
+Vakhyas after studying and reflecting on them, that will immediately burn
+the ignorance. Even if the sun has the *svabhAva* (inherent nature) to burn
+cotton, it burns the cotton only when the rays touch it through a special
+lens!
+
+
+Read more:
+http://periva.proboards.com/thread/2491/kanchi-paramacharya-satsangam-shashtrartha-02#ixzz64gsvLt00

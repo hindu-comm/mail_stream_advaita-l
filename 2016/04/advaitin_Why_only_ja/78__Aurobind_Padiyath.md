@@ -1,0 +1,165 @@
++++
+title = "78 Aurobind Padiyath"
+date = "2016-04-07"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2016-April/040847.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2016-April/040847.html)
+
+Hari Om!
+I would recommend that we should make a sincere attempt to have a samavAya
+of various prakriyā in different places of the prasthanatraya.
+I'm recalling the final mantra in the Maitreyi-Yajgnavalkya, where the
+bhashyam and the varitkam should both be studied. To bring the relevant
+parts
+1. AjnAna prikalpitham Jagat, 2. Atma vyathikarana nasti kinchit 3. Sarvam
+AtmaivAbhut. Tatra kena kam paschyet?
+We need to understand that both jnAna and AJnana, as atasmin tadbhudhi, are
+jnAnam only and when that jnAna removes the atasmin tadbhudhi, the state of
+Atma vyatirekena nasti kinchit will arise and then sarvam AtmaivAbhut.
+
+Hari Om!
+Aurobind
+
+
+On Thu, 7 Apr 2016 11:47 Bhaskar YR via Advaita-l, <
+advaita-l at lists.advaita-vedanta.org> wrote:
+
+> praNAms Sri Venkatraghavan prabhuji
+>
+> Hare Krishna
+>
+> First of all,  thank you very much for typing the original Sanskrit in
+> English.  I think and as I have stated earlier prapanchOpashamanaM or
+> prapaNcha pravilayaM  in Advaita is very significant prakriya
+> (methodology)  in understanding the tureeyAtma who is prapanchOpashamanaM,
+> shivaM, shAntaM and advaitam.  But at the same time, I am surprised why the
+> reconciliation of this mantra with other shruti AND sUtra bhAshya vAkya-s
+> is so difficult when it has been numerous time  said that  kArya is kAraNa
+> rUpa whereas there is no kArya in kAraNa, ananyatvepi kArya karaNayOH
+> kAryasya kAraNAtmatvaM ‘NA TU KAARANASYA KAARYAATMATVAM’, brahma svabhAvO
+> hi prapanchaH, ‘NA PRAPANCHA SVABHAAVAM BRAHMA’.  Anyway with this
+> background let me once again try to share my understanding with regard to
+> mAndUkya mantra 7.
+>
+> Brahman’s abhinna nimmittOpadAna kAraNatva, sarvAtma bhAva has been
+> described keeping in the mind that mind invariably travels outwards.  When
+> the jnAni sees the external world (i.e. kArya prapancha) his realization
+> would fetch him the knowledge that it is Atman only nothing else.  jnAni’s
+> darshana is NOT mithyA darshana it is satya darshana only because : ya evaM
+> veda ahaM brahmAsmeeti sa idaM sarvaM bhavati says bruhadAraNyaka.  But as
+> the same time jnAni in his svarUpa neither bahirprajnA nor antaH prajnA nor
+> prajnAna Ghana because in his svarUpa he is nirguNa, nirvikAri and
+> nirvishesha brahman only.  Again when the jnAni sees outside he knows the
+> objects those are existed outside is nothing but kAraNa only in kAryAkAra
+> rUpa whereas in his svarUpa he is nirguNa nishprapancha and nirvikAri.
+> Kindly recall the gold-ornaments example.  Though ornaments are vikAra of
+> gold and for the ornaments there is no separate existence apart from gold
+> whereas in gold itself there is no vikAra as such as ornaments, there is no
+> kAryAkAra hence there will not be any kAraNatvaM either in gold!! Bhuma is
+> that where another is not seen, another is not heard another is not known,
+> yatra nAnyat pashyati, nAnyatchruNOti…..sa bhUma, neha nAnAsti kiMchana and
+> the below maNdUkya as well to drive home the point in gold there is no
+> vikAra and vikAra janita vyavahAra in whatever sense.   From the gold point
+> of view these vikAra-s are kevala adhyArOpita whereas for the vikAra-s the
+> same ‘gold’ is material and efficient cause.
+>
+> Now, coming to your particular point, i.e. kArya prapancha abhAva= jagat
+> mithyA, does this mean after jnana this jagat is no more ‘indriya
+> vedya’!!??  I don’t think ‘abhAva’ of kArya will prove the jagat
+> mithyatvaM.  To understand this,  first of all we have to analyse the
+> process of prapancha upashamanaM or prapancha pravilayaM!! what exactly is
+> the saMbandha (relationship) between the  saMpUrNa vikAra rahita, vishesha
+> rahita, niravayava para brahman and sAvayava, savishesha, vikAri jada
+> jagat??  What is the purpose of addressing   both brahman and jagat in same
+> adhikAraNyaM?? (sAmAnAdhikAraNyaM).  Shankara answers this in sUtra bhAshya
+> : sarvaM brahma iti sAmAnAdhikAraNyaM prapanchapravilayanArthaM na
+> anekarasatApratipAdanArthaM.  It has been said in the sense the effect is
+> of the nature of brahman but brahman is not of the nature of the effect.
+> It is only to sublimate the world (ornaments) and not to convey that
+> brahman (gold) contains multiplicity.  That is the reason why though the
+> clay is upAdAna & minitta of clay, clay as such in its svarUpa ‘arUpameva’
+> and that is the ultimate truth of clay and arUpa of clay / gold / brahman
+> is pradhAna tattva.  arUpavadeva hi tatpradhAnatvAt says vedAnta sUtra.
+>
+> Now the question is why at the first place we should admit the world and
+> then talk about the upashamanaM or prvilApanaM of it when there is no kArya
+> – kAraNa in the ultimate nirivikAri parabrahman??  From the beginning
+> itself why don’t we consider that this jagat is mithyA ??  To answer this
+> again we have to go back to the same old mrudghata analogy.  Mrut sAmAnya
+> is ultimately nirvikAri nirvishesha and in it there is no kArya vishesha or
+> mrutvishesha like mrutpinda or mrudghata.  But for the mrutpinda and
+> mrudghata mrutsAmAnya is the essence.  If this is not the case if one
+> particular jnAni can do the pravilApanaM or upashamanaM of this jagat
+> through his vidyA literally, this jagat would have not been available for
+> the rest of the jeeva-s.  Hence abhAva here is not ‘absence’ or
+> non-existent OTOH kArya jagat would appear to jnAni in kAraNa rUpa and in
+> this kAraNa rUpAtmaka (AtmAvruta) jagat the jeeva’s avidyAkalpita jagat
+> (i.e. ahamkAra, mamakAra, this is my wife, this is my son this is my house
+> etc. ) is abhAva  or sublimated through samyAkjnAna.  So jagat would be
+> indriya vedya for both jnAni and ajnAni but drushti kOna will be different,
+> former’s is samyak, brahmaikatva sama drushti whereas later’s is
+> parichinna, abrahma, asarva avidyA kalpita vrutti.
+>
+> Therefore in the enthusiasm of retaining the prapanchOpashamanaM tureeya,
+> if one dismisses the existence of jagat for which brahman is OtaprOta it is
+> wrong.  It is like vainAshika siddhAnta. And if the world is dropped by
+> deeming it as an avidyA kalpita illusion and it’s complete abhAva in the
+> post jnana period then there is no way at all to arrive at brahman coz.
+> Shruti also depends on nAma and rUpa of jagat to convey the nirguNa,
+> nirvishesha svarUpa of brahman.  Moreover, this type of prapancha
+> pravilApaNam (total elimination of jagat or saMpUrNa abhAva of kArya jagat
+> or melting the jagat in jnAnAgni like melting the ghee in fire etc. if at
+> all that is meant in the statement : kArya prapancha abhAva = jagat
+> mithyA)  is not possible to the jnAni and it is possible only to Ishwara at
+> the time of praLaya clarifies shankara in sUtra bhAshya : kOyaM
+> prapanchapravilayO nAma?? Kim agnipratApa saMpaktatvAt ghrukATiNya
+> pravilaya eva prapanchapravilayaH kartavyaH??  ….sa purusha mAtreNa
+> ‘ashakyaH’ pravilApanaituM eti tatpravilayOpadeshOshakya vishaya eva syAt,
+> ekenacha Adimuktena pruthivyAdhi pravilayaH krutaH iti idAneeM pruthivyAdhi
+> shUnyaM jagat abhavishyat.  Elsewhere insists shankara about the the role
+> of jnana : na tu pAramArthikaM vastu kartuM nivartaituM vA arhati brahma
+> vidyA.  These unambiguous statements are self-explanatory no need for any
+> elaboration.  Jagat is pratyaksha pramANa siddha and praLaya or upashamana
+> or antya of it can be happen only at the time of praLaya, jnana or svarUpa
+> jnana that it is nirvishesha nirvikAra etc. is shAstra siddha or
+> shAstrAdhArita or vedAnta vAkya janita jnAna and both pramANa-s will not
+> come in the their way as two different pramANa and their vishaya donot
+> contradict each other.
+>
+> In short, pravilApanaM happens in the form of vyashti (jeeva) realizing
+> its samashti rUpa (brahmaikatva bhAva) And this brahmaikatva bhAva
+> (sarvAtma bhAva) is nothing short of his (jeeva-s) svarUpa jnana that he is
+> in svarUpa sarva vikAra rahita.
+>
+> Hari Hari Hari Bol!!!
+>
+> Bhaskar
+>
+> PS:: disclaimer : I am not claiming that this is what is the ultimate
+> siddhAnta as per orthodox t shankara saMpradAya nor I am compelling anyone
+> to accept it.  These are all the open thoughts of me based on my
+> understanding of shankara vedAnta.  Having said this, as I clarified
+> earlier, the above stand is not a ‘new born baby’ in shankara saMpradAya ☺
+> stalwarts like Late Prof. SKR Rao (was heading the Kalpataru Research
+> Institution at Sringeri Mutt, B.lore branch) And other eminent and devoted
+> scholars who are no more good friend of my parama guruji Sri SSS at any
+> stretch of imagination ☺ are of the same opinion.  I am just elaborating
+> that stand with my (limited) understanding of bhAshya vAkya.  Prabhuji-s
+> are welcome to disagree with me.  I don’t have any issues or hard feelings ☺
+>
+>
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
+-- 
+
+Aurobind Padiyath
++91-9689755499

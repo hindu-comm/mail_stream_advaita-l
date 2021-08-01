@@ -1,0 +1,4 @@
++++
+title = "GoogleVisionOCR_Python"
+
++++

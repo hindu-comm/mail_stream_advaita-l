@@ -1,0 +1,172 @@
++++
+title = "147 Sunil Bhattacharjya"
+date = "2017-01-06"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-January/043923.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-January/043923.html)
+
+Dear friends,
+
+Sorry, a part of the text got deleted by mistake. I am giving that below:
+
+Saying Adi Shankara to be Prachanna Buddha is not wrong, provided the speaker understands what Lord Buddha really taught. Adi Shankara taught us that the Jivanmukta leaves the body (including all the five koshas) and becomes Videhamukta, and that is the state of realizing oneness with the Brahman. Lord Buddha taught that the Bodhisattva Sariputra saw that the skandhas (koshas) were empty, i.e,, he left the five skandhas or koshas. Lord Buddha did not use the word “Brahman” here, but not that Lord Buddha did not know the word Brahman. Lord Buddha did  use the word “Brahman” in Buddhist sutra. Buddha did not believe in the plurality of souls and he differed from his Sankhya guru on this. He did not believe in duality and he differed from his yoga guru also. Lord Budhha believed only in the Advayavada, which is the same as the advaitavada. 
+
+In Adi Shankara's time the Mahayana buddhists did not understand what Lord Buddha taught at the highest level, and that happened because of lapse of thirteen (13) centuries from the time of Lord Buddha to the time of Adi Shankara. Nagarjuna, who lived about eight (*) centuries before Adi Shankara told that Shunyata is not “non-existence”, but that also did not have any effect in Adi Shankara's time and the Mahayana buddhists were teaching nihilism in Adi Shankara's time. That is why Adi Shankara had not only to oppose the Sarvastivadins and the Vijnanavadins, he had also to oppose the Mahayana buddhists. 
+
+Adi Shankara is said to have composed the Dashavataara stotra, where he included Lord Buddha as the ninth avatara of Lord Vishnu. If any member has tseen hat stotra, may I request him to share that infornation with us. 
+
+Regards
+Sunil K. Bhaattacharjya
+
+
+--------------------------------------------
+On Fri, 1/6/17, Sunil Bhattacharjya <sunil_bhattacharjya at yahoo.com> wrote:
+
+ Subject: Re: [Advaita-l] Dashavataras as per Harivamsha
+ To: "V Subrahmanian" <v.subrahmanian at gmail.com>, "A discussion group for Advaita Vedanta" <advaita-l at lists.advaita-vedanta.org>, "Kripa Shankar" <kripa.shankar.0294 at gmail.com>
+ Date: Friday, January 6, 2017, 4:29 PM
+
+ ∞ {\displaystyle \infty } 
+ Mathematicians are familiar with ∞, the symbol of
+ infinity. Thus mathematically speaking 
+ 1/∞ (infinity) = 0 (Zero or Shunya)
+
+ Regards,
+ Sunil K.Bhattacharjya
+
+
+
+
+ --------------------------------------------
+ On Fri, 1/6/17, Kripa Shankar via Advaita-l <advaita-l at lists.advaita-vedanta.org>
+ wrote:
+
+  Subject: Re: [Advaita-l] Dashavataras as per Harivamsha
+  To: "V Subrahmanian" <v.subrahmanian at gmail.com>,
+ "A discussion group for Advaita Vedanta" <advaita-l at lists.advaita-vedanta.org>
+  Date: Friday, January 6, 2017, 1:10 PM
+
+  As you can observe he
+  relies heavily on some obscure Vaishnava authors /books
+ and
+  Buddhist works which are sheer fantasies. If we are to
+ take
+  this guy seriously, we will have to accept Shankara as
+  prachanna baudha which is again a monumental lie.
+
+  Regards ‎
+  Kripa ‎
+
+  VyasayaVishnuroopayaVyasaroopayaVishnave
+  NamovaiBrahmanidhayeVasishtayanamonamaha
+   Original Message 
+  From:
+  Kripa Shankar
+  Sent: Saturday 7 January 2017
+  2:12 AM
+  To: V Subrahmanian; A discussion
+  group for Advaita Vedanta
+  Subject: Re:
+  [Advaita-l] Dashavataras as per Harivamsha
+
+  That does not make any
+  difference at all. It is clearly established in the
+ shastras
+  / Puranas that animals sacrificed in yajnas attain higher
+  worlds. There is an instance in Matsya Purana about this
+  topic. I can give reference if needed. This Ahimsa as
+ meant
+  by this pundit and by Buddha, whether I or I I, is
+  completely against the vedic view as mentioned previously.
+  So apparently Vishnu has got the fundamentals wrong.
+  Further, animals were being sacrificed from times
+  immemorial. How did it suddenly become hinsa? The same
+  yajnas involving animal sacrifices were practised by the
+  Pandavas as advised by none other than Krishna, another
+  avatara.
+  ‎
+  ‎Secondly
+  the Madhvas do not have credibility as they have
+ perpetuated
+  a series of lies. A guru/shiva nindaka is considered a
+ great
+  saint by them, so should we have comparisons with them. So
+  it's immaterial what they believe when we have first
+  hand evidence from Vyasa!
+
+  You will have to inevitably view it from a more
+  socio-political angle. It is similar to some reformer
+  banning an already dead practise such as Sati. More over,
+ we
+  do not know much about this pundit nor the sources from
+  which he is quoting. Above all, none of it makes any
+  difference as we have clear evidence to the contrary.
+
+  Regards
+  Kripa ‎
+  ‎
+  VyasayaVishnuroopayaVyasaroopayaVishnave
+  NamovaiBrahmanidhayeVasishtayanamonamaha
+   Original Message 
+  From: V
+  Subrahmanian
+  Sent: Saturday 7 January 2017
+  1:35 AM
+  To: Kripa Shankar; A discussion
+  group for Advaita Vedanta
+  Subject: Re:
+  [Advaita-l] Dashavataras as per Harivamsha
+
+
+  On Jan 7,
+  2017 1:18 AM, "Kripa Shankar" <kripa.shankar.0294 at gmail.com>
+  wrote:
+  >
+  > Namaste
+  Subramanian,
+  >
+  > To
+  my knowledge, there is no mention of Buddha at all in the
+  Mahabharata.
+  >
+  >
+  Almost in every chapter of the Mahabharata, the Vedic
+ yajnas
+  are given utmost importance as can be seen in the Gita as
+  well. Further, the definition of Ahimsa is starkly
+ different
+  in the Vedas /MB. For eg, harsh speech is also considered
+ as
+  himsa as per Shastras. So Vishnu getting up from yoga
+ nidra
+  and donning an avatara to oppose everything that is held
+  sacred in the Vedas is just not sane.
+  >
+
+  Here
+  there is a proposal for two Buddhas:
+
+  http://www.stephen-knapp.com/were_there_two_buddhas.htm
+
+  Madhvas believe in Buddha
+  avatars.
+
+  Regards
+  vs
+
+  > 
+  > t
+
+
+  _______________________________________________
+  Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+  http://blog.gmane.org/gmane.culture.religion.advaita
+
+  To unsubscribe or change your
+  options:
+  http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+
+  For assistance, contact:
+  listmaster at advaita-vedanta.org
+

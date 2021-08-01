@@ -1,0 +1,37 @@
++++
+title = "104 KAMESWARARAO MULA"
+date = "2019-10-25"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2019-October/053453.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2019-October/053453.html)
+
+DearMembers,
+What’syourZodiacSignandBirthStar.AreyoukeentoknowwhichplantsuitsyourRaasiandJanmaNakshatra.Ifyouarereallya“NatureEnthusiast”,thenvisitthe“Nakshatra-RaasiVanam”developedbytheforestwingofTTDbothatTirumalaandinTirupati.
+
+These“AstroGardens”havebeenattractingthepilgrimdevoteesandlocalsinTirumalaatParuvetaMandapamandalsoatAlipiriinTirupati.
+
+AccordingtoourHinduDharma,thereare12ZodiacSignsand27starsinourconstellationstartingfromAswinitoRevathi.Theellipticallystructuredzodiac,canbedividedintotwelvehouseswithfurthersubdivisionofthesameintotwentysevennakshatrasorstarconstellation.
+Whenapersonisborn,thepresenceoftheSuninthestardecidestheJanmaNakshatraoftheperson
+
+ZodiacSignNameoftheplantortreeIndianname
+
+1.AriesPterocarpussantalinusRedSanders2.TaurusAlstoniascholarisSapthaparna
+3.GeminiArtocarpusJackFruit(panasa)4.CancerButeamonospermaPalasa5.LeoStereospermumBadari6.VirgoMangiferaMango7.LibraMimusopsBakula8.ScorpioAcaciaKhadira9.SagittariusFicusreligiosaAsoka10.CapricornDalbergiaSimsupa11.AquariusProsopisSami12.PiscesFicusbenghalensisMarri
+
+SUNRISESTARS:StarScientificnameofRelatedIndianName
+
+Plant/Tree:1.JyestaCasuarinaequisitifolia(Sarugudu)2.AnuradhaMimospoelangi(Vakula)
+3.VisakhaFlucourtis(Vikamkata)4.SwathiTerminaliaarjuna(Arjuna)5.ChittaAeglemarmelos(Bilwa)6.HastaSpondias(Ambasta)7.UttaraphalguniFicusracemosa(Juvvi)8.PurvaphalguniButea(Palasa)9.MakhaSoymidafebrifuga(Rohini)10.AsleshaPlumeria(Champa)11.PushyamiFicusreligiosa(Aswatha)12.PunarvasuBamboo(Vamsee)13.ArdhraAcquilaria(Krishna)
+14.MrugasiraAcaciasundra(Khadira)
+
+SUNSETSTARS:15.RohiniJamun(Jamboo)16.KrittikaFicusracemosa(Atti)17.BharaniEmblica(Dhatri)18.AswiniStrychnos(Karaskara)19.RevathiMadhuka(Vishpa)20.UttarabhadraOleander(Ganneru)21.PurvabhadraNimbus(Neem)22.SatabhishamAnthocephalus(Kadamba)
+23.DhanistaProsopis(Sami)24.ShravanaCalotropisgigantia(Arka)25.UttarashadaArtocarpus(Jack)26.PurvashadaSaraca(Ashoka)27.MoolaMangiferaindica(Mango)
+
+InformationfromkindcourtesyofTTDprogrammeintheirchannel:
+
+https://youtu.be/TC-IZuLGTb4
+
+SriGuruPadaravindarpanaMastu
+
+Kameswara

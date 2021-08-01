@@ -1,0 +1,77 @@
++++
+title = "92 V Subrahmanian"
+date = "2017-04-12"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-April/044992.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-April/044992.html)
+
+Thanks for posting this.
+
+subbu
+
+2017-04-12 13:08 GMT+05:30 Venkata sriram P via Advaita-l <
+advaita-l at lists.advaita-vedanta.org>:
+
+> Namaste,
+>
+> This is a hymn of 108 names composed by Brahmasri R.Krishnaswami Iyer which
+> is a praise on the great Jivanmukta of Sringeri Shri.Chandrasekhara Bharati
+> Mahaswamigal.
+>
+> The specialty is that all these 108 epithets are taken from Bhagavat Gita
+> that describe attributes of Jnani.  Thus, these are equally attributed
+> to Shri.Chandrasekhara Bharati Swamigal of Sringeri.
+>
+> गीतासारगुर्वष्टोत्तरशतनाम स्तोत्रम्
+> ****************************************
+>
+> प्रशान्तात्मा विगतभीर्योगी विगतकल्मषः ।
+> योगयुक्तो विशुद्धात्मा यतचित्तेन्द्रियक्रियः ॥
+> स्वकर्मनिरतः शान्तो धर्मात्माऽमितविक्रमः ।
+> मुक्तसङ्गोऽनहंवादी धृत्युत्साहसमन्वितः ॥
+> स्थिरबुद्धिरसंमूढो जितात्मा विगतस्पृहः ।
+> सर्वसंकल्पसंन्यासी भक्तः सङ्गवर्जितः ॥
+> विविक्तसेवी लघ्वाशी यतवाक्कायमानसः ।
+> एकाकी योगसंसिद्धो योगारूढोऽपरिग्रहः ॥
+> ध्यानयोगपरो मौनी स्वस्थः संशुद्धकिल्बिषः ।
+> वीतरागभयक्रोधः स्थितधीर्विगतज्वरः ॥
+> सर्वारंभपरित्यागी कृत्स्नवित कृत्स्नकर्मकृत ।
+> यतेन्द्रियमनोबुद्धिर्मुनिमोक्षपरायणः ॥
+> यदृच्छालाभसंतुष्टो द्वन्द्वातीतो विमत्सरः ।
+> अनिकेतः स्थिरमतिर्महात्मा दृढनिश्चयः ॥
+> निर्द्वन्दो नित्यसत्तवस्थो निर्योगक्षेम आत्मवान ।
+> निर्ममो निरहंकारः समदुःखसुखः क्षमी ॥
+> निराशीर्यतचित्तात्मा त्यक्तसर्वपरिग्रहः ।
+> अनपेक्षः शुचिर्दक्ष उदासीनो गतव्यथः ॥
+> ज्ञानविज्ञानतृप्तात्मा कूटस्थो विजितेन्द्रियः ।
+> निस्त्रैगुण्यो वशी ज्ञानी समलोष्टश्मकाञ्चनः ॥
+> तुल्यप्रियाप्रियो धीरस्तुल्यनिन्दात्मसंस्तुतिः ।
+> त्यागी सत्वसमाविष्टो मेधावी छिन्नशंशयः ॥
+> विद्वानात्मरतिर्मुक्तो नित्यतृप्तो निराश्रयः ।
+> अन्तःसुखोऽन्तरारामः संतुष्टः सर्ववित्पुमान ॥
+> सर्वभूतात्मभूतात्मा तत्ववित्समदर्शनः ।
+> गतिर्भर्ता प्रभूः साक्षी निवासः शरणं सुहृत् ॥
+> आत्मतृप्तो गुरुः पूज्यो गरीयान पुरुषोत्तमः ।
+> ब्रह्मभूतः प्रसन्नात्मा कृतकृत्यो विराजते ॥
+> स्थितप्रज्ञो गुणातीतो लोकानुग्रहकाम्यया ।
+> शारदायाश्चरा मूर्तिः श्रृंङ्गशैले जगत्गुरुः॥
+> गीतामध्यगतैरेव ग्रथितेयं पदैः शुभैः ।
+> आचार्येन्द्रपदांभोजे भक्त्या माला समर्प्यते ॥
+> वक्तुं ब्रह्मविदां श्रेष्ठं मनोवाचामगोचरम ।
+> कथमन्याः समर्थाः स्युर्वचो भागवतीर्विना ॥
+>
+> ***इति गीतासारगुर्वष्टोत्तरशतनामस्तोत्रं संपूर्णम् ॥****
+>
+> Regs,
+> Sriram
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>

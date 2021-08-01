@@ -1,0 +1,4 @@
++++
+title = "Vakyartha on 'Tattvamasi'"
+
++++

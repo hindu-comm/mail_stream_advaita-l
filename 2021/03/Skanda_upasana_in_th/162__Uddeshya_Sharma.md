@@ -1,0 +1,137 @@
++++
+title = "162 Uddeshya Sharma"
+date = "2021-03-21"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2021-March/056418.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2021-March/056418.html)
+
+Respected sir, you talked about skanda upasana in Ramayan which has already
+been discussed. Could you share the link for that?
+
+Also, it's quite intriguing to look at how the hymn starts by linking
+Skanda to Brahman itself. It fits in well with the idea conveyed by the
+texts  like Shankara Samhita where Lord Shiv talks of skanda in similar
+terms. Describing him as being one as Same with him and simultaneously also
+being born of him. The initial two words fitting quite well here. It also
+follows from puranic and local traditions that one's own soul is born as
+the son: the Brahman being born from the brahman itself and staying Brahman
+in attributes too. Puranmidam Purnamadah.
+
+Thank you.
+
+Your humble follower
+
+SHIV SHIV
+
+On Sat 20 Mar, 2021, 7:21 PM V Subrahmanian via Advaita-l, <
+advaita-l at lists.advaita-vedanta.org> wrote:
+
+> On an earlier occasion we had seen that the Valmiki Ramayana speaks about
+> the Skanda upasana and the attaining of the Skanda Saalokya as fruit
+> thereof.  In the Mahabharata too there is such a statement:
+>
+> महाभारतम्-03-आरण्यकपर्व-233
+> https://sa.wikisource.org/s/215
+>
+> In this chapter is described the birth of Skanda and a stuti addressed to
+> him:
+>
+> The stuti praises Skanda as Para Brahman with such epithets as 'sahasra
+> shira, sahasra paat, sahasra netra, sarva vyaapi, being the para and apara,
+> being the Kaala, Time.   At the end of the stuti it is stated:
+>
+>   धनमायुर्यशो दीप्तं पुत्राञ्शत्रुजयं तथा।
+> स पुष्टितुष्टी संप्राप्य *स्कन्दसालोक्यमाप्नुयात् ।*।
+>
+> *मार्कण्डेय उवाच।* 3-233-10x
+> स्तोष्यामि देवैर्ऋषिभिश्च जुष्टं
+> शक्त्या गुहंनामभिरप्रमेयम्।
+> षडाननं शक्तिधरं सुवीरं
+> निबोध चैतानि कुरुप्रवीर ।। 3-233-10a
+> 3-233-10b
+> 3-233-10c
+> 3-233-10d
+> ब्रह्मण्यो वै ब्रहमजो ब्रह्मविच्च
+> ब्रह्मेशयो ब्रह्मवतांवरिष्ठः।
+> ब्रह्मप्रियो ब्राह्मणसर्वमन्त्री
+> त्वं ब्रह्मणां ब्राह्मणानांच नेता ।। 3-233-11a
+> 3-233-11b
+> 3-233-11c
+> 3-233-11d
+> स्वाहा स्वधा त्वं परमं पवित्रं
+> मन्त्रस्तुतस्त्वं प्रथितः षडर्चिः।
+> संवत्सरस्त्वमृतवश्च षड्वै
+> मासार्धमासाश्च दिनं दिशश्च ।। 3-233-12a
+> 3-233-12b
+> 3-233-12c
+> 3-233-12d
+> त्वं पुष्कराक्षस्त्वरविन्दवक्रः
+> सहस्रचक्षोसि सहस्रबाहुः।
+> त्वं लोकपालः परमं हविश्च
+> त्वं भावनः सर्वसुरासुराणाम् ।। 3-233-13a
+> 3-233-13b
+> 3-233-13c
+> 3-233-13d
+> त्वमेव सेनाधिपतिः प्रचण्डः
+> प्रभुर्विभुश्चाप्यथ शक्रजेता।
+> सहस्रपात्त्वं धरणी त्वमेव
+> सहस्रतुष्टिश्च सहस्रभुक्व ।। 3-233-14a
+> 3-233-14b
+> 3-233-14c
+> 3-233-14d
+> सहस्रशीर्षस्त्वमनन्तरूपः।
+> सहस्रपात्त्वं दशशक्तिधारी।
+> गङ्गासुतस्त्वं स्वमतेन देव
+> स्वाहामहीकृत्तिकानां तथैव ।। 3-233-15a
+> 3-233-15b
+> 3-233-15c
+> 3-233-15d
+> त्वं क्रीडसे षण्मुख कुक्कुटेन
+> यथेष्टनानाविधकामरूपी।
+> दीक्षाऽसि सोमो मरुतः सदैव
+> धर्मोऽसि वायुरचलेन्द्र इन्द्रः ।। 3-233-16a
+> 3-233-16b
+> 3-233-16c
+> 3-233-16d
+> सनातनानामपि शाश्वतस्त्वं
+> प्रभुः प्रभूणामपि चोग्रधन्वा।
+> ऋतस्य कर्ता दितिजान्तकस्त्वं
+> जता रिपूणां प्रवरः सुराणाम् ।। 3-233-17a
+> 3-233-17b
+> 3-233-17c
+> 3-233-17d
+> सूक्ष्मं तपस्तत्परमं त्वमेव
+> परावरज्ञोसि परावरस्त्वम्।
+> धर्मस्य कामस्य परस्य चैव
+> त्वत्तेजसा कृत्स्नमिदं महात्मन् ।। 3-233-18a
+> 3-233-18b
+> 3-233-18c
+> 3-233-18d
+> व्याप्तं जगत्सर्वसुरप्रवीर
+> शक्त्या मया संस्तुत लोकनाथ।
+> नमोस्तु ते द्वादशनेत्रबाहो
+> अतः परं वेद्मि गतिं न तेऽहम् ।। 3-233-19a
+> 3-233-19b
+> 3-233-19c
+> 3-233-19d
+> स्कन्दस्य य इदं विप्रः पठेज्जन्म समाहितः।
+> श्रावयेद्ब्राह्मणेभ्यो यः शृणुयाद्वा द्विजेरितम् ।। 3-233-20a
+> 3-233-20b
+> धनमायुर्यशो दीप्तं पुत्राञ्शत्रुजयं तथा।
+> स पुष्टितुष्टी संप्राप्य स्कन्दसालोक्यमाप्नुयात् ।। 3-233-21a
+> 3-233-21b
+> ।। इति श्रीमन्महाभारते अरण्यपर्वणि
+> मार्कण्डेयसमास्यापर्वणि त्रयस्त्रिंशदधिकद्विशततमोऽध्यायः ।। 233 ।।
+>
+> Om Tat  Sat
+> _______________________________________________
+> Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>

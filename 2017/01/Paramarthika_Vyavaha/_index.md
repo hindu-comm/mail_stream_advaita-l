@@ -1,0 +1,4 @@
++++
+title = "Paramarthika/Vyavaharika/Parib"
+
++++

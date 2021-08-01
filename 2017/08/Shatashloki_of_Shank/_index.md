@@ -1,0 +1,4 @@
++++
+title = "Shatashloki of Shankaracharya "
+
++++

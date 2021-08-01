@@ -1,0 +1,23 @@
++++
+title = "178 Jaldhar H. Vyas"
+date = "2019-05-10"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2019-May/052245.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2019-May/052245.html)
+
+On Fri, 10 May 2019, sreenivasa murthy via Advaita-l wrote:
+
+> Do you find any thing in my understanding,which I have shared in 
+> this forum for many years , which is not in tune with the 
+> genuine teaching of Vedanta as found in Sri Shankara's commentaries 
+> leading to Atmajnana ?Please tell me .
+
+Many of the things you have written are fine (which is why I continue to 
+tolerate your presence here) but there is much else in "the genuine 
+teaching of Vedanta as found in Sri Shankara's commentaries" which you 
+omit.  This will give a distorted picture of what Advaita Vedanta actually 
+asks of us.
+
+-- 
+Jaldhar H. Vyas <jaldhar at braincells.com>

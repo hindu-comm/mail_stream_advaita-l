@@ -1,0 +1,28 @@
++++
+title = "177 Ravi Kiran"
+date = "2017-06-20"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/045525.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/045525.html)
+
+On Tue, Jun 20, 2017 at 5:08 PM, V Subrahmanian <v.subrahmanian at gmail.com>
+wrote:
+
+> Advaita has no problem with such shruti passages. We do not accept vikara
+> for Brahman but only vivarta. Ajaayamaano bahudhaa vijaayate. Purusha Eva
+> idam sarvam...Atmaivedam/Brahmaivedam sarvam, idam sarvam yadayamatma,
+> etc.
+>
+> When we say yad rajatam saa shuktih, it is baadhaayam
+> saamaanaadhikaranyam. The shell alone appears as silver. Brahman alone
+> appears as everything. No taratamya as uccha nicha etc. That is what the
+> shve and cited paippalada shrutis teach.
+>
+> vs
+>
+>
+>
+>
+>
+Yes. Thanks for your comments, Subbu Ji

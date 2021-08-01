@@ -1,0 +1,4 @@
++++
+title = "Shankaracharya on 'Guru'"
+
++++

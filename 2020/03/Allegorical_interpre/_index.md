@@ -1,0 +1,4 @@
++++
+title = "Allegorical interpretation of "
+
++++

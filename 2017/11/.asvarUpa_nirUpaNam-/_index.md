@@ -1,0 +1,4 @@
++++
+title = "'Svarūpa nirūpaṇam' - Shankara"
+
++++

@@ -1,0 +1,4 @@
++++
+title = "Shankaracharya dispute settled"
+
++++

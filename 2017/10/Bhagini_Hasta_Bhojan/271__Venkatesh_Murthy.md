@@ -1,0 +1,62 @@
++++
+title = "271 Venkatesh Murthy"
+date = "2017-10-21"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-October/047296.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-October/047296.html)
+
+Namaste
+
+What to do if a person has no sisters? Then he can take food in cousin
+sister's house. But he should not eat in his own house food cooked by his
+wife. He can also eat in friend's house treating friend's wife as sister.
+
+On Sat, Oct 21, 2017 at 8:53 AM, KAMESWARARAO MULA via Advaita-l <
+advaita-l at lists.advaita-vedanta.org> wrote:
+
+> Dear Friends,                         Today many people celebrate as
+> 'Bhagini hasta Bhojan' as it is a boon from Lord Yama Dharma Raja that
+> those sister who offers food to their brothers on this day will not have
+> the fear of death. The story goes like this is that Yama is the son of Lord
+> surya and Yamuna is the daughter. Since Yamuna always walks in front and
+> never comes back and it is symbol of time also. Yama is the Lord of death
+> who grants the death so easily in time with out any difficulty as a duty.
+> Once it happened that on this Sukla Dwitiya of the Kartiki, Yamuna offered
+> bhojan to Yama. The Lord of Justice, the Yama was so pleased for her
+> sister's affection and granted the boon that who ever offer bhojan to their
+> brothers on this particular day will have the blessings from me that they
+> will not have 'Apa Mrutyu Bhayam'.
+> Why the sister's are called as Bhagini's is that as they were travelling
+> in same time with us little forward or backward, but they are sharing the
+> same 'bhagam' of the mother yoni from which both arrived. It is the Karmic
+> bondage only , not like that you wanted some body as sister or you wanted
+> somebody as brother. or you have not made any equation that you want to
+> become brother & she wants to become sister.Sister's & Brother's share
+> their karma or Karma Phalawith regardsKameswara Rao Dr. M.Kameswara
+> RaoSenior Scientist, P&T Division,Defence Research & Development
+> Establishment, Ministry of Defence, Govt of IndiaJhansi Road,
+> Gwalior-474002,IndiaPh 91-(0)751-2390368(0) Imp Note:The information
+> contained in this electronic message and any attachments to this message
+> are intended for the exclusive use of the addressee(s) and may contain
+> proprietary, confidential or privileged information. If you are not the
+> intended recipient, you should not disseminate, distribute or copy this
+> e-mail. Please notify the sender immediately and destroy all copies of this
+> message and any attachments if any.
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
+
+
+
+-- 
+Regards
+
+-Venkatesh

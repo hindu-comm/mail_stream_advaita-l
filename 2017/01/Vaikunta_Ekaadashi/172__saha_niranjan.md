@@ -1,0 +1,31 @@
++++
+title = "172 saha niranjan"
+date = "2017-01-08"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-January/043950.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-January/043950.html)
+
+Dear Sadanandaji!
+Dandavat! Helpful exposition, and I'm observing it more rigorously (both fasting and mananam/maunavrata) after reading it.
+
+Sincerely,
+Niranjan Saha,
+IIT (ISM) Dhanbad 
+
+    On Sunday, 8 January 2017 11:35 AM, kuntimaddi sadananda via Advaita-l <advaita-l at lists.advaita-vedanta.org> wrote:
+
+
+ Today is VaikunTa Ekaadashi: Today is VaikunTa Ekaadashi, special day for vaishanavaites.The significance of VaikunTa is discussed in Padma puraaNa. Dhanur maasa or Margasiri maasa Sukla Paksha Ekadasi day isconsidered as the Vaikunta Ekadasi day. It is belied that the gates of VaikunTaare open today and anybody can enter. Another story is today Lord Vishnu killedthe demon Mura. Mura stands for tamasic and rajasic gunas, and killing meansessentially purification of the mind using Ekaadashi – that involves fasting.Ekadashi means ten plus one that is eleven. The eleventh day is considered asprecious, particularly the eleventh day during this Margasira maasam (thisDec-Jan month), which is precious particularly for Vaishnavaites. They get up early and chant pasurams ofGodadevi or Andal during this month. Myfather has translated these into Telugu with elaborate commentary as MELINOMU whichwas published by TTD. Ekadashi that comes in this month, therefore, is also veryprecious. The ten plus one, ekaadashi, involves five sense organs orjnaanedriyas, and five organs of action or karmendrias, and the mind. Fastingis not just food-wise, but withdrawing from the indulgence in the sense objectsoutside by withdrawing the five senses and five karmedriyas, and turning themtowards the Lord. When one turns inwards,Vaikunta doors will be open. However to enter inside one has to havepure saatvic mind and therefore Muras dwelling inside has to killed. By fasting or controlling the ten (five senseorgans and organs of action) and most importantly withdrawing the mind andturning its attention to Vishnu helps. Vishnu is the one who pervadeseverything as the very essence – vyaapakatvaat vishnuH. His abode is alwaysopen for those who have prepared their mind by fasting or purifying the mind. Krishnasays in Geeta – upadraShTaanumanthaa ca bhartaa bhokta maheswaraH – He is therevery close to the heart, waiting when we are ready to inter. For the preparedminds, once entered they can remain there – yad gatvaa na nivartante tat dhaamaparamam mama – having entered into my abode one does not have to go back.saadRisyam, saameepyam and saayujyam, vision of the Lord dwelling inside,approaching the Lord with purified mind and becoming one with the Lord arestages described. Merging with the infinite implies that having clearunderstanding that one is infinite by nature. Hence Krishna says further in theabove sloka – parmaatmeti chaapyuktaH dehesmin puruShaH paraH – asmin dehepurshaH –the self that is indweller in this body itself, that which is supreme.That recognition becomes entering the abode of the Lord Vishnu and once understoodthat knowledge will never get lost. The mind that is well prepared as Shree Andal does, as shesays in her paasurams, that is after purification process discussed in the earlierstanzas, is now approaching the Lord for final merging with the Lord to becomeone with the Lord. Let us all turn our minds to the vision of the Lord, ourcommitment and devotion itself becomes means to open the gates of Vaikunta, theinner sanctum santorum where there is none other than the Lord resides. He canbe seen only in the light, glowing all thetime – the akhanda aakaara jyoti, the knowledge that reveals the Lord. Hari Om!Sadananda 
+_______________________________________________
+Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+http://blog.gmane.org/gmane.culture.religion.advaita
+
+To unsubscribe or change your options:
+http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+
+For assistance, contact:
+listmaster at advaita-vedanta.org
+
+
+

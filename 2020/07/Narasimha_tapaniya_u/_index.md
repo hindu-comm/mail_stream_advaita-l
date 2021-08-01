@@ -1,0 +1,4 @@
++++
+title = "Narasimha tapaniya upanishad"
+
++++

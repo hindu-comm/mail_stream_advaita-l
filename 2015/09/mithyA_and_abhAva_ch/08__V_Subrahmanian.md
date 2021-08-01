@@ -1,0 +1,105 @@
++++
+title = "08 V Subrahmanian"
+date = "2015-09-03"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2015-September/039406.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2015-September/039406.html)
+
+On Wed, Sep 2, 2015 at 1:24 PM, Venkatesh Murthy via Advaita-l <
+advaita-l at lists.advaita-vedanta.org> wrote:
+
+> Namaste,
+>
+>
+>
+> Vaadiraaja has asked this interesting question to Advaitis. Then he is
+> making allegation Advaiti behaviour is like killing his own mother.
+> रजतार्थी भ्रमे जाते तदैव तदपेक्षया ।
+> तत्र गत्वा बाधकं च तत्काले प्रतिपद्यते ॥
+> A person desiring silver goes to find it and gets the Shell Silver
+> Illusion. Examining the Shell Silver the Illusion is cancelled then
+> and there itself.
+> तदनर्थी भ्रमे जातेऽप्युपेक्ष्य स्वगृहं गतः ।
+> बाधं च नैव जानीते को विशेषस्तयोर्वद ॥
+> A person not desiring silver and seeing the Shell Silver will ignore
+> it and go home. For him there is no cancellation of Shell Silver
+> Illusion. Tell me what is the difference between the two?
+>
+> Vaadiraaja is making this example. There are two persons A and B. A is
+> interested in getting silver. If he sees Shell Silver Illusion he will
+> examine it and find it is not silver but Ilusion Silver only. It is
+> Pratibhasika Silver. Therefore his Illusion has ended. Person B is not
+> at all interested in silver even if it is lying in front of him. He
+> will see the Shell Silver Illusion. But he will not even examine it
+> because he is not interested. He ignores the Shell Silver and goes
+> home. For him there is no Illusion cancellation.
+>
+> What is the difference between the two? Vaadiraaja is saying Advaiti
+> will simply say there is no difference. Because Pratibhasika and
+> Vyavaharika are the same for him. Person A has Vyavaharika knowledge
+> it is not Silver but Shell. But Shell is also Illusion only. It is not
+> Brahman. Person B has Pratibhasika knowledge of Silver. Both Shell and
+> Silver are Illusions only. There is no difference between them. This
+> is the Advaiti argument. If you take there are only two Sattas
+> Paramarthika and Pratibhasika  this will be the result. But if you
+> take three Sattas Paramarthika, Vyavaharika and Pratibhasika the
+> Advaiti will say Person A has Vyavaharika knowledge and Person B has
+> Pratibhasika knowledge. There is a difference between them here.
+>
+> अनिवर्त्य महाभ्रान्तिजनकोन्मादरोगवान् ।
+> सर्वोपकारिवेदादेर्हीनादपि च हीनताम् ।
+> यो ब्रूते वैदिकच्छद्मी हन्ति मातरमेव सः ।
+> विश्वापकारकरणं तस्य लीलेति मे मतिः ॥
+>
+
+
+Actually, in Dvaita, the Only Swatantra Satyam is Brhaman (Viṣṇu) and
+everything other than Brahman enjoys only paratantra satyatvam, dependent
+reality.  Veda too, thus, comes under paratantra satyam.  P.S is something
+that does not have a reality of its own; it is forced to 'derive' reality
+from Brahman.  The only example possible for this phenomenon is the
+rope-snake.  While the advaitin openly says that the Veda is only
+vyavaharika satya (paratantra satya), the Dvaitin does not openly say
+that.  He accepts veda as paratantra satya and insists that it is 'as real
+as Brahman', an argument that no one will take.
+
+Thus, by according a lower level of satyatvam, a second-class citizen
+status, to Veda, the Dvaitin has no right to accuse the advaitin on this
+count.  The   यो ब्रूते वैदिकच्छद्मी हन्ति मातरमेव सः  accusation of Sri
+Vadiraja rebounds on himself. By according a non-swatantra satyam status to
+Veda and swearing by the veda makes him a vaidika cchadmī even more than
+the advaitin who openly admits that veda has only vyavaharika satyam.  If
+he says that within paratantra satya, entities like Lakshmi, veda, vāyu
+have a higher status, then the advatin also has the response: within
+vyavaharika, veda, guru, upadesha, sādhana, realization, etc have a higher
+status.
+
+Thus, there is no strength in Sri Vādiraja's objection.
+
+regards
+vs
+
+
+
+> The Advaiti is a maniac with a mental disease from the Uncancellable
+> Great Illusion. He has the disguise of  having a Veda base. The Vedas
+> are doing good to all but he is saying they have a very poor status.
+> It is like he is killing his own mother. I feel doing harm to the
+> world is his Leela.
+>
+> Vaadiraaja has not understood Advaita theories. In dreamless sleep
+> will Vaadiraaja see his mother? No. Will he see the world objects and
+> people of the world in dreamless sleep? No. Can we say he has killed
+> his mother in dreamless sleep? No. Can we say he has done harm to the
+> world in dreamless sleep? No. Will he hear Vedas in dreamless sleep?
+> No. Then why is he blaming Advaitis of killing mother and harming the
+> world? Because he has not even understood dreamless sleep. First he
+> must understand dreamless sleep and then only he can understand
+> Moksha. He is very far from understanding Moksha.
+>
+> Taking Vyavaharika Illusory objects to be real is a bigger mental
+> disease than realization of the objects unreality. Those people are
+> the maniacs because they search for happiness in worldly objects
+> thinking they are real.
+>

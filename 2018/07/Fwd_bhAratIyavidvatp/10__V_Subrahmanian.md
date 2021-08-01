@@ -1,0 +1,23 @@
++++
+title = "10 V Subrahmanian"
+date = "2018-07-01"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2018-July/049877.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2018-July/049877.html)
+
+Emotional commentary in Sanskrit when witnessing the glory of Kailash
+parvat at Manasarovar.
+
+https://www.facebook.com/subrahmanian.vaidyanathan/posts/2172818482731501
+
+regards
+subrahmanian.v
+
+-- 
+You received this message because you are subscribed to the Google Groups
+"भारतीयविद्वत्परिषत्" group.
+To unsubscribe from this group and stop receiving emails from it, send an
+email to bvparishat+unsubscribe at googlegroups.com.
+To post to this group, send email to bvparishat at googlegroups.com.
+For more options, visit https://groups.google.com/d/optout.

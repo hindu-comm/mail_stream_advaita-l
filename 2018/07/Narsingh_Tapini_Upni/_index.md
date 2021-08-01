@@ -1,0 +1,4 @@
++++
+title = "Narsingh Tapini Upnishad"
+
++++

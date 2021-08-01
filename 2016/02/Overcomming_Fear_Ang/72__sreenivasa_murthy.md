@@ -1,0 +1,34 @@
++++
+title = "72 sreenivasa murthy"
+date = "2016-02-09"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2016-February/040223.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2016-February/040223.html)
+
+Dear Sri Kameshwararao Mula,
+Chandogya Upanishad, in the mantra 7-1-3 gives the solution to this problem.The mantra declares " tarati ShOkaM Atmaviditi || ". This alone is The Vedanta perspective.
+With warm and respectful regards,Sreenivasa Murthy.
+
+
+      From: KAMESWARARAO MULA via Advaita-l <advaita-l at lists.advaita-vedanta.org>
+ To: A. Discussion Group for Advaita Vedanta <advaita-l at lists.advaita-vedanta.org> 
+ Sent: Tuesday, 9 February 2016 8:39 AM
+ Subject: [Advaita-l] Overcomming Fear & Anger - Advaita perspective
+
+Dear Friends,            Many of us are trying to cope with pain and fear by trying to ignore it, then hope with disappear and in reality this is not the right approach. Advaita addresses this in a different way as per krishna in bhagavadgita where as western mythology tells us we can boldly confront fears & Obstacles in order to overcome them. How ever Eastern traditions gives a different path by encouraging whenever possible courageously by understanding and friendly nature.For this there are several examples in history. One among was the story of King sakka from buddhist tradition as the details of this story can be obtained form any where , it is an history. Here I am writing the moral of that story which goes like this:        It suggests that one should have unexpected behaviour i.e khayal life style, finding happiness in all the activities one does, Kind, adventurous, Often playful approach to many issues gives us the capacity for alternative solutions rather than immediately reacting to the issue with fear that some thing may happen.Another point which is followed by many Jains is " Uttam Kshama", If some thing happening which is not in concurrence with your will, then just leave that issue rather than worrying that or giving a thought to that. I would like to give one of the finest example and experience happened in my work life which made me strong.The results can really surprise us, we could end up realising then enemy is weaker than we imagined however there are some hidden things which we did not understand well. We could uncover and realise the past hurts, coming to an clear understanding for the roots of our habits (Roots on high). By finding out gentleness from that may give strength.One gets a direction by seeing the inner wisdom which come from deep trust.Source: Speaking Tree, Times, Author: M.TheophillAny learned members may contribute their views.
+My example: I worked with one of my senior colleague for 7 years. Out of all the years, he used to pinch with his sharp words on daily basis and at the end of the day he proves me that I am nothing and he is boss for me always. Apart from this, He wants to read my mind daily and he used to say Circastically before one day for the activities which i am going to perform on the next day with witty nature. He used to find lot of happiness by showing me down or finding faults in me, actually in reality it is not, that time has given that opportunity to him. I always used to see him as a human being with his 'anga vaikalya' and respects him. By doing this, I might have lost the race and many materilastic things but did not loose my self as I remains the same what I am. Going to little deeper in this, On one occasion a particular thing should happen, but by chance that did not happened on that day due to absence of person. But he made a story of that that it happened by making a full coverage. After that the absented person told me the reality. The moral which I have taken from this is, he does all activities in fear as he has no anger at all.
+Karma is the Only solution to many of the problems in life, one has to face it on any day as there is no escape.
+with regardsKameswara Rao
+_______________________________________________
+Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+http://blog.gmane.org/gmane.culture.religion.advaita
+
+To unsubscribe or change your options:
+http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+
+For assistance, contact:
+listmaster at advaita-vedanta.org
+
+
+

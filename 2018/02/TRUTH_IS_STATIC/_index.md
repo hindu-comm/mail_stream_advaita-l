@@ -1,0 +1,4 @@
++++
+title = "TRUTH IS STATIC"
+
++++

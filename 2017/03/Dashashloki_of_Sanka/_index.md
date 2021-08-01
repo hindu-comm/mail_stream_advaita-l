@@ -1,0 +1,4 @@
++++
+title = "Dashashloki of Sankara"
+
++++

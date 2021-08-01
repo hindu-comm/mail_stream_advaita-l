@@ -1,0 +1,40 @@
++++
+title = "146 Raghav Kumar Dwivedula"
+date = "2019-11-05"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2019-November/053494.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2019-November/053494.html)
+
+Namaste
+The Advaitasharada team has done a monumental job. They deserve our
+gratitude for such a valuable contribution to 21st century Advaita studies.
+Om
+Raghav
+
+
+On Mon, 4 Nov, 2019, 8:44 PM V Subrahmanian via Advaita-l, <
+advaita-l at lists.advaita-vedanta.org> wrote:
+
+> https://advaitasharada.sringeri.net/search/index
+>
+>  With great joy we observe that the Advaitasharada resource has  got this
+> additional feature that 'the entire corpus of texts included in
+> Advaitasharada can be searched in one go for words'.  Just to test  its
+> working I gave 'भोक्ता' in the window and clicked on 'सर्वम्' to have the
+> word searched in the entire corpus. I got 151 results spanning the very
+> many texts there.   We thank the Sriranga Technologies team for this very
+> user-friendly upgrade.
+>
+> regards
+> subbu
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>

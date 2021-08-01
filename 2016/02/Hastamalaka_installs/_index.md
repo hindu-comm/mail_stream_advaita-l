@@ -1,0 +1,4 @@
++++
+title = "Hastamalaka installs Gopinatha"
+
++++

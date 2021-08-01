@@ -1,0 +1,21 @@
++++
+title = "289 Anand Hudli"
+date = "2016-09-12"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2016-September/042563.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2016-September/042563.html)
+
+I would like to point out that "midday" may or may not be exactly 12 Noon
+Standard Time at a given place. We need to know the sunrise and sunset for
+the place and calculate the daylight duration, half of which is then to be
+added to the sunrise time to arrive at the midday time. For instance, the
+sunrise for Bengaluru is 6:09 AM IST and sunset is 6:22 PM tomorrow. The
+daylight duration would be the time period between sunrise and sunset,
+which in this case is 12 hours 13 minutes. Half of this is 6 hours 6.5
+minutes. Adding 6 hours 6.5 minutes to the sunrise time 6:09 AM gives us
+12:15:30 PM as the  midday time. Obviously, this time could change from one
+date to another, depending on the sunrise and sunset times at the place on
+the given date.
+
+Anand

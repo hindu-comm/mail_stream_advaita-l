@@ -1,0 +1,4 @@
++++
+title = "Upanishadic Svarupa Lakshanam "
+
++++

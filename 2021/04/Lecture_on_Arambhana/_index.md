@@ -1,0 +1,4 @@
++++
+title = "Lecture on ArambhanadhikaraNa"
+
++++

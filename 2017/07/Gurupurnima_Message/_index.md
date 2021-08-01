@@ -1,0 +1,4 @@
++++
+title = "Gurupurnima Message"
+
++++

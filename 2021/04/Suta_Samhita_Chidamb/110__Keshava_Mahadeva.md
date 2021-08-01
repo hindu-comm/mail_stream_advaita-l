@@ -1,0 +1,22 @@
++++
+title = "110 Keshava Mahadeva"
+date = "2021-04-04"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2021-April/056473.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2021-April/056473.html)
+
+https://youtu.be/nmKM85Osb1U
+
+This is the PART 2 lecture on Chidambara Nataraja Stuti which comes in the
+Suta Samhita Mukti Khanda Chapter 9 Verses (57-72). Suta Samhita is one of
+the foremost of all scriptures given by Suta Maharishi. It is described as
+the essence of all the Vedas & Upanishads. This Stuti is sung by all the
+Rishis, Devas including Brahma, Vishnu & Indra, Asuras, etc. to Lord Shiva
+at Chidambaram. An interesting thing is, this Stuti contains the very names
+of Lord Shiva as it is is coming from the Shata Rudriyam 1st, 2nd & 3rd
+Anuvaka. Suta Samhita Mukti Khanda ends with this Stuti by saying, one who
+chants or hears this will have the grace of Mahadeva and attain the highest
+Mukti.
+
+This lecture gives a description of the entire Stuti in detail.

@@ -1,0 +1,4 @@
++++
+title = "Shankara Jayanti - Stroudsburg"
+
++++

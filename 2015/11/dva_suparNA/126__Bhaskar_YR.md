@@ -1,0 +1,51 @@
++++
+title = "126 Bhaskar YR"
+date = "2015-11-13"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2015-November/039713.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2015-November/039713.html)
+
+It is the identification with pleasure and pain (and all the other pairs of
+dualities) which has made the first bird suffer.  But within the living body there is also calm and freedom which is represented by the second bird and to recognize this will eventually lead the embodied 'I' beyond limited identification with a body.
+
+praNAms
+Hare Krishna
+
+visheshO hi bhavati shAreera (jeeva) parameshwarayOH, ekaH kartA bhOktA dharmAdharmasAdhanaH sukhadukhAdimAmshcha...ekastadvipareetaH, apahatapApmatvAdiguNa..etc. and subsequent bhAshya vAkya-s can be referred with regard to this in sUtra 1-2-6 to 8.  
+
+Hari Hari Hari Bol!!!
+bhaskar
+
+-----Original Message-----
+From: Advaita-l [mailto:advaita-l-bounces at lists.advaita-vedanta.org] On Behalf Of Jaldhar H. Vyas via Advaita-l
+Sent: Friday, November 13, 2015 3:07 PM
+To: Advaita-L <advaita-l at lists.advaita-vedanta.org>
+Subject: Re: [Advaita-l] dva suparNA
+
+On Fri, 13 Nov 2015, Venkatraghavan S wrote:
+
+>       I have no problems if you prefer to call the second bird as
+>       sAkshi instead, but sAkshi is nirguNa brahman, so I don't agree
+>       with your statement saying it is not nirguNa brahman.
+>
+>       The lakshyArtha of tat and tvam have to be the same.
+>
+
+I suppose in the long run all these terms mean Nirguna Brahman right?
+
+I think the crucial concept in the two birds metaphor is embodiment.  It is the identification with pleasure and pain (and all the other pairs of
+dualities) which has made the first bird suffer.  But within the living body there is also calm and freedom which is represented by the second bird and to recognize this will eventually lead the embodied 'I' beyond limited identification with a body.
+
+Typically I don't think of the term Nirguna Brahman in the context of a body but ultimately it is true, that is all there is.
+
+--
+Jaldhar H. Vyas <jaldhar at braincells.com> _______________________________________________
+Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+http://blog.gmane.org/gmane.culture.religion.advaita
+
+To unsubscribe or change your options:
+http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+
+For assistance, contact:
+listmaster at advaita-vedanta.org

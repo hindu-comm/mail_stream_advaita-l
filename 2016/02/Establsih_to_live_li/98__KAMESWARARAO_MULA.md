@@ -1,0 +1,19 @@
++++
+title = "98 KAMESWARARAO MULA"
+date = "2016-02-15"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2016-February/040254.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2016-February/040254.html)
+
+Source: Speaking Tree, Times, Author: Shri Ananda Murti Sir
+
+Dear Friends, Any one who wants to realize his own self and to reach his sri guru's feet to unite his atma with his divine soul, one has to keep his buddhi intact and should listen to own inner consciousness following the Prakriti Dharma. To establish this one has to worship lord ganesha to bestow siddhi, in that way 'Sankara Harana Ganesha stotra to remove the obstacles in the path and Ganesha Shasranamam which is unique of avadhuta shri Gajanan Maharajah, sheagov, gives any one the way to dissolve in the ananta ananta ananta consciousness of the divine soul.
+ I used to listen this great wonderful stotra from my master during my childhood days through my karna (veda mantra sruti : Bhadram karnebhi srunu yama devaha) which has given the unique path to me to realize the soul with brahmn consciousness. Once impurities remove from the mind, separate existence of these two entities is lost which will establish any sadhaka to live in their ananta consciousness & process of being set free from legal, social, or political restrictions which leads surely to liberation.
+In order to achieve this one must be free from the self from the domination of eight fetters which are as follows.Domination of Lineage, Vanity of cultures, false sense of prestige, hatred, shame of fear, doubt and back biting for which my self is a victim for the past 20 years of my life and the six enemies: anger, greed, lust, pride, envy & enchantment.
+Another way to walk in this path is the Discriminating the things with unbiased nature as discrimination can only distorts the analytical human mind and is the characteristic of those who want to keep their lord at a distance out of contempt. As a result they will never reach him. To attain him, the intellectual mind, the base of all discriminating feelings has got to be immersed in the cosmic flow. There is no other way. Is there any difference for him between the river ganges and the Jordan?. All lands are his own land and it is us only as everything is within his mind, by seeing the Dharma of the Prakriti, he created with his own atoms and molecules and resonated with sacred ideal nature. (Nuclear magnetic resonance) i.e the Rasayana Sastra Vignana which is different from Sarvodaya(swara) vignana, another study of breath consciousness.
+Those whose preachings encourages such discriminatory feelings are the worst enemies of humanity. These are the people who in every age in the name of religion have caused the blood to flow and injected the fear of heaven and hell, of ghosts and demons (rakshasha pravritti) in to the human mind. In this way they have cheated or betrayed the simple, mute and gullible masses for centuries together as they do not possess the key to salvation, their eyes do not shine with the radiance of universalism but it is fully occupied with greed and cruelty of vultures.
+Master Buddha was the first person to revolt against their cruelty and devouring the greed. He declared unequivocally : No body is born as low or high, no body is born a brahmin or sudra. Human beings considered as low only because of their bad actions. But they see Brahmn in each and every finite entity and act accordingly they attain the rank of Brahmin as they become established in integral knowledge. 
+
+Finally those who dissolves their ideal nature in reaching Brahmn can remove the bondages of limitations and establish themselves in an infinite & emancipated life which is nothing but Defence Research.
+Sriguru Padaravindarpana MastuMagha shukla NavamiregardsKameswara Rao

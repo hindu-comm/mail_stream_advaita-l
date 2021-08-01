@@ -1,0 +1,4 @@
++++
+title = "Īśvarapraṇidhānam - Devotion p"
+
++++

@@ -1,0 +1,34 @@
++++
+title = "75 kuntimaddi sadananda"
+date = "2017-08-04"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-August/046320.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-August/046320.html)
+
+Prof. VK PraNAms.
+Thanks for your kind review. I am copying and posting here, assuming that it is OK.
+Hari Om!Sadananda---------------------------An Introduction that turns out to be a readable capsule version of the whole subjectByVisvanatha Krishnamurthyon August 4, 2017Format: Paperback
+It is a delightful and at the same time illuminating exercise to go through the work of Dr. Sadananda. What a delight! But I should mention two errors I made while deciding to write a review of this book! The first one is the thought that it is only an ‘introduction’ to Vedanta. It is not so; it turns out to be an authentic capsule version of the entire Vedanta! The second error that I made was my hope that, with the little exposure to Vedanta that I have had in my life I would be able to gloss through it in no time, because of my conviction that it was only an introduction.. This was not to be; for I keep learning a lot from this book and naturally I had to take more time to do justice to it. Now let us come to the book itself.
+
+First, the style of writing. It is written in such a simple style as if the author is speaking to you off-hand, without any rhetorical eloquence that usually keeps the reader dazed, and sometimes confused!
+Secondly, the book is not written in a text-book style, which very often tires you out, because of the logical steps that you have to follow page after page. Dr. Sadaji, on the other hand, takes up key topics, concepts, or questions one by one, and thus in the course of 52 chapters (called ‘Parts’) deals with them each by each by clinching the issue and sorting it out without any flooding of scriptural quotations.. The listing of the titles of these chapters is itself an invitation to keep going on along with the author. And because each chapter has an independence of its own, it is possible for us to open any chapter and be illumined by it.
+Thirdly, Dr. Sadananda the physicist has thoroughly brought in his scientific spirit of analysis into the development that he weaves, very often with a touch of humour. So he keeps emphasizing that we ‘need convincing answers that rational intellect can accept, not some beliefs and dogmas that one has to believe’. And when he uses hair-splitting logic to make his point in the English language, he shows he has imbibed the spirit of the Master of such logic, Adi Shankara himself.! Just one example is Part 22, entitled ‘What does Negation involve?’, where the author builds up the views of the opponent (usually called ‘pUrva-pakshin, by Shankara in his dialectical style) beautifully and responds to it at the end. Beautiful analogies are used which the moderner can understand: for instance, ‘the villager who is sitting in the train, but carries his luggage on his head so as to relieve the burden on the train’ to explain how the Jiva wrongly takes the responsibilities of the body, mind and intellect as if they are its own; to show that manana (reflection on the teachings) has to be continued until there are no more doubts left in the mind, the author says: ‘I am not going to touch a wire until I know for sure (100%) it is not a live wire’.
+
+While the logic is the backbone of the whole text, the author has scores of pithy statements (all of them true) which become catalysts for not only keeping the interest of the reader but to jerk him into thinking further! Here are some:
+‘Vedanta says you are trying to solve a problem where there is no problem to start with – and that becomes a problem’. (Part 5: You are not what you take yourself to be).
+‘One cannot say the world is nor can one say the world is not; and to say ‘is’ or ‘is not’, I, the conscious entity has to exist first’ (part 18: Does the World exist independent of an observer?
+‘When I perceive an object, it is important to note that I do not perceive the substantive of the object’. (Part 20: The Cognitive Process).
+‘Advaita is non-duality in spite of duality. Duality is not negatd; what is negated is the reality assigned to the duality’ (Part 24: adhyAsa or Error Superimposition)
+‘Surrendering to the present becomes a key to self-realization’ (Part 29: Living in the Present).
+‘No ego can realize that he is a false person and still exist -- since the very realization involves its own destruction’ (Part 38: Witnessing Consciousness and Reflected Consciousness)
+‘Vedanta is not another religion or path, but is like a mirror which shows who you are in contrast to who you think you are’ ( (Part 42: Mind and Matter, Part II).
+There is an oft-quoted statement of the Lord from the Gita: ‘He who sees Me everywhere and sees all in Me, to him I do not get lost, nor does he get lost to Me.’ This idea of ‘seeing’ the Lord everywhere and in everything is a recurring usage at umpteen places in the Upanishads and other scriptures. What is it to ‘see’ the Lord? I have not known a better explanation of the word than Dr. Sadananda’s explanation in this book, p.111: “Seeing here means an understanding as in the statement, ‘Yes, I see your point’”!
+
+At the end of it we find we have got it all. We get to go through even the subtle philosophical terrains of bhAga-tyAga-lakshana (p.137), of prArabdha, AgAmi and samcita karmas (p.206), of sajAtIya, vijAtIya and svagata bhedas (p.208) and the like. I dare say that one will not meet with any new ideas when one goes further beyond this book into the study of Vedanta. One will only meet a lot more technical jargon, which may certainly explain in a more sophisticated academic style, the key ideas that you have already seen in this ‘Introduction’!. Vedanta is a massive iceberg; this ‘introduction’ in aiming to show you the tip of the iceberg, actually makes you stroll on the very iceberg, without your feeling that you are already at the core of it!
+
+
+Before I close, may I make a special request to the author for him to adopt, while preparing for the second edition? The book will do well to have an index of key words used in the text. Words like ‘Consciousness’, ‘Superimposition’, ‘Mithya’ and many more, naturally occur at several places. The full connotation of each such word will be clear only if one aggregates all the statements made about the concept at the different places in the book. That is why an index is necessary.
+
+
+I wish every seeker of spirituality, without exception, has an opportunity to read this book, not once but several times on the path to self-realization, because repeatedly reflecting on the arguments made out in the book will be a successful exercise to clear doubts of all kind, -- I mean, in the absence of a Guru!--------------------------------------,___

@@ -1,0 +1,106 @@
++++
+title = "27 V Subrahmanian"
+date = "2021-06-21"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2021-June/056894.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2021-June/056894.html)
+
+On Mon, Jun 21, 2021 at 3:45 AM Murali k via Advaita-l <
+advaita-l at lists.advaita-vedanta.org> wrote:
+
+> Namaste all,
+>
+> I have downloaded this book. How is this actually used?
+>
+> For example, Based on the first Nyaya, 'AndhapanguNyayah, one can remember
+> the morale of the story?
+>
+
+Yes, basically the logic, nyaya, involved in such instances is what is
+highlighted in these maxims.  For example, the Sankhya system applies this
+nyaya to demonstrate their doctrine: the inert prakriti and the sentient
+purusha, together go about the vyavahara of samsara.
+
+See also this short file, with many nyayas:
+file:///C:/Users/Advaita_Livestrem/Downloads/SignificanceofNyayasmaximsinUnderstandingphilosophicalaspectsofAyurveda.pdf
+
+regards
+subbu
+
+>
+>
+> Pranams,
+> Murali
+>
+>
+> On Sun, 20 Jun 2021 at 12:50, V Subrahmanian via Advaita-l <
+> advaita-l at lists.advaita-vedanta.org> wrote:
+>
+> > On Sat, Jun 19, 2021 at 9:30 PM Kartik Vashishta via Advaita-l <
+> > advaita-l at lists.advaita-vedanta.org> wrote:
+> >
+> > > OM
+> > > OM NAMAH SIVANANDAYA
+> > >
+> > > Revered Self,
+> > >
+> > > Sadar Pranam,
+> > >
+> > > Hope this finds you well.
+> > >
+> > > I am looking for a book (English please) which contains the different
+> > > Nyaya's....for instance:
+> > > Arundhati-nyaya
+> > > Bhramara-kita-nyaya
+> > > shakha-chandra nyaya
+> > >
+> >
+> >
+> >
+> >
+> >
+> http://www.sanskritebooks.org/2009/08/nyayavali-sanskrit-maxims-proverbs-with-english-translation-and-notes/
+> >       There is a download link here.
+> >
+> > While the Arundhati nyaya is not listed here, the other two are.
+> >
+> > regards
+> > subbu
+> >
+> > >
+> > > I appreciate your help. Pranam,
+> > >
+> > > OM
+> > > Kartik Vashishta
+> > > OM
+> > > _______________________________________________
+> > > Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+> > > http://blog.gmane.org/gmane.culture.religion.advaita
+> > >
+> > > To unsubscribe or change your options:
+> > > https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> > >
+> > > For assistance, contact:
+> > > listmaster at advaita-vedanta.org
+> > >
+> > _______________________________________________
+> > Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+> > http://blog.gmane.org/gmane.culture.religion.advaita
+> >
+> > To unsubscribe or change your options:
+> > https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> >
+> _______________________________________________
+> Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>

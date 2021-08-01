@@ -1,0 +1,26 @@
++++
+title = "29 V Subrahmanian"
+date = "2016-11-02"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2016-November/043330.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2016-November/043330.html)
+
+மரத்தை மறைத்தது மாமத யானை
+மரத்தில் மறைந்தது மாமத யானை
+பரத்தை மறைத்தன பார்முதல் பூதம்
+பரத்தில் மறைந்தன பார்முதல் பூதமே
+
+திருமூலர் 8-21
+http://www.thevaaram.org/thirumurai_1/s ... rtLimit=21
+
+दन्तिनि दारुविकारे दारु तिरोभवति सोऽपि तत्रैव |
+जगति तथा परमात्मा परमात्मन्यपि जगत्तिरोधते || 28 ||
+
+svAtmanirUpaNam (Page 94) Adi Sankara
+
+https://books.google.co.in/books?id=F6i ... ru&f=false
+
+This comparison was brought out by Maha Periava in his discourse on Adi
+Sankara (Dec 23, 1957) published in Acharya's Call (Part 1) (Page 115-119)
+0 x

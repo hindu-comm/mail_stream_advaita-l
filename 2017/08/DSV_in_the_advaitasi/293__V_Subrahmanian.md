@@ -1,0 +1,70 @@
++++
+title = "293 V Subrahmanian"
+date = "2017-08-21"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-August/046563.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-August/046563.html)
+
+On Mon, Aug 21, 2017 at 9:26 PM, Praveen R. Bhat via Advaita-l <
+advaita-l at lists.advaita-vedanta.org> wrote:
+
+> Namaste Anandji, and others,
+>
+> On Mon, Aug 21, 2017 at 6:14 PM, Anand Hudli via Advaita-l <
+> advaita-l at lists.advaita-vedanta.org> wrote:
+>
+> > Further, if we consider
+> > Ishvara sRShTi only, even that is through the dRShTi of Ishvara, as per
+> > VidyAraNya's explanation of the nRsimha-uttaratApanIya words, "ihedaM
+> > sarvaM dRShTvA."  VidyAraNya's explanation is: iha pratyagAtmani idaM
+> > sarvaM jagaccharIracatuShTayarUpaM dRShTvA, sRShTvA dRShTireva sRShTiH,
+> > where it is significant that Ishvara creates by His sight.
+> >
+>
+> ​There was more than once such interpretation was seen on this list
+> recently where the dRShTi of jIva is denied as sRShTi but that of Ishvara
+> is accepted. ​IMO, there is no issue for the DSV follower, be it of EJV/
+> NJV variant, since he lands a conclusion by posing a simple question: why
+> is that Ishvara sees a world, which is called as a creation, and I/ all see
+> the same thing?
+
+
+This passage from Anandagiri's gloss on the verse 'nārāyaṇaḥ
+paro'vyaktāt..' of the BGB introduction:
+
+परमात्मा हि *स्वाज्ञानद्वारा जगदशेषमुत्पाद्य
+*स्वात्मन्येवान्तर्भाव्याखण्डैकरससच्चिदानन्दात्मना
+स्वे महिम्नि तिष्ठतीत्यर्थः ।
+
+Ajñāna for Paramātmā? This IMO is indicative of the DSV where the
+'paramātmā is the only sentient entity that creates the universe and holds
+it within that consciousness....
+
+regards
+subbu
+
+
+
+> Again, he answers with अर्थापत्तिः so: if the waker Ishvara
+> sees the world like a dream (विश्वं पश्यति कार्यकारणतया स्वस्वामिसंबन्धतः)
+> and the dreamer me sees the same thing (स्वप्ने जाग्रति वा य एष पुरुषो
+> मायापरिभ्रामितः), it is *only* because the waker Ishvara and the dreamer me
+> are the very same entity, अन्यथा अनुपपत्तेः।
+>
+> In any case, it is indeed इष्टापत्तिः for the DSV follower.
+>
+> gurupAdukAbhyAm,
+> --Praveen R. Bhat
+> /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
+> That owing to which all this is known! [Br.Up. 4.5.15] */
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>

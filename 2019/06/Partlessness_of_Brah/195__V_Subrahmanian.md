@@ -1,0 +1,59 @@
++++
+title = "195 V Subrahmanian"
+date = "2019-06-16"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2019-June/052537.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2019-June/052537.html)
+
+On Sun, Jun 16, 2019 at 8:57 AM Sudhanshu Shekhar via Advaita-l <
+advaita-l at lists.advaita-vedanta.org> wrote:
+
+> Hari Om,
+>
+> Brahman is held as anAdi and niravayava. In Gita 13.32, BhashhakAra
+> says -- यद्धि
+> आदिमत् तत् स्वेन आत्मना व्येति अयं तु अनादित्वात् निरवयव इति कृत्वा न
+> व्येति।
+>
+> So the logic for being avyaya is being niravayava which in turn is by
+> virtue of being anAdi. So anAditva => niravayavatva => avyayatva.
+>
+> Now question arises regarding MAyA or avidyA. What are they? They are also
+> held to be anAdi. (AnAdi avidyA trigunAtmikA parA). So they should also be
+> niravayava and hence avyaya. But is that so? They certainly are destroyed.
+> Aren't they?
+>
+
+Even though Maya/Prakriti/Avidya are anadi, yet they are sAnta, that is,
+they are destroyed upon Brahman Knowledge.  Also, while Brahman is anaadi,
+existing in its own right,  Maya is anadi only existing on the sattA,
+existence, of Brahman, having no existence of its own. So, till Brahman
+knowledge, Maya appears to exist, produce effects of samsara, bandha and
+moksha.
+
+>
+> Or take for instance GitA BhAshya 13.26 आकाशवत् निरवयवत्वात् . Should this
+> imply that AkAsha is also avyaya?
+>
+
+AkAsha, though niravayava, is an effect of prakriti and hence gets resolved
+during every pralaya.  And its nityatva is only aapekshika, relative and
+not absolute for Vedantins.
+
+regards
+subbu
+
+>
+> Regards.
+> Sudhanshu.
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>

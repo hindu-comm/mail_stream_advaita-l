@@ -1,0 +1,208 @@
++++
+title = "166 H S Chandramouli"
+date = "2017-02-15"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-February/044472.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-February/044472.html)
+
+Namaste Sri Nitin Ji,
+
+You can refer to Vichara Sagara of Sadhu Nishchala Das in hindi which has a
+sanskrit commentary by Swami Vasudeva Brahmendra Saraswati. This is
+available for download from the Web. In the beginning of the fourth
+chapter,lakshana of a Uttama Adhikari is mentioned, and in the beginning of
+the fifth chapter, lakshana of a Madhyama Adhikari is given. I think
+lakshana of Adhama Adhikari is in the sixth chapter.
+
+Regards
+
+On Tue, Feb 14, 2017 at 8:43 AM, Nithin Sridhar via Advaita-l <
+advaita-l at lists.advaita-vedanta.org> wrote:
+
+> Can the learned members share references from Upanishads or works of any of
+> the Acharyas about Uttama, Madhyama and Adhama adhikaris with respect to
+> sravana etc. ?
+>
+> Regards,
+> Nithin
+>
+> On Tue, Feb 14, 2017 at 8:19 AM, kuntimaddi sadananda via Advaita-l <
+> advaita-l at lists.advaita-vedanta.org> wrote:
+>
+> > PraNams to all
+> > I had posted this before couple of years back discussing the obstacles
+> for
+> > Self - Realization. I am posting it again for those who are interested.
+> > -----------------------------------Obstacles for Self-Realization -7.
+> >
+> >  We are discussing about the madhyama adhikaari, who has sufficient
+> > four-fold qualifications, saadhana chatuShTaya sampatti, to have clear
+> > understanding of Vedanta, but not sufficient enough to have the jnaana
+> > phalam or the fruits of the knowledge. Most of us fall into this
+> category.
+> > Thus he has jnaanam but not jnaana phalam to be a jiivan mukta. The mind
+> is
+> > still habitually entangled in the changing diversities of the world. ‘To
+> > change continuously’ is the nature of the world. To expect the changing
+> > world to remain conducive all the time to ones likes and dislikes is
+> > inherently faulty. Not to be affected by the changing world requires a
+> > disciplined frame of mind that can witness the events happening in the
+> > world objectively, without emotions getting on the way. Even though
+> jnaani
+> > understands he is pure existence-consciousness-limitless, due to
+> > lingering vaasanaas or habitual notions due to praarabda, emotional
+> > transformation of the mind is incomplete. In effect, the emotional mind
+> > does not abide in the knowledge of the intellect or the habitual notions
+> > come in between the mind and the intellect. For such a person only
+> > nidhidhyaasana is prescribed by Vedanta. Hence nidhidhyaasana is not for
+> > gaining any new knowledge but for making the emotional mind to abide in
+> the
+> > knowledge that has already been gained through shravana and manana.
+> >
+> >
+> >  Nidhidhyaasana is not for manda adhikaari. For manda adhikaari who has
+> > saadhana chatuShTaya sampatti at the lowest level, karma and upaasana
+> yoga
+> > are prescribed. Nidhidhyaasana is not needed for uttama adhikaari since
+> he
+> > gets both jnaana and jnaana phalam by shravana and manana, since his mind
+> > has already been purified by saadhana chatuShTaya sampatti. Hence
+> > Nidhidhyaasana is required for madhyama adhikaari who has half-baked with
+> > four-fold qualifications. He gains the knowledge but not the fruits of
+> > knowledge due to lingering vaasanaas. How do I know that I have jnaanam
+> but
+> > not jnaana nishTa. After the study of Vedanta under a competent teacher
+> and
+> > understood the essence of Vedanta without an iota of doubt then I have
+> > learned what needs to be learned. In principle, that is all what is
+> needed.
+> > However for many of us, the mind seems to get agitated whenever we are
+> > transacting with the world. This is due to emotional involvement with the
+> > world due to attachments to things and people. This implies that the
+> > saadhana chatuShTaya sampatti needed is incomplete. Hence nidhidhyaasana
+> is
+> > prescribed by the scriptures to internalize the learning that has already
+> > been taken place. It is like current switch is on and the bulb is in good
+> > condition, but still no light is coming. The brighter and brighter light
+> > will start beaming forth as one starts rotating the rheostat switch
+> slowly.
+> > Thus knowledge is there but for it to express in all its glory, the
+> > obstructive emotional attachments or raaga dveshas have to be reduced
+> > further.
+> >
+> >
+> >  What is to be done in Nidhidhyaasana: Nidhidhyaasana is defined as
+> > dwelling upon the teaching that has been gained via shravana and manana,
+> by
+> > remaining in the teaching, as often as possible, as intensely as
+> possible,
+> > as long as possible, as repeatedly as possible. It is essentially living
+> in
+> > the teaching itself. This dwelling on the teaching can be done by
+> selecting
+> > any or all of the methods listed here. These include: 1. Repeated
+> listening
+> > to scriptures – shravana – mind to dwell on the teachings. 2. Repeated
+> > reading of the Shaastras or reading the notes prepared. 3. Repeated
+> > writing, while the mind dwells upon the teaching 4. Discussions of the
+> > Shaastras with those who have shraddhaa on the teaching
+> (advaita-list-serve
+> > comes in handy in this regard) 5. Teaching of the Shaastras to others, if
+> > one can manage to get some one to listen to. 6. Contemplating on the
+> > teaching in a secluded place (essentially meditation on the teaching). In
+> > all these saadhanas, mind is essentially dwelling on the Vedanta
+> teaching.
+> > Since the teaching is centered on the self-itself as Brahman or the
+> > totality, whatever is not aatma (which then is anaatma) is slowly reduced
+> > to mithyaa that includes the likes and dislikes.
+> >
+> >
+> >  In the nidhidhyaasana, the physical posture is of secondary
+> consideration
+> > as it is predominately a mano vRitti, i.e., a contemplation using the
+> mind.
+> > Therefore mind should be awake and available without getting high jacked
+> by
+> > any other thought. Any physical posture that keeps the mind conducive for
+> > contemplation on the teaching without falling asleep is the right
+> posture.
+> > In essence, the posture should be such that mind should not be dwelling
+> on
+> > the posture or become conscious of it during contemplation. In this
+> regard,
+> > one can also employ aShTaanga yoga meditation stages to keep the mind
+> alert
+> > and contemplative. Shankara discusses the application of the ashTanga
+> yoga
+> > steps for self knowledge in his aparokshaanubhuti text. Here chitta
+> nirodha
+> > involves only withdrawing the mind from the extroverted pursuits and
+> > investing in the teaching of mahaavaakya gained through Shravana and
+> manana
+> > or enquiry of the nature of the self.
+> >
+> >
+> >  Therefore, nidhidhyaasana is not silencing the mind, but involves mental
+> > inquiry or vichaara on the essence of the advaitic teaching – Brahman
+> > satyam- jagat mithyaa and jiivaH bhramaa eva na aparaH, Brahman alone is
+> > real and the world is just apparent projection on Brahman and jiiva is
+> none
+> > other than Brahman. To abide in this understanding, any or all of the
+> above
+> > methods can be practiced at the seat of meditation. One can even meditate
+> > on anaatma that is a worldly object with name and form to see the truth
+> > behind that object. When I meditate on anaatma, I have to see the mithyaa
+> > aspect of the name and form and shift my attention to the Brahman or pure
+> > existence as the reality that lends existence to the object.
+> >
+> >  The next question is how one should meditate? Bhagavaan Ramana gives
+> > illustrative examples. He says in Upadeshasaara- aajyadhaarayaa srotasaa
+> > samam, sarala chintanam virala tatparam. He says the contemplation should
+> > be – like a flow of ghee or flow of river. The ghee example is to
+> > illustrate sneha bhaava or love for the goal, just as ghee sticks to the
+> > fingers, the mind has to stick to the goal. The river example is given to
+> > emphasize the persistence to reach the goal, in spite of small or large
+> > obstacles that invariably come on the way. For small obstacles the river
+> > joyfully jumps over with gurgling joyful noise, and for large obstacles
+> she
+> > gracefully goes around, even taking few steps backward, without loosing
+> > sight of the ultimate goal to reach, namely, the ocean where its identity
+> > with name and form gets dissolved. The mind should be constantly dwelling
+> > in the understanding of the truth, in spite of any incidental obstacles
+> > that arise. Hence Bhagavaan Ramana says it should be continuous flow of
+> > thoughts (sarala chintanam) rather than with starts and stops (virala
+> > chintanam). Initially it will be of the later type but as the mind gets
+> > absorbed more and more it becomes continuous flow of thoughts. Abhyaasa
+> > (constant practice) and vairaagya (withdrawal from attachments) that
+> Shree
+> > Krishna emphasizes again and again are the essential ingredients -
+> > abhyaasenatu kounteya vairaagyena ca gRihyate.
+> >
+> >
+> >  To be continued
+> > _______________________________________________
+> > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> > http://blog.gmane.org/gmane.culture.religion.advaita
+> >
+> > To unsubscribe or change your options:
+> > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> >
+>
+>
+>
+> --
+> Nithin S
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>

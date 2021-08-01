@@ -1,0 +1,4 @@
++++
+title = "SvarUpa of Jnani"
+
++++
