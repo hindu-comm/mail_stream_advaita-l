@@ -1,0 +1,180 @@
++++
+title = "175 Kuntimaddi Sadananda"
+date = "2010-03-07"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2010-March/023887.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2010-March/023887.html)
+
+*Obstacles for spiritual progress I*:
+
+
+
+We have discussed some aspects of this before.  We present here some of
+obstacles that have been identified in the scriptures as well as by other
+aachaaryaas. Krishna says in Gita- 4th chapter that there are three main
+obstacles for spiritual progress: - 1. avidya (ignorance) 2. ashraddha (lack
+of faith) 3. samshaya (doubts about the goal and the means).
+
+
+
+ajnascha ashraddadhaanascha samshayaatmaa vinashyati|
+
+naayam loko2sti na paraH na sukham samshayaatmanaH|| 4-40
+
+Again in the 9th chapter He mentions:
+
+ashraddhadhaanaaH puruShaa dharmasyaasya parantapa|
+
+apraapya maam nivartante mRityusamsaaravartmani|| -9:3
+
+
+
+Shankara explains the ashraddadhaanaaH as the one who does not have
+shraddhaa on the aatma jnaam, that is, the one who does not have faith in
+the knowledge of the self that includes both in understanding its nature,
+means of gaining that knowledge and the result of that understanding.
+Krishna says they will never reach Me; instead they will be born again and
+again. Those who have doubts about the nature and the means of reality will
+neither gain the highest nor can they enjoy the benefits in the material
+worlds. Hence lack of Shraddhaa or faith and having doubts about the nature
+of the truth, nature of the means of gaining that knowledge (doubts about
+pramaaNa) will go down the drain that involves taking lower and lower
+births. Implication is they will be living life trying to fulfill only the
+sensuous enjoyments, and in the process accumulate more vaasanaas where they
+will be taking life forms that live at sense level only to exhaust those
+vaasanaas.
+
+
+
+In the above sloka, ajnaanam stands for muula avidya – the fundamental
+ignorance – which is the lack of knowledge of my own nature. That is
+ignorance that I am complete or puurNam, or I am of the nature of pure
+unqualified happiness or ananda swaruupa. I know that I am a conscious
+entity. I also know that I am existent entity – no scripture is needed to
+teach me those. However, I do not know that I am of the nature of happiness
+too or ananda swaruupa or limitlessness. Hence, I am not looking for
+existence, nor looking for consciousness, but looking for my happiness all
+the time.  Limitlessness is happiness. It is not qualified happiness which I
+get when I find I am happier with the object of my desire and otherwise not.
+This is desire fulfilled happiness or qualified happiness. Everybody’s
+happiness, including that of the first born, the Hiranyagarba, is qualified
+happiness only, which is experiential happiness, as discussed in Tai. Up. In
+the happiness scale, the Upanishad says Hiranyagarbha’s happiness is 1 x 10
+23 times that of an ideal human being, who in his prime youth and who owns
+the whole world. This experiential happiness is still limited.  However,
+pure happiness is limitless, unqualified, and it is my intrinsic nature,
+says Vedanta. Nevertheless, all human efforts can be reduced to gain one
+essential thing -absolute, inexhaustible, permanent happiness. That can be
+accomplished only by gaining infinite limitlessness. Limitlessness cannot be
+gained by any effort or pursuit. It can only be gained by knowing that I am
+already the limitless. Due to ignorance of my true nature, I take myself
+that I am limited being. Even though I know I am existent, I take myself to
+be of limited existence – although existence by nature is limitless. Limited
+existence involves taking existence itself as a qualified existence, that
+is, I exist as this; this being primarily the gross body, sthuula shariira,
+which is most tangible, and next I take myself as I am the mind and then the
+intellect, put together as the subtle body, and finally I take myself as I
+am the causal body, kaaraNa shariira. By taking myself that I am a limited
+body, mind and intellect, BMI, the limitations of the body, mind and
+intellect become my limitations. This is the error of superimposition where
+the limitations of the BMI are superimposed on the limitless
+existence-consciousness that I am. Since my true nature is limitlessness, I
+cannot readily accept the limitations, since they are not intrinsic to my
+nature. With the identification of the limitations of the BMI, I take myself
+to be a mortal, as the birth and death is related to Body, and I consider
+myself to be unhappy due to the likes and dislikes associated with the mind,
+and I consider myself to be ignorant of the world of objects. BMI by nature
+is limited. The limited BMI can never become unlimited by any process, as
+the process by themselves are limited. Hence all the pursuits in life,
+expressed in terms of 1. PravRitti – efforts to gain all that I do not have
+and like to have and 2. nivRitti, efforts to loose all that I have and do
+not like to have, will fail miserably. The specific efforts may be different
+from individual to individual, due to the differences in the likes and
+dislikes; but in essence the life struggles are essentially remain the same;
+the combination of pravRitti and nivRitti. Hence we pray – asatoma sadgamaya
+– Oh Lord please lead me from non-existence to existence, tamasoma
+jyotirgamaya, Oh Lord please lead me from ignorance to knowledge, and
+mRityorma amRitam gamaya – Oh Lord please lead me from mortality to
+immortality. In essence, all these prayers by themselves are useless, since
+we are requesting the Lord to solve a problem where there is no problem to
+begin with. That which is born has to die, declares the Lord, jaatasyahi
+dRivo mRityuH. Therefore, the body that is born has to die someday or the
+other. Hence that which is mortal can never become immortal. Thus the prayer
+– Oh Lord, please lead me from mortality to immortality cannot be fulfilled.
+That I am a mortal is only a notion arising due to identification with the
+body. All notions arise because of ignorance.  Hence the prayer –mRityorma
+amRitam gamaya – lead me from mortality to immortality should imply that Oh
+Lord| please lead me from the notion that I am mortal to the truth that I am
+immortal. Thus all prayers are ultimately for the elimination of ignorance
+about oneself.  No ignorance can be removed by prayers; it can only be
+removed by appropriate knowledge. Therefore ignorance of the self can only
+be removed by the self-knowledge. Since it is not objective knowledge the
+normal means of gaining the knowledge will not work. Why do I need
+self-knowledge?  It is because, ; I am looking for eternal, inexhaustible or
+limitless happiness, which cannot be gained by any effort.
+
+
+
+In addition, since all our efforts, pravRitti or nivRitti, by definition,
+are finite; they cannot give infinite results. Limitless or infiniteness
+alone is fulfillment of life and it is freedom from all limitations and is
+therefore moksha. It can not be gained by any effort, neither can it be
+given. Hence all human struggles to solve their limitation problem remain
+useless. One cannot become limitless by any, or sum of all limited efforts.
+The compassionate Lord, out of compassion, has to come in some form, to
+teach the devotee to redirect his mental attention from all his efforts of
+pravRitti and nivRitti to obtain clear understanding of ones own true
+nature. Hence Krishna declares that of all efforts or yagnas, the effort to
+gain the knowledge of ones own self is the highest, since by gaining the
+knowledge one looses the wrong identification of oneself. To gain that
+knowledge, Krishna says, one has to approach a proper teacher who is well
+versed in the Shaastras, able to communicate that knowledge and who himself
+is well established in that reality.
+
+tat viddhi praNipaatena pariprashnena sevayaa| 4-34.
+
+Shankara gives the meaning for praNipaata – as the one who prostrates
+falling at the feet of the teacher – pariprashnena by asking the appropriate
+or relevant questions to the teacher such as -what is bondage? What is
+liberation? What is the nature of ignorance, and what is the knowledge
+required, etc. For such a prepared student who asks relevant questions, the
+teacher is obligated to teach the knowledge, since he himself obtained that
+knowledge by approaching his teacher.
+
+
+
+Hence limitlessness or moksha is not something that can be gained, or can it
+be given. It is not that some place that I have to go after the death of
+this body, such as vaikunTa or kailaasa with some pure saatvic material body
+different from this, etc. These are all concepts of dvaita-based
+philosophies where there are differences and hierarchies among jiivas, with
+Lord and inert world existing as different from jiivas. With inherent
+limitations I cannot have limitlessness or freedom from all limitations.
+Moksha is, then, recognition of my own true nature, which is limitlessness
+or puurNam or ananda swaruupam – which is Brahman. The scripture defines
+Brahman as satyam, jnaanam and anantam. These are not properties of Brahman
+but intrinsic nature of Brahman.
+
+
+
+Hence the greatest obstacle for moksha is ignorance which can be removed
+only knowledge and by nothing else. Knowledge does not depend on individual
+effort; that is one cannot will the knowledge. It requires a frame of mind
+conducive for gaining the knowledge. Hence Shankara says – a prepared mind
+for this is that which has saadhana chatuShTaya sampatti or the mind which
+has the four fold qualifications; viveka (intellect that can discriminate
+that which is eternal from ephemeral), vairaagra (dispassion to reject the
+ephemeral), Shamaadi shatkasapaati (mental and sense control, faith,
+commitment, equanimity, etc), and mumukshutvam (strong desire for
+liberation). There are preparatory of the mind in order for it to appreciate
+the mahaavaakya, tat tvam asi, statement of the Vedanta.
+
+
+
+We will discuss next role of shraddhaa in the self-knowledge.
+
+Hari Om!
+
+Sadananda
+

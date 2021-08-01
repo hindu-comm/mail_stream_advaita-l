@@ -1,0 +1,4 @@
++++
+title = "avasthA-traya parIkshA"
+
++++

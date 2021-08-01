@@ -1,0 +1,4 @@
++++
+title = "tri-guNa-Atmaka"
+
++++

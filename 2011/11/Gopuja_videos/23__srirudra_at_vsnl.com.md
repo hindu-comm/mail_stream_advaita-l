@@ -1,0 +1,105 @@
++++
+title = "23 srirudra at vsnl.com"
+date = "2011-11-03"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2011-November/029679.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2011-November/029679.html)
+
+Namaskaram
+In the Sri Rudram the eleventh anuvaha fully describes the various stages of the cow and the rishaba.Cows are held sacred even in Vedic times.we follow our forefathers in worship of the cow.R.Krishnamoorthy.
+
+----- Original Message -----
+From: Venkatesh Murthy <vmurthy36 at gmail.com>
+Date: Thursday, November 3, 2011 4:08 pm
+Subject: Re: [Advaita-l] Gopuja videos
+To: A discussion group for Advaita Vedanta <advaita-l at lists.advaita-vedanta.org>
+
+> Namaste
+> 
+> In the Sankalpa of Baudhayana Nitya Karma they say 'Savatsagopujam 
+> Karishye'.
+> It is always better to do Gopuja of both cow and her calf.
+> 
+> Some people say camel milk is cure for diabetes. One doctor in
+> Rajasthan has found cure for diabetes with camel milk-
+> 
+> http://www.dnaindia.com/world/us-elections_camel-milk-can-cure-
+> diabetes_1136816
+> 2011/11/3 Raghav Kumar <raghavkumar00 at gmail.com>:
+> > Is there any well-articulated, preferably rhetorical and witty 
+> answer> to the question -
+> > "Why do Hindus worship the "holy"cow?"
+> > The answer should factor in objections like "buffalo and goat 
+> milk too
+> > is drunk but these animals do not occupy the same place in Hindu
+> > consciousness", and "an ox is not given the same kind of 
+> treatment as
+> > a cow in terms of worship and hyms etc".
+> >
+> > Om
+> > Raghav
+> >
+> > 2011/11/3 Venkatesh Murthy <vmurthy36 at gmail.com>:
+> >> Namaste
+> >>
+> >> Two videos show how to do cow Puja-
+> >>
+> >> http://www.youtube.com/watch?v=GoSuXLDDtqo&NR=1
+> >> http://www.youtube.com/user/deshbhakta#p/search/0/YwwPUb7lSRU
+> >>
+> >> सुरभिस्त्वं जगन्मातर्देवि विष्णुपदे स्थिता ।
+> >> सर्वदेवमये ग्रासं मयादत्तमिमं ग्रस ।
+> >> गावो मे मातरः सन्तु पितरः सन्तु गोवृषाः ।
+> >> ग्रासमुष्टिं मया दत्तां प्रतिग्र्ह्णन्तु मातरः॥ गासम्॥
+> >>
+> >> ॥ प्रार्थना ॥
+> >> गावो ममाग्रतः सन्तु गावो मे सन्तु पृष्ठतः ।
+> >> गावो मे हृदये नित्यं गवां मध्ये वसाम्यहम् ।
+> >> सुरभिस्त्वं जगन्मातर्नित्यं विष्णुपदे स्थिते ।
+> >> सर्वदेवमये देवि सर्वदेवैरलंकृते ।
+> >> मातर्ममाभिलषितं सफलं कुरु नन्दिनि ॥
+> >>
+> >>
+> >> --
+> >> Regards
+> >>
+> >> -Venkatesh
+> >> _______________________________________________
+> >> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> >> http://blog.gmane.org/gmane.culture.religion.advaita
+> >>
+> >> To unsubscribe or change your options:
+> >> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >>
+> >> For assistance, contact:
+> >> listmaster at advaita-vedanta.org
+> >>
+> > _______________________________________________
+> > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> > http://blog.gmane.org/gmane.culture.religion.advaita
+> >
+> > To unsubscribe or change your options:
+> > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> >
+> 
+> 
+> 
+> -- 
+> Regards
+> 
+> -Venkatesh
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+> 
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> 
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+> 
+

@@ -1,0 +1,11 @@
++++
+title = "153 Venkata sriram P"
+date = "2011-06-19"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2011-June/027664.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2011-June/027664.html)
+
+Dear Kartikji,/////"What I object to is to brand the set of mantras as "durgaa suuktam.h" where only one mantra, as a freak, refers to durgaa." --> This is a purely theoretical stance, where the practice of worshipping Durga using these Mantras is not objected to, only the naming or title of the Sukram.///Very true. This was also called Agni Sukta.Durga is contemplated as the effulgence of Agni.Shri Vidyaranya Muni mentions this sukta rahasyain “Vana Durga Kalpa” and derives the esotericessence of Vana Durga from this Agni (Durga) Sukta.////Navagraha Mantras - the scholar does not seem to object to the worship or propitiation of the Nava-grahas using this Mantra. It looks like he is fine with people propitiating the Nava-grahas with the Suktams in a practical manner. However, he does claim that there is no mention of the Nava-grahas in the Vedas, and that the so-called "Nava-graha Mantras" themselves refer to Surya as a Nakshatra and
+ not as a Graha (which presumably is what Jyotisha believes).///True. We don’t find any reference of grahAs in veda. Infact, the word “graha” imply that which receive (grahaNa). In Shatpatha Br.& Taittiriya Ara., the word “graha” is used but in different context ie., the devata that receive the yajna havirbhAga. So, the concept of nava-grahas was the later developmentduring the times when Nakshatra Vyavastha was contemplated. Basically, there are essentially 7 rays that emanate from the Sun that are of the Of 7 metrical notes (saptha chandas). The presiding deitiesOf the saptha chandas receive those 7 rays of the sun. These adhiShThAna devatAs are again guarded by adhi-dEvatAs andPratyadhi-dEvatAs. If we observe the navagraha sukta carefully, we can figure out the adhidEvatAs. ///3) Surya Namaskara Mantras - the scholar does in this case say that neither is the set of Mantras rightly named, nor is the practice fully
+ correct according to general principles of Mimamsa.Yes. That’s true.Whoever may be the scholar, my humble prostrations to Him.Regs,Sriram

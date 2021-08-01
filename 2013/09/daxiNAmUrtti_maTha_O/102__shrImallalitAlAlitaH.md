@@ -1,0 +1,137 @@
++++
+title = "102 श्रीमल्ललितालालितः"
+date = "2013-09-11"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2013-September/035515.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2013-September/035515.html)
+
+although maNi draviDa took the work 5-6 years ago, he was unable to
+complete till now because of his engagements.
+I heard that it is about complete.
+anubhUtisvarUpAchArya's commentary is being published for first time. I
+must add that it is very short in nature.
+along with it they are also publishing bellamakoNDa rAma rAya kavi's
+commentary.
+the AchArya of the maTha, svAmI svayaMprakAshagiri jI was teaching gItA
+bhAShyam with Anandagiri's commentary comparing with these commentaries, in
+sha~Nkara maTha, mount abu when I was there.
+
+*श्रीमल्ललितालालितः
+*www.lalitaalaalitah.com
+
+
+On Wed, Sep 11, 2013 at 1:25 PM, Venkata Subramanian <
+venkat_advaita at yahoo.com> wrote:
+
+> If I remember correct, the said Institute had planned to publish the Tika
+> of Anubhutiswarupa Acharya on the Gita Bhasha as well.  This is being
+> published for the first time.  Any idea, when Sri. Dravid Shastrigal is
+> completing it for publishing.....................
+>
+> Regards,
+> Venkat.
+>
+>
+> ________________________________
+> From: Sundararaman Kunchithapatham <kunchithapatham at gmail.com>
+> To: A discussion group for Advaita Vedanta <
+> advaita-l at lists.advaita-vedanta.org>
+> Sent: Wednesday, 11 September 2013 4:14 AM
+> Subject: Re: [Advaita-l] daxiNAmUrtti maTha : Official website
+>
+>
+> Ram Ram
+> Dr Mani Dravid Sastrigal's(MDS) Sariraka mimamsa (Brahmasuthram)
+> publication in two volumes was published at the instance of HH Mahesananda
+> Giri;MDS is working on a book of Bagavad Githa which will be published
+> shortly by the Institute.Books of the Institute are available with
+> Jayalakshmi Indological Institute.
+> Ram Ram
+> K Sundararaman
+>
+>
+> On Mon, Sep 9, 2013 at 8:05 PM, श्रीमल्ललितालालितः <
+> lalitaalaalitah at lalitaalaalitah.com> wrote:
+>
+> > Here is the website of famous daxiNAmUrtti maTha of kAshI :
+> > http://www.shankaramatha.org/
+> >
+> > They are famous for their publication of upniShad-bhAShya, vArttika,
+> stuti,
+> > prakaraNa, etc.
+> > They have started to upload their books online for benefit of all.
+> > Although, they have just made available lectures(प्रवचन) of their
+> > inspiration mahAmaNDaleshvara svAmI maheshAnanda giri ji (महामण्डलेश्वर
+> > स्वामी महेशानन्दगिरि जी महाराज) on vedAnta-prakaraNa-s, stutiH, etc.;
+> they
+> > have confirmed that they are planning to upload all of their
+> > saMskR^ita-only publications, which comprise bhAShya, etc.
+> >
+> > They have also uploaded mp3 files of lectures of svAmI jI.
+> > Those who have read his books know that his style of teaching intricate
+> > subjects was amazingly simple.
+> >
+> > They have a maTha in Mount Abu, Rajasthan. Mount Abu is also known as
+> > अर्बुदाचलः in saMskR^ita and has a portion of
+> skanda-purANam(स्कन्दपुराणम्)
+> > devoted to it which is known as अर्बुदखण्डः . It mentions greatness of
+> the
+> > arbudAchala tIrtha.
+> > The maTha is known as sha~Nkara maTha (शङ्कर मठ). Hence, they have a site
+> > with the same name.
+> > Finally, they are upAsaka-s of shrI-daxiNAmUrtti-shiva.
+> >
+> > Please, visit the site to get the benefits.
+> >
+> > This is the direct link to their e-book page:
+> > http://shankaramatha.org/index.php/ebooks-audios/e-books?limitstart=0
+> >
+> > This is to their mp3 page:
+> > http://shankaramatha.org/index.php/ebooks-audios/pravachan-audios
+> >
+> >
+> > *श्रीमल्ललितालालितः
+> > *www.lalitaalaalitah.com
+> > _______________________________________________
+> > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> > http://blog.gmane.org/gmane.culture.religion.advaita
+> >
+> > To unsubscribe or change your options:
+> > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> >
+>
+>
+>
+> --
+> K Sundararaman
+> Flat 1C Karpaga Vijayam
+> 1,Subramaniam st.,Abhiramapuram,
+> Chennai 600 018.Ph:24995576
+> kunchithapatham at gmail.com
+>
+> सन्तोषः परमो लाभः सत्सङ्गः परमा गतिः ।
+> विचारः परमं ज्ञानं शमो हि परमं सुखम् ॥
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
+

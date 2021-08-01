@@ -1,0 +1,60 @@
++++
+title = "204 Rajaram Venkataramani"
+date = "2011-07-05"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2011-July/027957.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2011-July/027957.html)
+
+According to few bhagavatha scholars, there is no sanction for animal
+sacrifice in the Vedas. It is a misinterpretation of the terms such as
+alambhanam which means to touch not cut. They argue that ahimsa is
+supreme dharma and it is scriptural interpolations which support
+animal sacrifice. What is your view? I have heard that the kalpa
+sutras document the procedures for srauddha karmas (paka and havir
+yajnass) and they contain clear references for killing and eating
+animals albeit in a controlled environment. Is that so?
+
+On 05/07/2011, Jaldhar H. Vyas <jaldhar at braincells.com> wrote:
+> On Tue, 5 Jul 2011, Rajaram Venkataramani wrote:
+>
+>> Are animal sacrifices allowed in Vedic Yajnas?
+>
+> Yes.  Some dharmashastrakaras say most (but not all) of the pashuyagas are
+> not possible in the Kaliyuga.  Even in the case of those who would
+> defend the practice in principle, there is a certain distaste which led to
+> them becoming increasingly rare in practice.
+>
+>> Did we become
+>> vegetarians due to the influence of buddhists and bhagavatas?
+>
+> The Buddhist objection to sacrifices is that karma means that the
+> suffering of the victim will result in bad future consequences for the
+> sacrificer.  This view is found in "Hindu" shramanic philosophies as well.
+> (For instance Samkhyakarikas also view animal sacrifices negatively and
+> you have mentioned the Bhagavatas.) it did not necessarily extend to
+> killing animals for food.  In fact there is not a single traditional
+> Buddhist culture with anywhere near the percentage of vegetarians found in
+> Hinduism and therefore there is no reason to believe that Indian Buddhists
+> were vegetarians either.
+>
+> If there is any "outside" influence it is from the Jains who are the only
+> ones who are  consistently and totally pro-vegetarian.
+>
+>
+> --
+> Jaldhar H. Vyas <jaldhar at braincells.com>
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
+
+-- 
+Sent from my mobile device
+

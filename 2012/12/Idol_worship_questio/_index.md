@@ -1,0 +1,4 @@
++++
+title = "Idol worship question"
+
++++

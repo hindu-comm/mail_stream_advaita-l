@@ -1,0 +1,35 @@
++++
+title = "122 kuntimaddi sadananda"
+date = "2013-08-13"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2013-August/035281.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2013-August/035281.html)
+
+Sunilji - PraNAms
+
+Brahman being one without a second - any further description of nirguna or saguna, jiiva, jagat etc from the Brahman point is irrelavent. 
+
+From Vedanta point, in Pralaya ,there is still Iswara with all the jiivas and jagat in potential form - just like in laya or our deep sleep state where the individual mind with its vaasanas are in potential form ready to manifest justas we left,once the mind is awake. Same way the pralaya is the deep-sleep stateat macrocosam level, where macro BMI goes to sleep - where maaya with all the karmas of all jiivas still remain but in potential form. One can say that during pralaya, Iswara is in yoga nidra. Hence the trigunaatmika prakRiti is in potential form ready to manifest based on the karmas of previous sRishTi as the basis. It is relatively eternal since ignorance and thus maayais anaadi. The whole creation can only disappear completely only when all the jiivas realize, and that may never happen - hence it is said as eternal at the transactional level only - at this level not only Iswara but jiiva and jagat too are eternal but all exist in
+ potential form. Just as in laya we cannot make any distinctions of any kind, in pralaya aslo we cannot make any distinctions of jiiva-jagat-Iswara also. laya and pralaya are exact conter parts the first one at jiiva level and the second one at virat level. 
+
+Brahman is advitiiyam - one without a second - hence no sajaati vijati swagata bhedas in Brahman and nothing can be said about Brahman since no words can reach there - including the word advaita. Advaita is only with reference to dvaita - negation of the reality to the duality. 
+Just as jiiva is eternal so is Iswara - but both are at vyaavahaarika level only. At paaramaarthika level there is no jiiva, no jagat and whether we like it not - no Iswara also. No time concept also to says even it is eternal or ephemeral. 
+I am surprised why so many posts of these trivialities. 
+Hari Om!
+Sadananda
+
+From: Sunil Bhattacharjya <sunil_bhattacharjya at yahoo.com>
+>To: A discussion group for Advaita Vedanta <advaita-l at lists.advaita-vedanta.org> 
+>Sent: Tuesday, August 13, 2013 1:15 PM
+>Subject: Re: [Advaita-l] Eternal Loka
+>
+>
+>Namaste,
+>
+>It appears that there is a confusion among the scholars as to whether Ishwara and Nirguna Brahman are one and the same or are different. This is happening because the scholars very often forget that He had the desire to be many and that desire-laden state of His is the Ishwara (Apara Brahman) and there is the creation. When that desire is over He is back to His old state and the pralaya is nothing but a statement of this. Nirguna Brahman and Ishwara were never two different entities. 
+>
+>Regards,
+>Sunil KB
+>
+>

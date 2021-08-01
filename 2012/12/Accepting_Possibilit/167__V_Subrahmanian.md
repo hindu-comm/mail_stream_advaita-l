@@ -1,0 +1,254 @@
++++
+title = "167 V Subrahmanian"
+date = "2012-12-30"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2012-December/033771.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2012-December/033771.html)
+
+I had mentioned recently that the details about creation, the world,
+loka-s, etc. have no more value than chitta shuddhi and are primarily aimed
+at showing a certain entity, Brahman, as the jagat-kAraNam.  The idea is
+not to prove the kAryam as absolutely real but rather proving the kAraNam
+as the sole reality by negating the kAryam.  The depiction of four
+elephants holding the earth in place is aimed at showing that there is an
+entity, a Force, a Shakti, that maintains and holds the earth.  For
+example, the statement: bhIShAsmAd vAtaH pavate....of the Taittiriya (out
+of fear of Him/That vAyu, agni, sUrya, Indra and Yama are ever alert in
+carrying out their allotted duties) is, according to Shankaracharya, to
+show us that there 'IS' this entity called Brahman: tasmAdasti tad brahma
+yadbhayakAraNam.  Otherwise it would be impossible to even create a feeling
+of existence of this entity as it is devoid of all attributes. So its
+apparent relation to the world is posited only to negate it (the
+relationship) later.  Once this aim is achieved the shAstra is no more
+interested in pressing this point.  This is the way Advaita looks at all
+such Vedic and purANic accounts.  If this is kept in mind, one will have no
+problems about reconciling the discoveries of science with the accounts in
+the scripture.  This can be even more appreciated in the case of a
+scientist by profession believing or accepting or appreciating the
+discoveries of science who can also be an Advaitin.  His appreciating
+science will never come in the way of his Advaitic
+understanding/realization.  For he can very easily place the discoveries of
+science in the vyAvahArika realm which is indisputably only an object, a
+viShaya, to the Consciousness, the viShayI that is his very Self.  The
+unassailable rule 'dRshyam mithyA' will happily be maintained.
+
+regards
+subrahmanian.v
+
+On Sun, Dec 30, 2012 at 8:00 PM, <rajaramvenk at gmail.com> wrote:
+
+> Is your conclusion that as per the tradition shastras are true on all
+> matters even if they are proved to be conclusively wrong by science? Some
+> of the smrti shastras definitely thought that earth is fixed. This has been
+> conclusively shown to be wrong by science. As an advaitin, are you expected
+> to still hold the view that earth stands fixed on four elephants? Leave
+> alone smrti. Even shruti differs on triplication vs. quintiplication. What
+> do you accept as true?
+> Sent from my BlackBerry® wireless device
+>
+> -----Original Message-----
+> From: V Subrahmanian <v.subrahmanian at gmail.com>
+> Sender: advaita-l-bounces at lists.advaita-vedanta.org
+> Date: Sun, 30 Dec 2012 18:57:21
+> To: A discussion group for Advaita Vedanta<
+> advaita-l at lists.advaita-vedanta.org>
+> Reply-To: A discussion group for Advaita Vedanta
+>         <advaita-l at lists.advaita-vedanta.org>
+> Subject: Re: [Advaita-l] Accepting Possibility of Error in Sastras
+>
+> On the 'traditional position' regarding the shruti with regarding to
+> pratyakshAdi is reflected by the Advaitic position that:  the pratyakShAdi
+> pramANa that operates/dominates in a person's life *prior" to the advent of
+> shruti in its *real and complete* form stands negated by the Veda pramANa.
+> This is held on the strength of the pUrvamImAmsA nyAya called 'apaccheda
+> nyAya' where it is held that the *later* pramANa negates the *earlier*
+> pramANa.
+>
+> Accordingly everything that pratyakShAdi directs a person, including the
+> shruti that is an alluding, anuvAda, stands negated by the *ultimate*
+> Vedanta pramANa that holds the duality that the world is including the jiva
+> is false/mithyA, not absolutely real.  This aspect is discussed in the
+> Advaita siddhi and before that in the Bhamati and before even that in the
+> Brahmasiddhi.  Of course, all this has its firm basis in the Vedata itself
+> that is so beautifully captured by Shankaracharya in the adhyAsa bhAShyam.
+> Gaudapada too brings this idea in the kArikA-s.
+>
+> When someone asked Ramana Maharshi whether the other worlds admitted in the
+> scriptures are real, he is said to have replied: if 'this' world is real,
+> then why not the 'other' worlds?
+>
+>
+>
+> regards
+> subrahmanian.v
+>
+> On Sun, Dec 30, 2012 at 6:42 PM, Rajaram Venkataramani <
+> rajaramvenk at gmail.com> wrote:
+>
+> > I am not suggesting that we blindly reject shastras as untrue. When
+> > shastras contradict pratyaksha and anumana, we have to examine and accept
+> > whatever is true.  This is not my position but what I think is the
+> correct
+> > traditional position. Please read my original post with quotes from
+> > Gaudapada, Sankara and Madhusudana. Sri Subrahmanian also independently
+> > posted on the concept of anuvada, the exact term used by Madhusudana.
+> >
+> > In fact, I was thinking that shastras should be the authority on unseen
+> > matters such as posthumous result of karma, jivEshwara bhEdA in vyavahara
+> > realm etc. But according to Madhusudana even that can be a mere
+> reflection
+> > of human delusion.
+> >
+> >
+> > On Sun, Dec 30, 2012 at 11:57 AM, sriram <srirudra at vsnl.com> wrote:
+> >
+> > > Dear
+> > > Shruthi is shruthi.Its applicability is to spiritual life and not to
+> > > physical phenomenal  world outside.May be some examples in the shruthi
+> > > appear as erroneous in the light of some scientific discoveries.But as
+> > our
+> > > understanding is not as deep and our intellect is not as sharp there
+> is a
+> > > chance of misinterpretation of shruthi vakyas.Even  in the example that
+> > > fire is cold if uttered by a shrurhi vakya is to be discarded is just
+> an
+> > > illistration that logic or prathyaksha pramana is valid and not shruthi
+> > > vakya .But you should know that shruthi has not said like that
+> > > anywhere.Shruthi and smruthi vakyas are collection of pramanas and
+> > > observations in the days of yore.They will be valid if the same
+> > environment
+> > > continues.As this is not the case you have to take the shruthi vakya to
+> > its
+> > > abstract/subtle meaning and not to gross/apparent meaning.Shruthi says
+> > > Brahman was there alone.You may say what is the proof?But if you think
+> > > deeply you will come to understand by deductive reasoning that nothing
+> > > comesout of nothing.Brahman is the total intelligence,total material
+> and
+> > > total consciousness. so to say.It divided itself to become many.You may
+> > ask
+> > > why it should do like that?Akamayatha says shruthi.It desired.Can you
+> say
+> > > why it desired?Any conscious intelligent being can desire to do some
+> > > thing.It is not illogical.So if you contemplate the shruthi vakyas you
+> > will
+> > > understand the purport and a logical build up.Of course our brains are
+> > not
+> > > fully evolved to understand the shruthi.Like a dog will unable to
+> > > understand how an electric fan works though it has brain to accept the
+> > > command to switch it off.So shruthi and shastras are pramanam for
+> > leading a
+> > > meaningful life here and here after is my conviction.R.Krishnamoorthy.
+> > > ----- Original Message ----- From: "Rajaram Venkataramani" <
+> > > rajaramvenk at gmail.com>
+> > >
+> > > To: "A discussion group for Advaita Vedanta" <advaita-l at lists.advaita-
+> **
+> > > vedanta.org <advaita-l at lists.advaita-vedanta.org>>
+> > > Sent: Thursday, December 27, 2012 7:52 PM
+> > >
+> > > Subject: [Advaita-l] Accepting Possibility of Error in Sastras
+> > >
+> > >
+> > >  In many religions, the scriptures are considered inerrant. We also
+> > >> consider
+> > >> the sastras to be the authroity. There is a lot of logic given to
+> > >> establish
+> > >> why sabda is pramana. There are stories such as Kumarila Bhatta's
+> > >> where complete acceptance of the authority of the sastras is
+> > >> reinforced. However, we see that Madhusudana says in Siddanthabindu (v
+> > >> 79),
+> > >> "The scriptures may state something that is merely the outcome of
+> > >> delusion". Here he admits that sastras can be erroneous. Though the
+> > >> tradition accepts the vedic model for creation, we see that there is
+> > >> aontinues.
+> > >>
+> > >> recognition of a contradictions there that is to be resolved through
+> > >> reason. For example, Gaudapada says (I.23), "In the matter of being
+> > >> created, whether from the already existent or from the non-existent
+> > also,
+> > >> the Sruti is equal, that is supporting both views. What is associated
+> > with
+> > >> or fortified with logical reasoning holds not the other".  The
+> > importance
+> > >> of reasoning is also stressed by Madhusudana, "The creation of names
+> and
+> > >> forms by Him who does the triplication in BSB 2.4.20 in only an
+> > >> explanatory
+> > >> statement and cannot nullify quintuplication which is established by
+> > >> reasoning".  Sankara himself says, forget where, "Even a thousand
+> sruti
+> > >> statements cannot make fire cold." In his bhashyas, we often see him
+> > quote
+> > >> sruti and then the opponent makes a logical counter to sruti. Sankara
+> > does
+> > >> not dismiss off the opponent saying that there cannot be a logical
+> > >> opposition because already the point has been established using sruti.
+> > He
+> > >> defends his position using logic.
+> > >>
+> > >> Are there conditions in which sastras can be accepted as erroneous? I
+> am
+> > >> not talking about a presumption of error in sastras without evidence.
+> > But
+> > >> when there is concrete evidence based on pratyaksha and anumana that
+> > shows
+> > >> that the sastras are not correct, what is the valid traditional
+> > response?
+> > >> ______________________________**_________________
+> > >> Archives: http://lists.advaita-vedanta.**org/archives/advaita-l/<
+> > http://lists.advaita-vedanta.org/archives/advaita-l/>
+> > >> http://blog.gmane.org/gmane.**culture.religion.advaita<
+> > http://blog.gmane.org/gmane.culture.religion.advaita>
+> > >>
+> > >> To unsubscribe or change your options:
+> > >> http://lists.advaita-vedanta.**org/cgi-bin/listinfo/advaita-l<
+> > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l>
+> > >>
+> > >> For assistance, contact:
+> > >> listmaster at advaita-vedanta.org
+> > >>
+> > >
+> > > ______________________________**_________________
+> > > Archives: http://lists.advaita-vedanta.**org/archives/advaita-l/<
+> > http://lists.advaita-vedanta.org/archives/advaita-l/>
+> > > http://blog.gmane.org/gmane.**culture.religion.advaita<
+> > http://blog.gmane.org/gmane.culture.religion.advaita>
+> > >
+> > > To unsubscribe or change your options:
+> > > http://lists.advaita-vedanta.**org/cgi-bin/listinfo/advaita-l<
+> > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l>
+> > >
+> > > For assistance, contact:
+> > > listmaster at advaita-vedanta.org
+> > >
+> > _______________________________________________
+> > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> > http://blog.gmane.org/gmane.culture.religion.advaita
+> >
+> > To unsubscribe or change your options:
+> > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> >
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
+

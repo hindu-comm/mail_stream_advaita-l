@@ -1,0 +1,24 @@
++++
+title = "374 Jaldhar H. Vyas"
+date = "2011-07-26"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2011-July/028276.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2011-July/028276.html)
+
+On Tue, 19 Jul 2011, V Subrahmanian wrote:
+
+> Namaste.
+> Could anyone explain the meaning of this verse and also the source, if any?
+>
+> अगाधजलसंचारी न गर्वं याति रोहितः ।
+> अण्गुष्ठोदकमात्रेण शफरी फर्फरायते ॥
+>
+> rohitaH and shapharI refer to (types of) fish.
+>
+
+Shrikantaji has already given the meaning but according to 
+subhAShitaratnabhANDAgAra, it is from the pa~nchatantra.
+
+-- 
+Jaldhar H. Vyas <jaldhar at braincells.com>

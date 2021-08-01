@@ -1,0 +1,54 @@
++++
+title = "196 Vidyasankar Sundaresan"
+date = "2011-07-06"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2011-July/027993.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2011-July/027993.html)
+
+
+> Namaste Sri Vidyasankarji,
+> 
+> Thank you indeed, for putting up this link. Swami Sri Swaroopananda
+> Saraswatiji, the current Shankaracharya of Dwaraka and Jyotishpeeth,
+> has now initiated a total of 5 sannyasis. 
+> 
+> Swami Sri Swaroopanandaji remains very active in spreading the message
+> of Adi Sankara amongst His given realm, and upholding Sanatana Dharma.
+> Apart from Chaturmas and a few other periods of the year, He travels
+> intensely in remote rural areas, helping the poorer people, and never
+> staying longer than three days. 
+> 
+> The Dwaraka and Jyotish peeths do not have as large a public profile
+> as Sringeri, and hence, news about what goes on is not so readily
+> available. So, we appreciate your posting of this item to the
+> Advaita List.
+> 
+> Krishnadas
+
+Thank you. Although a Tamilian by birth myself, I keep trying to highlight
+to this list that the tradition of advaita vedAnta is not restricted to south India.
+I find that many south Indians and even Western academic scholars seem to
+think that the advaita vedAnta tradition begins and ends in south India.
+Whereas the truth is otherwise. Also, in my opinion, the Sringeri Peetham
+does not have a large contemporary public profile in the Indian news media,
+and that is by design. What profile it does have in the public eye is more a
+function of its historical importance, and not a result of cultivating journalists
+and politicians, or giving out press releases and being in the news. 
+
+Anyway, the important reason I posted this link is that in the person of Sri
+G D Agarwal, who is now formally Sri Jnanaswarupananda Saraswati, we
+have an example of someone whose profession was as an environmental
+scientist/engineer, who also has kept up a clear philosophical and religious
+orientation in his effort to keep the major Indian rivers clean and sustainable.
+He does not seem to think that the Hindu Shastras have "scientific" answers
+to an issue such as cleaning up the Ganga from the untreated wastes being 
+poured into it, nor does he seem to think that modern science has all the
+answers to the common weal in India. In the midst of all the angst that we
+seem to have about advaitic jnAna and bhakti and science and how/whether
+we apply all of them to the communities we live in, here is someone whose
+life, ideas and motivations we should all probably study a bit more closely.
+
+Regards,
+Vidyasankar
+

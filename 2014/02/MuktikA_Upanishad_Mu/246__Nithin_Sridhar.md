@@ -1,0 +1,43 @@
++++
+title = "246 Nithin Sridhar"
+date = "2014-02-27"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2014-February/036665.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2014-February/036665.html)
+
+Even the date of penning cannot be determined accurately always. A
+particular manuscript that is available may be of recent origin and older
+manuscripts may not be available now! So, we cannot say a particular
+Upanishad was written from the dating of manuscripts either! Sometimes,
+using various methods of cross referencing, scholars determines the
+relative chronology of who came after whom and hence determines a range of
+date!. A date for Shankaracharya or Nagarjuna can be determined but not for
+Veda vyasa or Vashishta or even Yajnavalkya! That is where the history goes
+wrong!
+
+
+On Thu, Feb 27, 2014 at 11:55 AM, Sujal Upadhyay <sujal.u at gmail.com> wrote:
+
+> I fully agree. Just like the date of birth is not actually the date of
+> birth but date of delivery, as the jiva has already entered the body.
+> Atmost they can say when a particular upanishad was penned down.
+>
+> Anyways, if you find anything related to the said verse and find reference,
+> please let me know.
+>
+>
+> OM
+>
+> Sujal
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
+

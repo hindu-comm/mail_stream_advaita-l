@@ -1,0 +1,99 @@
++++
+title = "68 SIVAKUMAR RAMAKRISHNAN"
+date = "2011-02-15"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2011-February/026533.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2011-February/026533.html)
+
+SAdara pranAm Sriramji,
+
+Thanks for your prompt reply.I am having a booklet
+of the same.But the anuaya krama is not in it and that is what is looking
+for.
+Namaste.
+
+---------------------------------------------------------------------------------
+
+On Tue, Feb 15, 2011 at 3:24 PM, Sriram Krishnamurthy <
+asksriramjobs at gmail.com> wrote:
+
+> Dear Sivakumar Ji,
+> Hayagriva Stotram is available in Sri Desika Stotramala published by LIFCO.
+>
+> Thanks and Regards,
+> Sriram
+>
+> On Tue, Feb 15, 2011 at 7:03 AM, SIVAKUMAR RAMAKRISHNAN <
+> sivanr8010 at gmail.com> wrote:
+>
+> > SAdara pranAmam Sri Krishnamurthyji,
+> >
+> > Thanks a lot for your valuable information.
+> > I am in search of a good tamil commentary of
+> > HAYAGRIVA STOTRAM of SRI VEDANTA DESIKA.
+> > Can anyone help me please ?
+> > Namaste.
+> >
+> >
+> ------------------------------------------------------------------------------
+> >
+> > On Mon, Feb 14, 2011 at 3:25 PM, Sriram Krishnamurthy <
+> > asksriramjobs at gmail.com> wrote:
+> >
+> > > Dear Sivakumar Ji,
+> > > As mentioned by Ravishankar Ji in his earlier mail, you have to by
+> order
+> > > your set by sending a draft or check for Rs 2500 in the name of ‘ Veda
+> > > Dharmashastra Paripalana Sabha Grantha Prakasana
+> > > Samithi’ to Sri. N.Ramasarma, Secretary, Veda Dharmashastra Paripalana
+> > > Sabha, Sri. Kanchi Kamakoti Peetam, No 1 Salai Road, Kancheepuram, 631
+> > 502.
+> > > (Tel Nos. +91 44 27233115/ +91 94434 05965). As per the link it might
+> > take
+> > > 1
+> > > year for the book to come out.
+> > >
+> > > Om Tat Sat,
+> > > Sriram
+> >  > _______________________________________________
+> > > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> > > http://blog.gmane.org/gmane.culture.religion.advaita
+> > >
+> > > To unsubscribe or change your options:
+> > > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> > >
+> > > For assistance, contact:
+> > > listmaster at advaita-vedanta.org
+> > >
+> >
+> >
+> >
+> > --
+> > *sivakumarr*
+> > _______________________________________________
+> > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> > http://blog.gmane.org/gmane.culture.religion.advaita
+> >
+> > To unsubscribe or change your options:
+> > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> >
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
+
+
+
+-- 
+*sivakumarr*
+

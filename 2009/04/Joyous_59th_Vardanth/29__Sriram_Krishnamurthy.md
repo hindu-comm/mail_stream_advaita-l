@@ -1,0 +1,106 @@
++++
+title = "29 Sriram Krishnamurthy"
+date = "2009-04-03"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2009-April/021655.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2009-April/021655.html)
+
+Hi Mr. Mahadevan Babu,
+
+Very glad to read the Swamigal inspired work. I introduce myself as
+grandson(daughter's son) of Sri Ramasubramania Iyer of Tirunelveli.(Ex
+Dharmadhikari of Tirunelveli Sringeri Mutt)
+
+Warm regards,
+Sriram Krishnamurthy
+
+2009/4/2 Mahadevan Babu <babunim at optushome.com.au>
+
+> Dear Asthikas,
+> Sri Gurubyo Namaha !!!
+> I pray to the Lotus Feet of Jagadguru Sri Sri Sri Bharahti Theertha
+> Mahaswamigal to grace us all with the path to Shreyas.
+> 1st April 2009 (Indian Time) / 2nd April 2009 (US Time) marks the 59th
+> Vardanthi (Birthday) of the Mahaswamigal.
+> On this joyous day, I wish to share with you the Akshara Mala that I was
+> able to submit on to his Lotus Feet in Tamil by the Grace of Acharyal and
+> Sharadambal.
+> Please excuse me that I have not yet translated & transliterated in
+> English.
+>
+> அக்ஷரங்களில் அகாரமாய் விளங்கிட்டு
+> அகிலலோகத்தின் சாக்ஷியாய் திகழ்ந்திட்டு
+> அபிநவ வித்யாதீர்த்தரின் நிழலாய் நின்றிட்டு
+> அன்பின் ரூபமான எங்கள்குரு ஶ்ரீ பாரதீ தீர்த்தரே !
+>
+> ஆஸ்தீக தர்சனமாம் ஆறு அவற்றின்
+> ஆற்றாய் பெருகிட்டு அருள்வார்
+> ஆத்மஞானத்தை சுடர் விட்டு
+> ஆதார ரூபமான எங்கள்குரு ஶ்ரீ பாரதீ தீர்த்தரே !
+>
+> இருமையற்ற இருப்பே உண்மை
+> இலாமையுடைய தோற்றமே மாயை
+> இத்தத்துவத்தை உலகுக்கு போதித்து
+> இனிய ரூபமான எங்கள்குரு ஶ்ரீ பாரதீ தீர்த்தரே !
+>
+> ஈடற்ற வித்தையின் இருப்பிடமே
+> ஈர்த்திடும் மாயையெனும் இருட்டினை
+> ஈட்டியெனும் ஞானத்தால் தகர்த்திட்டு
+> ஈசனின் ரூபமான எங்கள்குரு ஶ்ரீ பாரதீ தீர்த்தரே !
+>
+> உபநிடதச் சாரமான அத்வைத
+> உண்மையை உலகுக்கு போதிக்கவே
+> உருவெடுத்த வித்யாதீர்த்த சீடரே
+> உலககுரு எங்கள்குரு ஶ்ரீ பாரதீ தீர்த்தரே !
+>
+> ஊனாயினும் ஞான மூடாயினும்
+> ஊக்கமுடன் குருபக்தியுடன் பணிய
+> ஊக்குவிக்குமே சாதன சதுஷ்டயம்
+> ஊர்த்வ மூலமான எங்கள்குரு ஶ்ரீ பாரதீ தீர்த்தரே !
+>
+> எவ்விடத்திலும் பூர்ணமாய் நிறைந்து
+> எக்காலத்திலும் திடமாய் நின்றிட்டு
+> எவ்வுயிரிலும் கருணையாய் பரவிடும்
+> எம்பெருமான் ரூபமான எங்கள்குரு ஶ்ரீ பாரதீ தீர்த்தரே !
+>
+> ஏகமான ப்ரும்மமே சத்தியம்
+> ஏனையால் ஏற்றதாழ்வு எண்ணலாகாது
+> ஏற்றிருக்கும் தெய்வரூபத்தில் என்று
+> ஏனையோர்க்கு போதித்த எங்கள்குரு ஶ்ரீ பாரதீ தீர்த்தரே !
+>
+> ஐம்பொறிகளுக்கு எட்டாத வஸ்துவாம்
+> ஐந்துறையினுள் புதைந்த பொக்கிஷமாம்
+> ஐயன் குருவின் அருளாலே அறியுமந்த
+> ஐயனான எங்கள்குரு ஶ்ரீ பாரதீ தீர்த்தரே !
+>
+> ஒலிக்கும் மறையின் தத்துவமே
+> ஒளிக்கு ஒளியான ஞானரூபமே
+> ஒடுங்கும் எல்லாம் சுத்தசைத்தன்யமே
+> ஒப்பில்லை உமக்கு எங்கள்குரு ஶ்ரீ பாரதீ தீர்த்தரே !
+>
+> ஓங்கிடும் உண்மையின் உறைவிடம்
+> ஓதிடும் மறைகளின் அந்தமாம்
+> ஓரான தத்துவத்தின் சாரமாம்
+> ஓங்கார ரூபமான எங்கள்குரு ஶ்ரீ பாரதீ தீர்த்தரே !
+>
+> ஒன்றிட்டு குருவடியினில் வீழ்ந்திட்டால்
+> ஔஷதமது அஞ்ஞானப் பிணியினுக்கு
+> ஓடமது சம்சாரக்கடலை கடப்பதற்க்கு
+> ஔதார்ய மூர்த்தியான எங்கள்குரு ஶ்ரீ பாரதீ தீர்த்தரே !
+>
+>                                      மஹாதேவன் பாபு
+> Mahadevan Babu
+> babunim at optushome.com.au
+>
+>
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>

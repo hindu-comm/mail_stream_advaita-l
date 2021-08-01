@@ -1,0 +1,81 @@
++++
+title = "57 Venkata sriram P"
+date = "2011-06-11"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2011-June/027574.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2011-June/027574.html)
+
+Dear Shri Murty,
+
+Answers to these issues were already clarified by me in my old post on
+relationship between Kashyapa Prajapati & Aditi. The Vidhi & Nishedhas
+in Veda are only to ordinary mortals like us. 
+
+There are two types of births among the Seers depending upon the medium of placing the
+rEtas (semen). One is “bIja pradhAna” and other is “kShEtra pradhAna”. Purusha Virya 
+decides the bIja pradhAna janma and strI shONita decides the kShEtra pradhAna janma.
+Among the ancient seers, it was “bIja pradhAna janma” that was more important. It doesn’t Manner, in which kShEtra, the bIja is placed, it is their “tapas shakti” that is being transferred through their rEtas into the kShEtra. Thus, whoever is born through the Rishi, perform the tapas, regain their brahma tEjas & Ojas and attain brAhmaNatva. This is only possiblethrough penance & prAyaschittAs. The Rishis who are Mantra Drashtas are beyond this. Because, they regain their lost luster, penance with prAyaschitta kANDa and perform the tapas again with doubled vigour. I would like to cite couple of instances of 
+2 great seers (mantra draShTAs) who blessed the posterity with great mahAmantras 
+& sUktAs of Rg Veda. They are VisvAmitra & Dirghatamas. 
+
+The biographical sketch of Viswamitra & Dirgatamas who are famous 
+mantra draShTAs in Rg Veda stand testimony to this.
+
+While performing tapas, visvAmitra succumbed to Menaka. Lost his tapas sakti. 
+performed the tapas again and regained the vigour. Succumbed to his own
+anger, fought with Vashishta. Lost his tapas sakti. Performed the penance again
+and regained his vigour. At last, he attained the brAHmaNatva and was declared
+as brahmarishi by none other than Vashishta. He gifted the humanity with
+Gayatri Mantra. He is gifted with a son Madhucchandas who is again another
+Great tapasvi and mantra draShTa who outwitted his own father in 
+mantra darShaNa for envisioning gayatri mantra 52 times. It is said that
+visvAmitra envisioned gAyatri 50 times whereas his son madhucchandas
+envisoned 52 times. Both blessed us with great sUktAs of Rg Veda. 
+
+Now, take the case of dIrghatamas who envisioned the most powerful and
+most fabulous sUkta of Rg Veda called “asyavAmIya sUkta” also called
+“suparNa sUkta”. It has 52 riks and is supposed to be highly symbolic 
+in nature with several esoteric meanings that extend even to the principles
+of jyOtiShya, tantra, srividya etc. 
+
+The father of dIrghamas was Rishi Uttichya. Uttitchya and Brihaspati were brothers. 
+The wife of Uttichya is Mamata. One fine day, Mamata conceives through Uttichya. 
+When she was 7 months pregnant, Uttichya has leave for nearby village
+to officiate a kratu. Taking the advantage of the absence of Uttichya, Brihaspati
+approaches Mamata for maithuna. Mamata refuses being pregnant. The
+child inside the womb of Mamata was listening to the words of Brihaspati 
+accuses Brihaspati of his immoral behavious. Brihaspati, thus, enraged, curses
+the child to be born as blind. And thus, Child was born without eyesight and 
+hence he was named “dIrghatamas”. “dIrgha” means “prolonged” and “tamas”
+means “darkness”. Because, he was born blind and everything was dark before him
+at the time of birth, he was named so. 
+
+The same rishi dIrghatamas is said to have performed Agni Upasana and 
+regains his lost eyesight. With intense tapas again, blessed us with wonderful
+sukta of Rg Veda called “asyavAmIya sUkta” which has the famous mantras like
+“dvA suparNa sAyujya sakhA….”, “ekaM sat viprAh bahudhA vadanti”, 
+“gaurIrmimAya salilAni…………aShTapadi navapadi babhUvuShi sahasrAkSharA 
+paramE vyOman” etc. 
+
+In the long run, he marries a beautiful girl. This wife ditches the sage. When he was doing penance, he was carried away by the hooligans and thrown in a river. Poor Dirghatamas swam across the river and married a dAsi (servant) and through them (Dirghatamas & the dAsi), was born a great seer of Rg Veda whose name is kakShivAn, another stalwart in 
+Rg Veda Mantra Darshana Bhaga. 
+
+So, the moral of these is that, riShIs, even though, they succumb to the pressures of
+Virtues & vices, they regain their lost lusture, ojas sakti, tapas sakti through performance
+of penance with doubled-vigour and prAyaschittAs. They possess so much of
+mental strength that they used to perform “chAndrAyaNa vrata” as a part of prAyaschitta.
+We ordinary mortals neither perform the tapas like the ancient seers nor possess 
+the mental stamina of performance of prAyaschitta kANDa. We can’t skip our morning meals and night dinner for one day, what to speak of “chAndrAyaNa vratta”. 
+
+So, one is free to emulate them and exercise free will provided, they too possess the
+tapas sakti like that of our ancient seers. And hence, the source of origin of rivers & 
+seers should not be asked (riShi mUla & nadi mUla).
+
+Sage Valmiki has blessed us with Srimad Ramayana as he has foreseen the events in
+Kali Yuga and there would be more questioners on dharma sAstra who would be interested only in jignAsa but not acharaNa. And hence, put forth Lord Ramachandra & Acharya Hanuman before us to emulate them.
+
+rAmO vigrahavAn dharmaH
+
+regs,
+sriram

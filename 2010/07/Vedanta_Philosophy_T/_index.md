@@ -1,0 +1,4 @@
++++
+title = "Vedanta Philosophy Thesis"
+
++++

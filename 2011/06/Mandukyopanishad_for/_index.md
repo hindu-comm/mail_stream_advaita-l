@@ -1,0 +1,4 @@
++++
+title = "Mandukyopanishad for Sanyasis"
+
++++

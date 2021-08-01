@@ -1,0 +1,123 @@
++++
+title = "68 Michael Shepherd"
+date = "2009-09-04"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2009-September/022456.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2009-September/022456.html)
+
+Pranams Shri  Shyam-ji and others
+
+I'm not here to cavil, but --at least for myself -- to universalise our
+discussions..
+
+The dhatu vid from which veda (small v..) comes, includes the meanings :
+find out, comprehend, know about, be conscious of, have a correct notion
+of... it's proposing a course of investigation.
+
+The Veda (big V) are a means of that as the trayi-vidya in Hinduism.
+
+But the 'veda' method must apply to all sacred writings for other faiths.
+And however one interprets apaurusheya, that 'comprehending' requires seers
+to first articulate the Veda, and our individual understanding to realise
+that in ourselves.
+
+I find any  mention of 'comparative religion' and 'conversion' distasteful
+in relation to self-realisation, kaivalya or moksha.
+
+So there should be no limit of chauvinism or ethnicity placed on the Self,
+as you imply.
+
+Then we get a divine 'no-claims bonus' !
+
+I hope we're in agreement ?
+
+Michael
+
+
+
+...-----Original Message-----
+From: advaita-l-bounces at lists.advaita-vedanta.org
+[mailto:advaita-l-bounces at lists.advaita-vedanta.org]On Behalf Of Shyam
+Sent: 04 September 2009 16:57
+To: A discussion group for Advaita Vedanta
+Subject: Re: [Advaita-l] [advaitin] Veda-s & its apaurusheyatva
+
+
+
+Pranams Shri Michael-ji and others,
+I suspect that some people may be reading into what Shri Pravin-ji has so
+consistently articulated, an approach that is based on chauvinism or
+ethnocentricity. I would like to submit that in fact when examined it is the
+exact opposite.
+
+This thread was concerned primarily with the status of the Vedas as
+apaurusheya and what that term signified.
+
+Now those not in the Vedic fold have their own scriptures to adhere to. It
+is wrong to use the term Veda for that. It is also unnecessary. Every belief
+system has internal validity for its followers. There is no need to dilute,
+or waterdown, or in anyways liberalize the doctrines of the Vedic path, in
+order that may make it more palatable to members of other faiths.
+
+When we attempt to do this we actually undermine the validity of those
+faiths as well. Why should we look at the Bible or the Quran as Veda? Are
+the Abrahamic faiths in need of "Vedic" validation in order for them to be
+considered Holy? There is wisdom in every religious scripture, and every
+religion has the tools to spiritually cater to the particular temparament
+and mindset of its followers.
+
+All this talk of allowing or encouraging "conversion" is silly, as was
+pointed out by His Holiness Chandrashekhara Bharati "since he was born in a
+particular faith, it was best suited for him to pursue his spiritual
+advances in that faith" - similar messages have been similarly articulated
+by His Holiness the Sage of Kanchi as well.
+
+The reason can be found in Lord Krishna's words "- Better is one's own
+dharma than another's"...shreyah sva-dharmo vigunah para-dharmat
+svanusthitat sva-dharme nidhanam shreyah para-dharmo bhayavahah" Of course
+in this particular context Bhagwan is referring to the ashramadharma and
+varnadharma, but in todays context we can by implication allow this
+principle to guide us in regards to the issue of interfaith conversion. To
+say that a devout Christian who with unswerving faith embraces austerity,
+and penance, and charity, and meditation, and dispassion to the world, and
+Supreme love and prayer to the Lord, the Father in Heaven, and Surrender,
+will be denied the Kingdom of God - unless that earns him enough karmic
+points to find Hinduism is this lifetime and come to Vedanta - to my mind is
+what is chauvinistic. Let everyone have not only the freedom but let
+everyone be encouraged to have unswerving faith and devotion to his or her
+religious background and
+ its doctrines and its "God" - i.e. the one they were born with - such is an
+attitude that stems from implicit faith in the infallibility of the Order
+that is Ishwara, and that this Order would have rightfully fashioned for an
+individual the environs that are best suited to his or her spiritual
+upliftment, and that every such environ has validity in its sphere of
+influence. A person who loses faith in his doctrine today and is looking for
+a change, may well be the doubting Thomas who loses faith in the new
+religion he is now embracing, as soon as his wavering mind finds some other
+faith even more appealing.
+
+All of religion is ONLY about spiritual progress as its ultimate
+goal...bereft of this end, no religion including the vedic path, has any
+relevance whatsoever.
+
+Hari OM
+Shyam
+
+
+
+_______________________________________________
+Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+http://blog.gmane.org/gmane.culture.religion.advaita
+
+To unsubscribe or change your options:
+http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+
+For assistance, contact:
+listmaster at advaita-vedanta.org
+
+
+
+
+
+

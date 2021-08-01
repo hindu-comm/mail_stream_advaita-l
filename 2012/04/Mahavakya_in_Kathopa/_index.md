@@ -1,0 +1,4 @@
++++
+title = "Mahavakya in Kathopanishat"
+
++++

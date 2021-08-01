@@ -1,0 +1,147 @@
++++
+title = "93 Nithin Sridhar"
+date = "2013-12-10"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2013-December/035964.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2013-December/035964.html)
+
+One must first understand what is Real and what is Unreal. The sanskrit
+term for the same is Satyam and Mithyam. That which exists the way it does
+eternally is called as Satya. That which has only temporary existence is
+called Mithya. God is described as Satya/Real because he is eternal,
+birthless and without undergoing any change. But, the world on other hand,
+is temporary and undergoing change from birth to death. Hence, it is called
+Mithya. As one it has only temporary existence and two it does not have
+independent existence.
+
+Now, do you deny the temporary nature of the things of the world?
+
+-Nithin
+
+
+On Tue, Dec 10, 2013 at 3:26 PM, <rajaramvenk at gmail.com> wrote:
+
+> How would you ascertain that the world is unreal? It is a position not
+> acceptable by other astika darshanas even. Unreality is also contradicted
+> by direct experience of reality of even a jnAni.
+> Sent from my BlackBerry® wireless device
+>
+> -----Original Message-----
+> From: V Subrahmanian <v.subrahmanian at gmail.com>
+> Date: Tue, 10 Dec 2013 14:30:25
+> To: Rajaram Venkataramani<rajaramvenk at gmail.com>; A discussion group for
+> Advaita Vedanta<advaita-l at lists.advaita-vedanta.org>
+> Cc: balagopal ramakrishnan<rbalpal at yahoo.co.in>
+> Subject: Re: [Advaita-l] Real vs. Unreal
+>
+> On Tue, Dec 10, 2013 at 1:52 PM, <rajaramvenk at gmail.com> wrote:
+>
+> > Yes. That the world is unreal is not a matter of direct experience even
+> > for a jnani. Its  a position arrived at through a particular
+> interpretation
+> > of scriptures and is just a mental construct. Is it not?
+> >
+>
+> The way Advaita sees it, the 'experiencing the world' itself is a product
+> of avidya, adhyasa, in other words, a mental construct.   To remove that, a
+> counter mental construct is advanced: to understand that the
+> perceiver-perceving-perceived duality, verily a triad, is mithyA.  This is
+> arrived at by the study of the upanishad with yukti, manana and
+> nidhidyAsana.  On the one hand this exercise gives one the knowledge of the
+> underlying Truth, Brahman, the Self and on the other the mithyAtva
+> nishchaya pertaining to the world-phenomenon.  So, this nishchaya does not
+> require the vanishing of the triad spoken of above.  It can co-exist with
+> it.  That is called jivanmukti by Swami Vidyaranya in the Panchadashi.
+>
+> regards
+> subrahmanian.v
+>
+>
+>
+> > Sent from my BlackBerry® wireless device
+> >
+> > -----Original Message-----
+> > From: balagopal ramakrishnan <rbalpal at yahoo.co.in>
+> > Date: Tue, 10 Dec 2013 16:08:28
+> > To: rajaramvenk at gmail.com<rajaramvenk at gmail.com>; A discussion group for
+> > Advaita Vedanta<advaita-l at lists.advaita-vedanta.org>; A discussion group
+> > for Advaita Vedanta<advaita-l at lists.advaita-vedanta.org>
+> > Reply-To: balagopal ramakrishnan <rbalpal at yahoo.co.in>
+> > Subject: Re: [Advaita-l] Real vs. Unreal
+> >
+> > >> experience of jIvan mukti
+> >
+> > RV Ji, isn't experience in the realm of duality contrasting moksha. i.e a
+> > 'jnani' doesn't experience differently, he understands. Isn't seeing
+> clay,
+> > gold and ultimately brahman is all that to liberation.
+> >
+> > Regards
+> >
+> > Balagopal
+> >
+> >
+> >
+> > On Sunday, 8 December 2013 11:32 AM, "rajaramvenk at gmail.com" <
+> > rajaramvenk at gmail.com> wrote:
+> >
+> > Dear All,
+> >
+> > We all see a pot where a pot is. We see a rope where a rope is. We may
+> > mistake a rope for a snake due to similarity but we don't mistake it a
+> rope
+> > for a pot, man or silver. The universal nature of our objective
+> experience
+> > (pot, pain etc.) should tell us that there is an objective reality
+> > underlying them. If we say that the underlying reality is false, we will
+> > fail to deal with them in an objective manner. The experiences of pain
+> and
+> > pleasure are universal to all creatures and result from the underlying
+> > realities such as disease, desirable objects etc. Materialism based on
+> > realism is required to focus on medical research that remove pain and
+> > making iPhones that increase pleasure. Is it not?
+> >
+> > I agree that vedanta gyana known through meta-physical perspective
+> through
+> > sastras and logic is necessary for liberation or eternal bliss. Even
+> there
+> > we may make devices and drugs that give the experience of jIvan mukti by
+> > creating the required mental modification.  I see a convergence of
+> physics
+> > and meta-physics in future. What do you scholars think?
+> >
+> > Best Regards
+> > RV
+> > Sent from my BlackBerry® wireless device
+> > _______________________________________________
+> > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> > http://blog.gmane.org/gmane.culture.religion.advaita
+> >
+> > To unsubscribe or change your options:
+> > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> > _______________________________________________
+> > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> > http://blog.gmane.org/gmane.culture.religion.advaita
+> >
+> > To unsubscribe or change your options:
+> > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> >
+>
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
+

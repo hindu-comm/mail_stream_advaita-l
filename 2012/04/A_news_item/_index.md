@@ -1,0 +1,4 @@
++++
+title = "A news item"
+
++++

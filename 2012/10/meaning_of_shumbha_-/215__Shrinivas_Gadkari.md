@@ -1,0 +1,61 @@
++++
+title = "215 Shrinivas Gadkari"
+date = "2012-10-19"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2012-October/033418.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2012-October/033418.html)
+
+Namaste,
+
+Apologies to add to this post before hearing from anyone.
+
+Possible approaches to this using other similar words
+and instances:
+
+1. shuMbha:
+ if we remove anusvAra from shuM, we get: shubha
+if we shift "u" from "shuM" to "bha" we get : shaMbhu
+ shubha means good/ auspicious, shambhu is one who promotes good.
+ Can we somehow conclude from this that : shuMbha is a 
+ subtle perversion of shubha or shaMbhu. Any support to this 
+ interpretation from grammar/ etymology?
+
+2. ni-shumbha
+Consider yama - niyama
+ If we take the meaning of niyama as it used in Indian languages
+today (hindi, marathi, ...) it means a discipline that is to be
+ followed as a routine. So then we can extend this to yoga to
+ possibly mean: that which isreferred toin yama is given a 
+ continuity though practice of niyama. Any support to this from
+ grammar / etymology?
+
+If yes, then we can possibly have nishumbha mean one who gives
+ continuity to whatever shumbha represents?
+
+
+3. While we are on this topic, if some one can similarly analyze
+ what kaiTabha may mean, it will be most useful.
+
+
+Regards,
+Shrinivas
+
+
+
+ 
+
+________________________________
+ From: Shrinivas Gadkari <sgadkari2001 at yahoo.com>
+To: Advaita-l List <advaita-l at lists.advaita-vedanta.org> 
+Sent: Saturday, October 20, 2012 8:02 AM
+Subject: meaning of shumbha - nishumbha
+
+
+Namaste,
+
+What would be the possible meanings of shumbha and nishumbha
+only from sanskrit grammar/ etymology viewpoint.
+
+Thanks,
+Shrinivas

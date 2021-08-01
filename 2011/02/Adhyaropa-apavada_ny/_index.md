@@ -1,0 +1,4 @@
++++
+title = "Adhyaropa-apavada nyaya"
+
++++

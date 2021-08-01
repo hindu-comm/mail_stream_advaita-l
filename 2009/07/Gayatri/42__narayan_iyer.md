@@ -1,0 +1,64 @@
++++
+title = "42 narayan iyer"
+date = "2009-07-18"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2009-July/022006.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2009-July/022006.html)
+
+
+not to be left out, there is also a gayatri for jesus doing the rounds in internet forums"
+
+"Jerusalanathaya vidmahe, mary-putrya dhimahi, tanno yeshu prachodayat"
+
+with regards,
+
+narayan
+
+--- On Fri, 7/17/09, Bhaskar YR <bhaskar.yr at in.abb.com> wrote:
+
+> From: Bhaskar YR <bhaskar.yr at in.abb.com>
+> Subject: Re: [Advaita-l] Gayatri?
+> To: "A discussion group for Advaita Vedanta" <advaita-l at lists.advaita-vedanta.org>
+> Date: Friday, July 17, 2009, 1:50 PM
+> But, as Upanishads,
+> these Gayatri Mantras are as old as the Upanishads itself.
+> 
+> praNAms 
+> Hare krishna
+> 
+> Apart from these gAyatri-s, we have graha gAyatri maNtra-s
+> also for all 
+> the nava graha-s...in sudarshana kalpa there are 108
+> differnt 'sudarshana 
+> gAyatri maNtra-s...And there is also a book available on
+> 'sakala devatA 
+> gAyatri maNtrAH' where in you can find gAyatri maNtra for
+> all members of 
+> Lord rAma family (dasharatha, kausalya, seeta, lakshmaNa,
+> bharata, 
+> shatrugna, hanuman etc.) and also gAyatri maNtra for
+> gramAdi devata, 
+> kuladevata that includes pattAlamma, kenchamma, mAramma,
+> kAteramma, 
+> kaveramma, mArtAnda, bhairava, dhUmrAvati etc. etc.
+> :-)) I think anyone 
+> who knows this meter can create gAyatri maNtra of his
+> choice :-))
+> 
+> Hari HariHari Bol!!!
+> bhaskar 
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+> 
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> 
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+> 
+
+
+
+

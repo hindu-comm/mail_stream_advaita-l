@@ -1,0 +1,4 @@
++++
+title = "Kanchi Sankaracharya case"
+
++++

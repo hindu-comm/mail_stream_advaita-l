@@ -1,0 +1,4 @@
++++
+title = "Gudharthadipika of Madhusudana"
+
++++

@@ -1,0 +1,4 @@
++++
+title = "Guru - yoga -jnana"
+
++++

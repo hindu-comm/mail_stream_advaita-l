@@ -1,0 +1,53 @@
++++
+title = "204 ShankaraBharadwaj Khandavalli"
+date = "2011-05-31"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2011-May/027494.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2011-May/027494.html)
+
+Namaste,
+
+It is only like saying brahman is everything that is bound and not bound. 
+Advaitic position is that brahman is the sakshi and not bhokta, so there is no 
+avidya or vidya or bandha or moksha. The whole cycle of bandha and moksha is for 
+the bhokta, the upadhi samuccaya, and brahman is what shines in all of that, 
+undifferentiated from them. So there is only adhyasa of bandha and moksha. 
+
+
+This is not the sense in which Sri Ramanuja quotes Advaita. His evaluation is in 
+terms of bandha and moksha being real transformations that happen to brahman. 
+Which is obviously not Advaitic position. 
+
+
+
+Secondly, this is not a "statement of Advaitic position" but only an admission 
+in the phenomenal sense. 
+
+
+
+
+Shankar
+
+
+V Subrahmanian v.subrahmanian at gmail.com 
+Mon May 30 12:34:10 CDT 2011 
+________________________________
+
+2011/5/30 ShankaraBharadwaj Khandavalli <shankarabharadwaj at yahoo.com>  > 
+While the Visistadvaita position is internally consistent, its refutation > of 
+Advaita is flawed because it misstates Advaita position before setting > out for 
+refutation. > > For instance, Sri Ramanuja states Advaita position in his 
+VedArtha Sangraha > as > > "brahmaiva ajnam, badhyate, mucyate ca" > > this is 
+clearly not Advaitic position. >  Namaste.  The following position is admitted 
+in Advaita:  ब्रह्मैव स्वाविद्यया बध्यत इव, स्वविद्यया मुच्यत इव ।  The 'iva' is 
+very important. Shankaracharya's bhashyam for the Br.Up.1.4.10 substantiates 
+this position.  This is the relevant bhashyam:      - // ब्रह्मणि 
+अविद्यानुपपत्तिरिति चेन्न । ब्रह्मणि विद्याविधानात् ।    .....न ब्रूमः 
+शुक्तिकायामिव ब्रह्मणि अतद्धर्माध्यारोपणा नास्तीति । किं    तर्हि? न ब्रह्म 
+स्वात्मनि अतद्धर्माध्यारोपनिमित्तं अविद्याकर्तृ च इति ।    भवत्वेवं, न 
+अविद्याकर्तृ भ्रान्तं च ब्रह्म । *किन्तु नैव अब्रह्म    अविद्याकर्ता चेतनो 
+भ्रान्तोऽन्य इष्यते ।* ’नान्योऽतोऽस्ति विज्ञाता’, ’नान्यदतोऽस्ति    विज्ञातृ’, 
+’तत्त्वमसि’,  ’आत्मानमेवावेदहं ब्रह्मास्मि’ ...इत्यादिश्रुतिभ्यः    । 
+स्मृतिभ्यश्च ’ समं सर्वेषु भूतेषु’, ’अहमात्मा गुडाकेश’  ...। //  Regards, 
+subrahmanian.v

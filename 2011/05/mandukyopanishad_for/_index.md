@@ -1,0 +1,4 @@
++++
+title = "mandukyopanishad for sanyasis"
+
++++

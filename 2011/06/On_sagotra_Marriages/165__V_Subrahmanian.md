@@ -1,0 +1,45 @@
++++
+title = "165 V Subrahmanian"
+date = "2011-06-19"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2011-June/027670.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2011-June/027670.html)
+
+On Sun, Jun 19, 2011 at 10:04 PM, Rajaram Venkataramani <
+rajaramvenk at gmail.com> wrote:
+
+>
+> From the word itself. sagotra as you know means same lineage. In
+> brahminical Tamil, we use sagotharan and sagothari to indicate brother and
+> sister respectively.
+>
+
+The amarakosha gives these synonyms:
+
+सहजः, सगर्भ्यः, समानोदर्यः, सोदर्य: (all in masculine).  This means: born
+along with/ from the same womb.
+
+In the Apte Dictionary for the word सह + उदरः (सहोदरः) the meaning is: A
+uterine brother.
+
+For the word: सोदर it is  ’born from the same womb'. सोदरा is a uterine
+sister.
+
+For सोदर्यः the meaning is 'A co-uterine brother', brother of whole blood..
+
+In Kannada they refer to a maternal uncle (mAma) as सोदरमाव and for a
+paternal aunt (athai) सोदरत्ते.
+
+I think 'sodarI' / ’sahodari' in the feminine form too is admissible in
+Sanskrit /Telugu to refer to a sister as we find in Shyama Sastri's
+compositions: श्यामकृष्णसोदरि गौरि...
+
+In the famous kRti: हिमगिरितनये हेमलते ..there is the usage: सामसहोदरि..
+I have also heard of the usage: भिन्नोदर...to refer to a half-brother.
+
+The Tamil usage you have shown is only the 'corrupt' form of 'सहोदर/रि’ and
+does not refer to the 'gothra'.
+
+Regards,
+subrahmanian.v

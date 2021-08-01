@@ -1,0 +1,4 @@
++++
+title = "Bhakthi and Jnana"
+
++++

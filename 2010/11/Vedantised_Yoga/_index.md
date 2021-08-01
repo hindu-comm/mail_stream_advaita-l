@@ -1,0 +1,4 @@
++++
+title = "Vedantised Yoga"
+
++++

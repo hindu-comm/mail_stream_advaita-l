@@ -1,0 +1,95 @@
++++
+title = "230 Sunil Bhattacharjya"
+date = "2013-12-20"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2013-December/036116.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2013-December/036116.html)
+
+As regards the "Hare Rama - - - - - " mantra it is given in the Kali-Santarana upanishad, which belongs to the Krishna Yajurveda. Any speculation as to its origin of that mantra in the Radha Tantrta may not have any validity.
+
+Sunil KB 
+
+
+
+
+
+On Thursday, December 19, 2013 9:30 PM, D.V.N.Sarma డి.వి.ఎన్.శర్మ <dvnsarma at gmail.com> wrote:
+
+एकानेकाक्षरि भुवनेश्वरि
+एकानन्दामृतझरि भास्वरि
+एकाग्रमनोलयकरि श्रीकरि
+एकाम्रेशगृहेश्वरि शंकरि ... कंजदळायताक्षी कामाक्षि
+
+regards,
+Sarma.
+
+
+On Fri, Dec 20, 2013 at 10:29 AM, Vidyasankar Sundaresan <
+svidyasankar at hotmail.com> wrote:
+
+> There may be historical reasons for manuscript variations or there may
+> have been specific doctrinal reasons for different teachers to teach
+> different sequences in a mantra. One must remember that a mantra is chanted
+> not just once, but many times in succession. So when establishing a saMtati
+> in repeating any mantra, one could parse it either way, without getting too
+> bothered about which is "correct".
+>
+>
+>
+> Surely, you remember the south Indian story about how vAlmIkI could not
+> say the word rAma, but could say mara (= tree), so he was taught to repeat
+> marA, marA, marA, ... which by continous repetition over time transformed
+> into rAma, rAma, rAma, ...
+>
+>
+>
+> The possibility of this happening is what is meant by saying that the
+> order does not matter.
+>
+>
+>
+> Vidyasankar
+>
+>
+>
+>
+> > To: advaita-l at lists.advaita-vedanta.org
+> > From: rajaramvenk at gmail.com
+> > Date: Tue, 17 Dec 2013 06:09:25 +0000
+> > Subject: Re: [Advaita-l] Hare Rama
+> >
+> > I don't know what you mean the order doesn't matter. No one, advaitin or
+> otherwise, should change the mantras in the upanishad. it would be
+> whimsical. Like I said there are three textual references (two versions of
+> the kali santarana manuscript and radha tantra). We should critically
+> evaluate the texts.
+> >
+> > For this mantra, there is no regulation whatsoever as per the upanishad.
+> Does any one know what are the 16 kalas of the jIvA talked of in the
+> upanishad please?
+> >
+> >
+> > Sent from my BlackBerry® wireless device
+> >
+>
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+
+>
+_______________________________________________
+Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+http://blog.gmane.org/gmane.culture.religion.advaita
+
+To unsubscribe or change your options:
+http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+
+For assistance, contact:
+listmaster at advaita-vedanta.org

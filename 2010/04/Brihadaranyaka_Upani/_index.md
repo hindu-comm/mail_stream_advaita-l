@@ -1,0 +1,4 @@
++++
+title = "Brihadaranyaka Upanishad varit"
+
++++

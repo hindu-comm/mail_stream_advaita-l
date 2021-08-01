@@ -1,0 +1,120 @@
++++
+title = "84 Sujal Upadhyay"
+date = "2013-11-18"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2013-November/035784.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2013-November/035784.html)
+
+Pranams RK ji,
+
+I wonder why aren't yogis called as scientists !!!
+
+Swami Rama says that even Aghoris are also scientists and are masters in
+transforming one material into another. He has also cited e.g. of non-veg
+food being transformed into Bengali delicacies. Kenaram is a very famous
+Aghori.
+
+Kind Regards
+
+
+OM
+
+Sujal Upadhyay
+
+"To disconnect from the self and to become Aware of anything else is
+nothing but unhappiness" - Bhagawan Ramana Maharshi
+
+He who has faith has all
+He who lacks faith, lacks all
+It is the faith int he name of lord that works wonders
+FAITH IS LIFE, DOUBT IS DEATH - Sri Ramakrishna
+
+
+On Mon, Nov 18, 2013 at 3:19 PM, Srirudra <srirudra at gmail.com> wrote:
+
+> Dear Sri Rajaram Venkataramani
+> Science has so far not been able to focus on this .According to Brain
+> studies the majority of the Neuro scientists have denied existence of
+> anything like soul in the brain .Mind is only the name given to the
+> thinking process and it is defined as a flow of thoughts.Why thoughts arise
+> is still not known though theories are putforth.Really human being is a
+> mystery.Of course the entire universe and its functions are un fathomable
+> by our little brains.If at all soul is there it should be inside the brain
+> is the thinking of most physiologists .i also hold the same
+> view.R.Krishnamoorthy.
+>
+> Sent from my iPad
+>
+> > On 18-Nov-2013, at 11:35 am, rajaramvenk at gmail.com wrote:
+> >
+> > Thank you. I too thought the proof for soul is from shastras only and
+> resisted attempts to establish by logic. However, in ikyamyadhikarana
+> acharyal uses only logic to help lokayakas (materialists) understand soul.
+> If science points to an independent soul, will it not be better for modern
+> times?
+> > Sent from my BlackBerry® wireless device
+> >
+> > -----Original Message-----
+> > From: "Jaldhar H. Vyas" <jaldhar at braincells.com>
+> > Sender: "Advaita-l" <advaita-l-bounces at lists.advaita-vedanta.org>Date:
+> Sun, 17 Nov 2013 19:20:01
+> > To: A discussion group for Advaita Vedanta<
+> advaita-l at lists.advaita-vedanta.org>
+> > Reply-To: A discussion group for Advaita Vedanta
+> > <advaita-l at lists.advaita-vedanta.org>
+> > Subject: Re: [Advaita-l] Logical Basis of Soul
+> >
+> >> On Sun, 17 Nov 2013, Rajaram Venkataramani wrote:
+> >>
+> >> Is there an English translation available?
+> >
+> > Atmatattvaviveka of Udayana; critical edition with English translation
+> and
+> > explanation by Narayana Shastri Dravid.  Indian Institute for Advanced
+> > Study, Shimla, 1995.
+> >
+> >
+> >> Sankara's approach indicates
+> >> that logic (without reliance on textual authority) can be used to
+> determine
+> >> if soul distinct from matter exists. One may rely on modern methods to
+> do
+> >> so. Is that right?
+> >
+> > atma means "self" as well as "soul." While the existence of self is,
+> shall
+> > we say, self-evident :-), the pramana for soul like any other adhyatmic
+> > topic is from shastra only.
+> >
+> > --
+> > Jaldhar H. Vyas <jaldhar at braincells.com>
+> > _______________________________________________
+> > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> > http://blog.gmane.org/gmane.culture.religion.advaita
+> >
+> > To unsubscribe or change your options:
+> > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> > _______________________________________________
+> > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> > http://blog.gmane.org/gmane.culture.religion.advaita
+> >
+> > To unsubscribe or change your options:
+> > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
+
