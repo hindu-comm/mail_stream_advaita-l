@@ -1,0 +1,4 @@
++++
+title = "Narayanaya in Advaita"
+
++++

@@ -1,0 +1,128 @@
++++
+title = "164 श्रीमल्ललितालालितः"
+date = "2015-11-19"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2015-November/039769.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2015-November/039769.html)
+
+Thanks, Sive Senani Nori.
+It is helpful for many of us.
+BTW, you wrote :
+*However in the classification of what is Vidhi and what is not, MImAMsA
+and Advaita differ. The former hold that only those sentences which teach
+an action are vidhi, but Advaita holds that even those sentences which
+teach Brahman (but not any action) are important.*
+- here the first part mentions difference of vidhi among two mImAmsA
+schools. I assume that it is about meaning of vidhi-pratyaya. Now, the
+second part doesn't fit.
+So, I change my mind. I assume that vidhi means important. Then the second
+part fits somehow.
+
+BTW, you can add the first meaning assumed by me:
+vidhi-pratyaya means bhAvanA in mImAmsA and IShTa-sAdhanatva in advaita.
+Anyway, this is not similarity so not important to mention.
+But, it appears that a little difference was also revealed by you, so it
+may fit.
+
+
+*श्रीमल्ललितालालितः*www.lalitaalaalitah.com
+
+On Thu, Nov 19, 2015 at 8:34 PM, Siva Senani Nori via Advaita-l <
+advaita-l at lists.advaita-vedanta.org> wrote:
+
+> Recently there was a discussion and the quotation "व्यवहारे भट्टनयः" was
+> cited. I thought it would be helpful if this quotation is discussed.
+> This first occurs in the book तत्त्वप्रदीपिका (tattvapradIpIkA) by
+> CitsukhAcArya. This book is popularly known as CitsukhI (चित्सुखी). Here in
+> the first pariccheda, in the fifteenth topic, abhihitAnvayavAda [1] is
+> established. In the upasaMhAra, it is said: व्यवहारे भट्टनय इत्यङ्गीकारात्
+> (since the school of Kumarila Bhatta is agreed to [by AcAryas of Advaita]),
+> within the plane of transactions), in p 155 of the Nirnay Sagar edition
+> (you can access the particular page here:
+> https://dl.dropboxusercontent.com/u/89238017/chitsukhi%20extract%20-%20vyavahAre%20bhaTTanayaH.pdf
+> ).
+> This means that neither Gurumatam (the school of Prabhakara Misra) nor
+> Nyaaya (nor any other school like Vaisehika, Saamkhya or Yoga) is agreeable
+> to Advaita, to the extent the BhATTa school is. We see this agreement
+> between BhATTA school and Advaita in a number of other places. Even where
+> they differ, the two are the closest Darsanas, with some qualifications
+> [2].
+> 1. Veda is the pramANa for knowing the highest principle - Gurumatam,
+> BhATTamatam, VyaakaraNam and Advaita agree on this. Nyaya-VaiSeshika and
+> SAMkhya-Yoga derive their highest principle (ISvara and PradhAna,
+> respectively) through anumAna. Sruti is useful only for things such as
+> Svarga and Apsarasas in their view.
+> 2. Word denotes jAti according to Advaita and MimAmsA (both schools). In
+> NyAya, it is jAti-viSishTa-vyakti. VyaakaraNam accepts both at the level of
+> vyavahAra, but at ParamArtha level, both Advaita and VyAkaraNa reject jAti
+> as the meaning of words. Brahman alone is the reality. Refer:
+> अपागादग्नेरग्नित्वम् छा० उ० 6.4.1 and DravyasamuddeSa of Vakyapadiyam.
+> 3. Anupalabdhi as a pramANa is acceptable to BhATTas and Advaitins (and
+> also VaiyAkaraNas), but not PrAbhakaras, NaiyAyikas etc.
+> 4. For NaiyAyikas, anumiti happens through liñgaparAmarSa, but for
+> MImAMsakas and Advaitins, it happens through the knowledge of vyApti and
+> pakshadharmatA.
+> 5. Advaita, MImAMsA and VyAkaraNa agree that Sabda is nitya. The other
+> schools hold the opposite position.
+> 6. Advaita, MImAMsA and VyAkaraNa agree to the principle of
+> Sabdaprabhavatvam of Jagat (i.e. the world is born from Sabda), but not the
+> others. Refer Brahmasutra 1.1.28 (शब्द इति चेत् . . .)
+> 7. Where MImAMsA and Advaita subscribe to varNavAda (i.e. varNas arranged
+> in a certain order express meaning), VyAkaraNa holds that SphoTa is what
+> expresses meaning.
+> 8. SAmkhyas, Advaitins, MImAMsakas and VaiyAkaraNas are satkAryavAdins,
+> whereas NaiyAyikas are ArambhavAdins. (Some also call Advaitins
+> satkAraNavAdins, for Brahman is the ultimate reality, not Jagat).
+> 9. However in the classification of what is Vidhi and what is not, MImAMsA
+> and Advaita differ. The former hold that only those sentences which teach
+> an action are vidhi, but Advaita holds that even those sentences which
+> teach Brahman (but not any action) are important.
+> 10. Similarly, one major difference between MImAMsA and Advaita is about
+> the degree of reality of the world. There MImAMsakas and NaiyAyikas are
+> staunch Realists, whereas Advaita and VyaakaraNa are idealists or
+> conceptualists.
+> 11. The list can go on with svataHprAmANyam vs. parataHprAmANyam; whether
+> contact between vastu and indriya is essential or not for direct perception
+> (pratyaksha); whether indriya travels to the vastu or not in pratyaksha;
+> whether jAtitva (jAtau jAtiH) is accepted or not; whether pralaya is
+> accepted; on the role of ISvara; vivarta vs. pariNAma and so on.
+> Even later when VedAntaparibhAshA was written (the manual of Advaitas's
+> logic), MimAMsA influence continues. For instance the very first definition
+> in VedAntaparibhAshA - अनधिगताबाधितार्थविषयकज्ञानत्वं प्रमात्वम् - Here the
+> dala, अबाधित is the influence of MImAMsA.
+> RegardsN. Siva Senani
+> [1] The discussion is about the meaning of a sentence. Kumarila Bhatta
+> holds that first words express their meaning (abhidhaana) and then through
+> the mutual connection of these meanings (anvaya), the sentence meaning
+> (artha) is known. Thus the meaning of sentence is known through lakshaNA.
+> Prabhakara Misra and his followers hold that the words are first connected
+> to each other (anvaya) and then the meaning of the sentence (artha) is
+> expressed (abhidhaana). Here padaSakti is what expresses the meaning.
+> Nyaaya has a slightly different position. They accept that first the
+> meaning of words is known but the sentence meaning is known through
+> aakaankshaa. For VaiyaakaraNas, the additional meaning (i.e. meaning
+> gleaned from the sentence in addition to the meaning of words) is the
+> vaakyaartha and its relation is that of viSeshaNaviSeshyabhAva.
+> [2] Actually I think vyAkaraNa is closer to Advaita - if it is not held as
+> one form of Advaita itself (it indeed is so if we compare Brahmasiddhi and
+> Sphotasiddhi - but we need to realize that Mandana Misra also fused Mimamsa
+> positions and accepts Jnanakarmasamuccaya in Brahmasiddhi) - than Mimamsa
+> is. In my view the real reason for adopting bhaTTAnayaH is that for the
+> purpose of interpreting the meaning of Vedic sentences (which alone
+> establish Brahman as the ultimate reality), Mimamsa was the most respected
+> and that school had the best tool set (for instance, the six lingas for
+> interpreting - उपक्रमोपसंहारौ etc. are all from Mimamsa). However in the
+> important topic about the ultimate reality, their positions could not be
+> more different. Here is where Vyakarana is the closest and that is why the
+> word व्यवहारे is used.
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>

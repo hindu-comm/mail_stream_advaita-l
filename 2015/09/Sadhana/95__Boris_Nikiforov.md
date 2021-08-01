@@ -1,0 +1,34 @@
++++
+title = "95 Boris Nikiforov"
+date = "2015-09-26"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2015-September/039495.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2015-September/039495.html)
+
+Pranams,
+
+I have a question on sadhana (the regular spiritual practice) for advaitins.
+
+Back in 1990s, I spent two years in Hare Krsna movement (ISKCON). We
+chanted 16 rounds of japa daily, we followed so called "4 regulative
+principles" (no meat, no alcohol etc.), and studied some books like
+"Bhagavad Gita."
+
+These days I have a great interest in Advaita, especially Shankaracarya's
+teaching and I read regularly some books in English (Shankara's bhashyas,
+translation of Brahma Sutras by Swami Sivananda, translation of Upainshads
+by Swami Nikhilananda) but I would like to have some sadhana too like japa.
+What is the common traditional sadhana which can be adopted by a white
+married middle aged man like me? I love to do some japa regularly but I
+don't know a mantra I can chant without diksha. Back in ISKCON, I would
+chant "Hare Krsna mantra." Are there any other mantras I could chant
+without a diksha? Some years ago, one of the senior members of Advaita-List
+kindly explained me that Advaita means a world view. I do my best to
+understand Advaita world view studying books but this question is about
+practice.
+
+I would be thankful for any recommendations.
+
+~
+Boris

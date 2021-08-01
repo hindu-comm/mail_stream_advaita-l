@@ -1,0 +1,115 @@
++++
+title = "34 Sujal Upadhyay via Advaita-l"
+date = "2014-07-18"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2014-July/037244.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2014-July/037244.html)
+
+Namaste,
+
+I too am a Gujarati. I have got the same panchdevatA-s like Jaldhar bhai
+has given description. I too got it from my Grandfather who inturn got it
+from his grandfather :)
+
+Not all devatA-s (deities) need to be made up of stones or worshipped as
+stones e.g. SAligrAma as a roughly round stone.. Some say that out of
+SAligrAma, a deity can be sculpted. Don't have any sources to give further
+info. I am an average Hindu.
+
+Kind Regards
+
+OM
+
+Sujal Upadhyay
+
+"To disconnect from the self and to become Aware of anything else is
+nothing but unhappiness" - Bhagawan Ramana Maharshi
+
+He who has faith has all
+He who lacks faith, lacks all
+It is the faith int he name of lord that works wonders
+FAITH IS LIFE, DOUBT IS DEATH - Sri Ramakrishna
+
+
+On Fri, Jul 18, 2014 at 4:15 PM, Mikael Aktor via Advaita-l <
+advaita-l at lists.advaita-vedanta.org> wrote:
+
+> Dear Jaldhar H. Vyas Ji,
+>
+> Thank you for this information. It is interesting that you are from
+> Gujarat, because my impression is that today the pañcāyatana pūjā is more
+> practiced in the South than in the North. And - as you say - normally the
+> pūjā including the five stones or mūrtis are inherited from a father or
+> grandfather. It seems very much to be a family ritual.
+>
+> Best wishes,
+> mikael
+>
+> -----Oprindelig meddelelse-----
+> Fra: Advaita-l [mailto:advaita-l-bounces at lists.advaita-vedanta.org] På
+> vegne af Jaldhar H. Vyas via Advaita-l
+> Sendt: 17. juli 2014 07:56
+> Til: A discussion group for Advaita Vedanta
+> Emne: Re: [Advaita-l] Locations of pañcāyatana śilās
+>
+> On Tue, 15 Jul 2014, Mikael Aktor via Advaita-l wrote:
+>
+> >
+> > I am doing research on the pañcāyatana pūjā. As part of this I want to
+> > know the exact locations where the five śilās are collected. Some of
+> > these places are well described, but I have three doubts:
+> >
+> > 1) The exact location where the red śoṇabhadra śilās are collected. It
+> > is described as the area in Bihar where the Son River flows into the
+> > Gaṅgā, but is there a more precise description? A town or city?
+>
+> The Son river flows throught U.P. and Bihar (I think its source is even
+> further south than that.) and meets the Ganga at Patna.  That would be the
+> largest city.
+>
+> > 2) I have been told that the suvarṇamukhi śilā is collected from
+> > Swarnamukhi River, Andhra Pradesh, near the town of Srikalahasti. Is
+> > that correct?
+>
+> Yes.
+>
+>
+> > 3) The crystal / sphaṭika is said to originate from Vallam Town near
+> > Thanjavur, but some say that it is no longer found there. Is that
+> > correct, and if it is, where is the crystal collected now?
+>
+> Don't know about this one.  There is a sphatika in my puja but it probably
+> came from somewhere in Gujarat (I'm Gujarati.)
+>
+> All the dharmashastras are in agreement that these particular
+> shilas are to be used in Panchayatana puja but the concept of worshipping
+> Shiva, Vishnu, Shakti, Ganesh and Surya together is widespread even
+> amongst those who don't have all five.  For instance in my puja I have
+> the Banalinga and Shaligram but a panchaloha murti for Ganesh Bhagavan, a
+> silver coin inscribed with the image of Shri devi for Mataji, and the
+> aforementioned sphatika for Surya Bhagavan.  All these were inherited from
+> my grandfather.
+>
+>
+> --
+> Jaldhar H. Vyas <jaldhar at braincells.com>
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>

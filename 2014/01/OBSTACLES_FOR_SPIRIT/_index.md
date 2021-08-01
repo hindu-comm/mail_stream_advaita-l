@@ -1,0 +1,4 @@
++++
+title = "OBSTACLES FOR SPIRITUAL PROGRE"
+
++++

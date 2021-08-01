@@ -1,0 +1,174 @@
++++
+title = "115 Srivathsa Rao"
+date = "2015-03-30"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2015-March/038315.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2015-March/038315.html)
+
+Sir,
+
+ I am not telling to kill chatur varnashrama,to tell in better worlds,I
+want to unite brahmins....In brahmins there are three sects...smarthas
+,madhvas and sri vaishnavas...I want to bring all of them under single
+platform......
+
+Brahmins are the backbone of sanathana dharma ,if we unite them the unity
+among hindus will automatically comes....
+
+At present there is no unity among brahmins ,to bring unity among brahmins
+there is need to bring them under single platform..
+As unity among different sects will be always not as good as unity among
+single sect as homogeneous unity will always better than heterogeneous
+unity...
+
+Now when there is any injustice to brahmins there comes heterogeneous unity
+,but after a while this unity will die soon , as it is heterogeneous...but
+homogeneous  unity is not like that it lasts till end...
+
+Also some brahmins think if there is injustice to other sect or other sect
+brahmin ,it is good let it happen...this type of jealous will die ...if
+there is single dharma among brahmins
+
+You have asked by killing dvaita and vishistadvaita weather we are not
+killing creativity of hindu religion...for that my answer is..this newly
+formed religions are not there in shankaracharya's time,,these are the
+product of the new acharya's thinking way and these religion looks so
+childish....
+
+This athma's concept is not up to some one's thinking capacity that is why
+vedas are considered as apourusheya...that is why vedas and its hidden
+meanings has to be learnt from good lineage of guru paramapara.....
+
+This athman's concept is beyond this bhudhi as said by upanishads only
+...so ,we have to learn it from a proper guruparampara only not from some
+intellectual brilliant...which will be mostly wrong..as we can easily see
+in dvaita and vishistadvaita
+
+Shakara's advaita has a lineage from goudapadacharya who was a advaithi,but
+dvaita was not there before madhva,his teacher achutha preksha was
+aadvaithi...similarly ramauja's guru was aadvaithi......
+
+Always old is gold.....
+
+
+On Mon, Mar 30, 2015 at 11:47 AM, V Subrahmanian via Advaita-l <
+advaita-l at lists.advaita-vedanta.org> wrote:
+
+> On Sun, Mar 29, 2015 at 11:44 PM, Santosh Rao via Advaita-l <
+> advaita-l at lists.advaita-vedanta.org> wrote:
+>
+> > NamaskR,
+> >
+> > What were these 72 sects? it is my understanding that sankaracharyas
+> > philosophical opponents were mainly buddhists, jains, and mimamsikas not
+> > muslims. Is this incorrect?
+> >
+>
+> In this URL containing the Anandagiriya Shankara vijaya, on pdf p.12
+> onwards you can see a list of schools that are refuted. One can count at
+> the most 50 there.
+>
+> >
+> > What is the answer to the assertion that advaita vedanta is a
+> philosophical
+> > "compromise" with buddhism? Does this claim hold water?
+> >
+>
+> You can read a six-part series of articles on the topic: Buddhism, Advaita
+> and Dvaita published in this forum.  For the first part here is the URL:
+>
+> http://www.advaita-vedanta.org/archives/advaita-l/2011-May/027302.html
+>
+> You can locate the other parts too by suitably searching.
+>
+> regards
+> subrahmanian.v
+>
+>
+> > This is just myth.
+> > 'Removed 72 sects'?? From where??
+> > All minds?? Even most loyal of those sects?? Even from future minds??
+> >
+> > I don't think that just because there is a philosophy known as Vedanta,
+> > people will not convert. If it were true no one would have converted at
+> any
+> > time.
+> >
+> > It's man who decides what he wants to follow, right or wrong. Who gives
+> > even a single thought to validity of philosophy and arguments? Only a
+> few.
+> > So, only they don't convert because there is a philosophy and they can
+> > understand that. It's not applicable to masses.
+> >
+> > Debates are always going on among sects mentioned by you. But, it is not
+> to
+> > convert essentially.
+> > The argument which you think correct is flawed in other's view. So, it
+> > didn't prove your philosophy correct to him. So, he doesn't leave his
+> sect.
+> > Another thing, most debates are to show that they have studied their
+> > respective works and retain that. Some debates are to win prizes. So, the
+> > result you are expecting can't come from those debates.
+> >
+> > Do you think that mAdhva-s and shrI-vaiShNava-s are avaidika in every
+> > sense?
+> > No, it is not like that. They follow veda-s. They are already in home.
+> And,
+> > what veda-s want to say is debatable.
+> > So, stop being biased and forcing your thoughts on others.
+> > On Mar 29, 2015 7:03 PM, "Srivathsa Rao via Advaita-l" <
+> > advaita-l at lists.advaita-vedanta.org> wrote:
+> >
+> > > Before 1200 years there came shankaracharya  who removed 72 sects in
+> > > ancient sathana dharma and brought them under a single platform of
+> > advaita
+> > > vedanta,that is why ancient sanathana dharma is still present in india
+> > > otherwise we would have been muslim by now.
+> > >
+> > > The present day science even support advaita vedanta.Now my point is
+> why
+> > > can't some learned scholars can bring back madhvas and srivishnavas and
+> > > newly formed mathas under advaita vedanta by proper debate under
+> > upanishad.
+> > >
+> > > This will even support Rss 's Ghar Vapsi Right?
+> > > _______________________________________________
+> > > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> > > http://blog.gmane.org/gmane.culture.religion.advaita
+> > >
+> > > To unsubscribe or change your options:
+> > > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> > >
+> > > For assistance, contact:
+> > > listmaster at advaita-vedanta.org
+> > >
+> > _______________________________________________
+> > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> > http://blog.gmane.org/gmane.culture.religion.advaita
+> >
+> > To unsubscribe or change your options:
+> > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> > _______________________________________________
+> > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> > http://blog.gmane.org/gmane.culture.religion.advaita
+> >
+> > To unsubscribe or change your options:
+> > http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> >
+> _______________________________________________
+> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+>
+> To unsubscribe or change your options:
+> http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>

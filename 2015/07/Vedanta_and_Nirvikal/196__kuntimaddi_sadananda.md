@@ -1,0 +1,23 @@
++++
+title = "196 kuntimaddi sadananda"
+date = "2015-07-08"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2015-July/039009.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2015-July/039009.html)
+
+Part IV
+
+11. Some say when you meditate, the Self itself becomes a teacher. First, the all-pervading Self cannot teach, as it is one without a second; and has no instruments to teach and also from its point there is no need to teach as it is one without a second.  
+
+12. Self is revealed as objectless awareness- some say. Objectless awareness is indeed the pure OC alright, but since it is one without a second, there is no one for it to be revealed. It is pure part-less undifferentiated existence-consciousness. From the point of the individual the OC-RC-RM combo is always there as long as life in the body is there. 
+
+13. Some say - one has to look at the gap or silence between the thoughts; there self alone is there. First, if one is looking at the silence there is a duality too; seer and the seen. Silence also becomes an object of awareness; it is not objectless-awareness. If self is there only in silence then self-realization also gets limited to silence, and when the mind wakes up from silence, I will be in trouble since confused mind is back again. Ignorant silent mind is not much different from ignorant noisy mind.  Only benefit is he may not cause much damage to others since he is in silence. 
+
+14. Self –realization has to take place in the mind only. For the mind to recognize the self as the very substratum that pervades the universe, it has to do enquiry of itself. We use the moon analogy here to understand the problem. We need to recognize that without the moon present, the sunlight where the moon is, cannot be known. Thus to recognize the sunlight I need the moon – in fact this is true for any light. Similarly without the mind present the self that illumines the mind cannot be recognized. Important to remember that one cannot see the sunlight that is falling on the moon ( the OC part and word Saakshii is used to designate this part of OC – we are using the word -part - figuratively for communication, even though OC is part-less) and one can only see the reflected sunlight by the moon. The original sunlight that is falling on the moon and the reflected sunlight by the moon cannot be separated. (Technically, we can say that
+ Ontologically sunlight is of different order from the moonlight).  I have to cognitively RECOGNIZE or REALIZE the original sunlight while looking at the reflected sunlight by the moon. Now apply this to the mind – remembering the basic three components – the RM, RC, and OC which are present for every individual. All three are there all the time. Mind cannot be destroyed by any means – dissolution of the mind occurs only when a jnaani dies, called videha mukti. At the time, B part of BMI merges with virat, M or mind part with Hiranyagarba and I part with Iswara. Matter, subtle or gross is conserved. The OC remains as OC since now there is no RM and therefore no RC. Hence when Bhagavan Ramana says – mind is destroyed- what gets destroyed is the mind with wrong notions and as the wrong notions are destroyed by right understanding. Bhagavan Ramana used his mind to answer the questions and write the Upadesha saara etc. Had his mind been destroyed he
+ would not answered or composed the texts. By enquiry, the mind is educated and the jnaani RC-RM (with OC) behind realizes that I am the OC and RM-RC are instruments that can be used for the benefit of the world – loka kalyaanam. Anything other than OC is recognized as not really real, but only apparently real or mithyaa (illusion is wrong translation of the word).  
+
+For self-realization, one needs to know that there is OC, RM and RC all the time. I cannot separate them.   Currently – when asked who are you, I answer I am this, this and this. I am part is being associated with the intellect and RC, and the identification is done with -this, where -this -corresponds to intellect (and its accomplishments and failures), the mind (the emotional aspect that involve my passions and love, etc), and the body (male, female, white, black, Indian, etc).   I am identifying myself with what I am not since I am a changeless entity, while BMI and any other this, keeps changing. I have to RECOGNIZE OR REALIZE I am the changeless OC, while looking at RC/RM complex; and CLAIM that I am OC, and in my presence everything gets illumined. This claim has to be done using the mind only. Hence mind is required for self-realization since the confusion or ignorance is only in the mind and not in the self. 
+-----------
+Continued in the next part

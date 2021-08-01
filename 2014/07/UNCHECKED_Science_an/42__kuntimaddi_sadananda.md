@@ -1,0 +1,42 @@
++++
+title = "42 kuntimaddi sadananda via Advaita-l"
+date = "2014-07-15"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2014-July/037235.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2014-July/037235.html)
+
+Part III – Science and Vedanta
+
+What is Absolute Reality?
+
+Vedanta defines the absolute reality as that which can never be negated at any time, trikaala abhaaditam satyam. As an example, let us analyze a chair made of wood. Is that chair really real (styasya satyam) or only transactionally real? When I dismantle the chair or break it into pieces, it is no more a chair. What was there before and what is there now is only wood. Hence wood is more real than chair. Chair is only a name for a form of wood arranged in some fashion to serve some purpose, and gets negated when the form got destroyed. I can do this without breaking the chair into pieces. I can cognitively say that there is really no chair there but what is there is only wood currently in form. Chair is only transactionally real but not really real; and what is there really is wood. 
+
+Brihadaranyaka Upanishad says every object is nothing but just a name for a form with some function (naama, ruupa and kriya); and it has no substantiality of its own. However, if one looks at the wood carefully, it is just assemblage of organic fibers; and there is really no wood there. Organic fibers in turn are assemblage of molecules which are just the assemblage of atoms, which in turn are assemblage of electrons, protons and neutrons, etc. At each level the name and form or naama ruupa resolves into something else which is much more real than the previous state. The search for fundamental particles is still going on. In essence, we still do not know what chair really is as one form resolves into the next form. Vedanta says there is no real material substantive for any object. However, in these investigations what remains non-negatable that seems to fulfil the definition of the absolutely real is that which is present all the time, and without which
+ no investigation of any object is possible. That non-negatable one is the very inquirer, who is a conscious entity. 
+
+Vedanta says I negate the whole waking world, when I go to dream state, and negate both waking and dream states, when I go to the deep-sleep state, and negate that state when I am awake. Each state negates the other. However, I can negate each state but cannot negate my own presence in each state. The states can change but I remain changeless. I play the role of a waker in the waking state, dreamer in the dream state and deep-sleeper in the deep-sleep state. The roles that I play keep changing, but ‘I’ remains the same, like an actor who is playing different roles in different scenes. Vedanta says I am the only one in the universe who is absolutely real; where ‘I am’ should be understood as pure existent-conscious entity, and not the role that I play in each state. Thus each role is has relative reality in that state but I am the absolute reality independent of any state or experience in any state. I am the subject, conscious entity that cannot
+ be objectified. Hence I cannot know myself as an object of my inquiry, since I am the subject in all objective knowledge. 
+
+The analysis of the perception discussed above shows that I am that light of consciousness that illumines every thought which is locus of the object that I perceive. In the waking state, the waking world of plurality forms the object of my knowledge, in the dream state the dream world of plurality form the object of my knowledge, and in the deep-sleep state the homogeneous absence of knower-known duality forms the object of my knowledge, which also expresses as absence of any suffering or as reflected happiness. 
+
+Recognition of Myself
+
+While I play the role of waker in the waking state, and dreamer in the dream state and deep sleeper in the deep-sleep state, and I am neither a waker nor a dreamer nor deep sleeper since they are only roles in each state. Then who am I that is independent of the roles that I play? This forms the fundamental inquiry and Vedanta says I am pure existence-consciousness, which is limitless, and which is pure happiness since any limitation cause unhappiness. I can only experience the three states, waking, dream and deep-sleep states, where I am playing the roles of waker, dreamer and deep-sleeper. As long as I am in the BMI (body, mind, Intellect), I cannot but play the roles. I have to discover my true nature by negating the superficial roles that I am playing, while still playing, as neti, neti or not this and not this, since any this is only name, form and function; and thus arrive that I am pure existence-consciousness-limitless (sat-chit-ananda). Logical
+ analysis also indicates that the happiness that I am seeking comes from myself only. Yet, I mistake myself, with the limited body, mind and intellect, as I am this, in each state, and suffer the consequence of that identification.  Hence Vadanta, as a science of absolute truth, analyzes the fundamental human problem, and declares that by identifying myself with what I am not, I take myself to be mortal, ignorant and unhappy as I am. While Vedanta points out that being pure existence, I am eternal or unchanging; being consciousness I am pure knowledge (without qualifications) that we said is undefinable; and I am of the nature of pure happiness since I am infinite or limitless or full as I am.  In all human pursuits, I am trying to solve these three problems – I do not want to be mortal, I do not want to be ignorant and I do not want to be unhappy – which cannot be solved by any pursuits. At the same time I cannot give up the pursuits. All the
+ rat-race is fundamentally to achieve these three.  In essence, I am trying to solve a problem where there is really no problem to start with, and that every effort to solve a problem-less problem has become a fundamental human problem. Only solution to this problem is to recognize that there is no problem to start with by claiming myself to be pure existence-consciousness-limitless or as Bri. Up says – aham brahmaasmi. 
+
+Hence Vedanta becomes absolute science of reality, since it reveals the absolute truth that transcends time and space. Hence, Bhagavatpada Shankara says this in cryptic way,
+
+brahmasatyam, jagan mithyaa, jiivobrahmaiva naaparaH|
+anena vedyam tat shaastram, iti Vedanta dindimaH||
+
+In essence he says that, a) the absolute reality is Brahman or infinite, b) the world is only transactionally real and not absolutely real and c) and I am that Brahman. That by which all these three can be known is the real science (tat shaastram) and this is what Vedanta declares. 
+
+Finally, Vedanta also says knowing this one knows, in essence, everything. On the other hand, in the relative knowledge or in any objective science, strange it may sound, the more one knows the more ignorant one becomes. The reason is obvious. In the example of chair, we still trying to find out what chair really is; and this is true with any object in the universe. In any objective field of science, the more one inquires about the truth, the more it opens up with the result that I discover that what I know is very little compared to what I do not know. My ignorance grows more than my knowledge. My area of specialization becomes narrower and narrower, the more I enquire into the nature of reality. Thus my ignorance of the subject grows faster than my knowledge. Every scientific paper ends with the statement that lot more study is required to understand the problem. That is the nature of all objective sciences. On the other hand in Vedanta, a student asks
+ his teacher – Sir, please teach me that knowledge knowing which I will know everything – kasminno bhagavo vijanaate sarvam idam vijnaatam bhavati?. The teacher is happy to teach that absolute science of Vedanta knowing which one feels that he knows the very essence of everything. Hence Vedanta forms the absolute science, while all other objective sciences reveal only relative truths.  Bri. Up says all objective sciences come under the umbrella of avidyaa or ignorance only, since the ignorance increases with knowledge in any given filed. These objective sciences however play an important role in the transactional world for proper transactions.  However, considering these relative sciences as absolute and the absolute science as belief system only reveals our ignorance. 
+
+Hari Om!
+Sadananda
+
+

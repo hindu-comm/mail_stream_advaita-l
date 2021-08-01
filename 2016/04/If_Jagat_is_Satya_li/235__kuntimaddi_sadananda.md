@@ -1,0 +1,68 @@
++++
+title = "235 kuntimaddi sadananda"
+date = "2016-04-06"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2016-April/040839.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2016-April/040839.html)
+
+PraNAms
+
+If I say - everything is nothing but electrons-protons-neutrons - these are being fundamental particles - then, garbage is also made up of the same fundamental particles and so is the delicious food on the table. Just because they are fundamentally the same, does not mean that one should not discriminate the stinking garbage from the delicious food. The differences are at the package level with names, attributes, utilities etc,  being different. Dvaitins have problem in understanding these fundamental truth. Everything including dog,s excrete is Brahman only - but as adhishtaanam - that includes even the dvaitins. Brahman being infinite cannot exclude anything. 
+
+Mithya involves - that which undergoes changes - as Goudapaada - illustrates in the vaitatya prakaranam. Brahman cannot undergo change - because it is infinite. Yet Brahman cannot but be the adhishtaanam for everything - that includes dog's excreta and dvatins. 
+
+Krishna first discusses in 10th chapter - vibhuuti - all glorified things - saying in the end that unlimited are His glories.  In the next chapter, 11, He shows that not only good things but even bad things are also part of his vishwaruupa - we have one side gods and the other side all demons too, since being Brahman, he cannot exclude anything. Arjuna was afraid of the scene. The fact  is nothing REALLY in Brahman. Hence the statements - mastaani sarva bhuutani and immediately Krishna says - na cha mastaani bhuutani. 
+
+Everything including the dog's excreta is Brahman only yet from Brahman point nothing or no-thing is Brahman. There are no dvaitins in Brahman! It is a-dvaita!
+
+Hari Om!
+Sadananda
+
+
+
+
+
+--------------------------------------------
+On Tue, 4/5/16, Venkatesh Murthy (वेङ्कटेशः सीतारामार्यपुत्रः) via Advaita-l <advaita-l at lists.advaita-vedanta.org> wrote:
+
+ Subject: [Advaita-l] If Jagat is Satya like Brahman
+ To: "A discussion group for Advaita Vedanta" <advaita-l at lists.advaita-vedanta.org>
+ Date: Tuesday, April 5, 2016, 11:58 PM
+
+ Namaste
+
+ Everything is Brahman and Jagat is also Brahman. Therefore
+ Jagat is
+ Satya only not Mithya. Everything in the world is Satya and
+ Brahman
+ only. This argument will have objection by Dvaitis like
+ this. If
+ everything is Brahman and Satya the dog's excreta lying in
+ the street
+ is also Satya and Brahman. What is the difference between
+ you and that
+ dog's excreta? You both are the same.
+
+ Therefore to avoid becoming same as dog's excreta we have to
+ say Jagat
+ and everything in Jagat is Mithya. Dog's excreta is also
+ Mithya only.
+ It is not Satya. But Sruti has said Tat Tvam Asi and Aham
+ Brahmasmi.
+ Therefore I am not Mithya. I am Brahman. I am Satya.
+
+
+ -- 
+ Regards
+
+ -Venkatesh
+ _______________________________________________
+ Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
+ http://blog.gmane.org/gmane.culture.religion.advaita
+
+ To unsubscribe or change your options:
+ http://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+
+ For assistance, contact:
+ listmaster at advaita-vedanta.org

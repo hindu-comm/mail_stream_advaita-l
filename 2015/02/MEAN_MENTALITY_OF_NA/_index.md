@@ -1,0 +1,4 @@
++++
+title = "MEAN MENTALITY OF NARAYANA PAN"
+
++++

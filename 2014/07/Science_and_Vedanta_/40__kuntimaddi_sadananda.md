@@ -1,0 +1,42 @@
++++
+title = "40 kuntimaddi sadananda via Advaita-l"
+date = "2014-07-15"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2014-July/037233.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2014-July/037233.html)
+
+PraNAms to all
+
+This article I wrote in response to the request for an article in souvenir issue released couple of days ago by Swami Tejomayanandaji on the occasion of the opening of new center - Chinmaya Somanath - in VA. I am presenting it in three parts since the article is too long. 
+
+Hari Om!
+Sadananda
+-----------------------------------------------
+                                                                                  Science and Vedanta
+Part I
+
+The word science is derived from the root ‘scier’, meaning to know. Hence science really means knowledge which reveals a fact or truth. In Sanskrit, ‘vid’ means to know, and ‘veda’ means knowledge. Combining these two statements we can say that Veda means science. Vedanta means that which reveals the ultimate knowledge or absolute truth. From this, it follows that Vedanta is the ultimate science.  This is not a fanatical statement but a statement of fact, as in ‘Light travels at 299,792,458 m / s’. This is not an opinion or belief but just plain fact, whether one believes it or not. We will examine here why Vedanta is the science of absolute.  
+
+Epistemologically, the word ‘knowledge’ without a qualifier, cannot be defined. The qualifier objectifies the knowledge as in knowledge of Chemistry or knowledge of Physics, etc. It is always knowledge of something. It can be knowledge of physical or phenomenal world, or knowledge of some subtle entities such as emotions, thoughts, intellectual concepts, etc. The former can be considered as the knowledge of gross entities that can be known via sense input, while the later can be called the knowledge of subtle entities and can be known without the need of any sense input, or can be inferred indirectly from the sense input.  For example, I can have knowledge of a force, which is subtle, when work is being done.  We know that there is a life-force (praana Shakti) by the expression of life activities. What exactly is life, even doctors cannot define it as it is imperceptible; but yet they can certify whether one is alive or not by examining life’s
+ grosser expressions. In essence, from action we can deduce the driving force for that action. A change of state, for example, involves a driving force, even though the force itself is imperceptible. Hence Vedanta says one becoming many involves a driving force, which it calls as maayaa shakti or force of maayaa. The point is all forces can be inferred from the change of state, although they are imperceptible. 
+
+Pure knowledge without any objectification cannot be defined. In fact, any definition involves objectification. Conversely, only objectifiable entities can be defined. Vedanta says all objectifiable entities are inert or conversely only inert things can be objectified.  Hence all knowledge that we are familiar with are knowledge of objectifiable entities, and therefore knowledge of qualifyable entities or of inert entities. Science, in common parlance, means only knowledge of objectifiable entities, or inert entities, either gross or subtle. For example, Physics, Chemistry, Astronomy, Biology, Medicine, etc., all pertain to objectifiable sciences or sciences of grosser entities that are measureable or quantifiable by sense input data using objective tools. Even when we are examining or quantifying living beings using objective tools we are only examining either body parts which by themselves are inert, or activities at grosser level to deduce that they
+ are living beings.  Subtler sciences such as Psychology, Philosophy, Logic, etc., are not amenable directly by sense input, and therefore are not ascertainable or quantifiable by objective tools. One can infer to some extent by the behavioral trends but they remain somewhat speculative and not assertive. A philosophy or even logic can be built based on axiomatic statements. For those who are familiar, there is the famous Gödel’s incompleteness theory for axiomatic systems. It states that all mathematical systems are axiomatic, and although self-consistent, they remain incomplete and therefore cannot be proven. 
+
+Analysis of How knowledge Takes Place:
+
+In the knowledge of every object, three aspects are involved; a) the subject knower, b) the object known, and c) the means of knowledge that connects the two. These, in Sanskrit, are called pramaata, prameyam and pramaana, respectively. Pramaa means knowledge and knowledge that is falsified later by a better or stronger pramaana is called bhrama or false knowledge. Thus, using pramaana, a pramaata can know a prameyam. Let us take a simple example – I want to know if there is chair in the hall. To gain that knowledge, I need to go and see. I, the conscious entity, is the knower or pramaata, the chair is the object of my knowledge, prameyam, and the means of knowing or pramaana is perception that involves the sense of sight.  For the pramaana to operate my eyes should be functioning, and my mind should also be present, in addition to any other secondary requirements such as sufficient light in the room, for me to see. Suppose, if the room is pitch-dark,
+ I would not know if there is a chair or not. Then the existence of the chair in the pitch dark room is indeterminate, that is, it may be there or it may not be there. In fact, the probability that the chair exists or not is only 50%. The uncertainty, here, is due to the inability for the pramaana (sense of sight) to operate. Thus objective knowledge can be established only if all the three, the knower, known and the means of knowledge, are operating. Without the knower and the means of knowing, the existence of the object cannot be established. 
+
+Hence Vedanta ascertains that existence of an object is established by the knowledge if its existence, which requires a pramaata or a conscious entity. If I or no other conscious entity is present in that room to ascertain the existence of the chair in that room via direct or remote instruments of perception, the existence of the chair or any other object remains uncertain, with only 50% probability. It may or may not exist. 
+
+Thus the fundamental requirement even for objective sciences that involve only objectifiable entities that use objective tools is that there must be a conscious entity to make the knowledge assertive or in technical jargon to make it deterministic than just probabilistic. In the above example, the existence of the chair in the hall cannot be established until I or some other conscious entity sees. Until then, the existence of a chair remains as 50% probability. In Sanskrit, the word for indeterminacy is anirvacaniiyam. 
+
+Suppose I ask, while you are in the pitch dark room, is there a gaabaabuubu in that room? You cannot answer that question even if the room is lighted. You will ask first, what is gaagaabuubu or how does it look like, or what are its attributes? Name or naama and attributes (starting with ruupa or form, etc.) go together in defining an object. If I do not know what is gaagaabuubu I cannot say it exists or does not exist. Naming involves knowing; and without the knowledge, existence of any particular object cannot be established. 
+
+In addition, even if the conscious entity or pramaata is present, the knowledge of existence of the object cannot take place unless the pramaana or means of knowledge operates. In the above example, if my sense of sight is not operating or if mind is elsewhere, then I still would not know whether the chair is there or not, even when the room is lighted. For example, in the deep sleep state, the existence of any object, nay the whole world is indeterminate or anirvacaniiyam, since the instruments of perception, the senses and the mind, are folded or essentially not functioning. Thus, even though I am there and objects may be there, there is no knowledge of their existence. The objects here include the grosser objects like room, bed and my body, but also the subtler objects like mind and the thoughts.  Hence, without the mind present, no knowledge of the objective world takes place. Therefore to summarize, any knowledge or science involves the subject I,
+ the object this, and the connection between the two via a pramaana or means of knowledge. All three must be present for science to operate. 
+
+To be continued in Part II.
+

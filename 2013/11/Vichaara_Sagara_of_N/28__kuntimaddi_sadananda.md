@@ -1,0 +1,20 @@
++++
+title = "28 kuntimaddi sadananda"
+date = "2013-11-03"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2013-November/035677.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2013-November/035677.html)
+
+Part IV
+
+Now we take up the second objection raised: 
+The objector says ignorance generated error or adhyaasa cannot be possible for aatma chaitanya. In essence, muula avidya that involves self-ignorance is not possible; because aatma is part-less. Objection becomes clearer when we take an example of rope/snake, where seeing snake where there is rope. It is the ignorance of the rope, causes the snake projection as discussed elaborately in adhyaasa bhaaShya of Shankara. The objector says for adhyaasa one needs a partial ignorance and not total ignorance. In the case of mistaken snake, there is a partial knowledge expressed as – there is (an object) – thus an existence of an object which is seen in partial light. If it is complete darkness there is no object seen and therefore there is neither a rope nor mistaken snake. Hence complete ignorance will not cause projection of the false on the real. If there is bright light, then one can see the rope clearly hence therefore there will not be any error in
+ perception. Hence for adhyaasa to take place one should have neither full knowledge nor full ignorance. Hence for adhyaasa to take place one need the partial knowledge of the object. For the rope/snake case this is possible since there is partial knowledge that there is an object – of vastu jnaanam – which is expressed as – there is – that is there is an object out there that I can see, however I am not sure whether the object is rope or snake based on the attributes of the object perceived due to dim light.
+
+When one is ignorant, the statement made due to error or adhyaasa is – there is a snake. After the knowledge is gained the statement changes to – there is a rope. Thus examining the statements – there is – part remains the same only the nature of the object perceived was snake due to ignorance and it is changed to rope. There is part is saamaanya part or that which pervades all the objects. In essence, we can say for any object – there is X or there is Y where X and Y can be any object in the world and they are called vishiShTa or qualified objects. The unqualified part is – there is – that is there exists an object – The existence of the object is specified by the segment – there is. 
+The objector says this division is possible since we have two parts – one is there is part - and the second is the name and form part. Such a division into parts is possible for a finite object, since all objects are made up of parts. Hence knowledge can be partial for objects and therefore adhyaasa or error can be possible. As per Advaita, the Brahman has no amsha or part, since it is niShkalaH or niramshaH, part-less. Hence in the case of Brahman or aatma one cannot have partial knowledge or partial ignorance. Therefore there cannot be adhyaasa. 
+
+Answer: Nischaladasa says -Yes, it is true that Brahman being infinite is part-less. Sat-Chit-Ananda are swaruupa lakshaNa of Brahman. That is they are not attributes but its intrinsic nature. One can split Brahman into sat, chit and aananda parts. This truth is absolute or from the absolute point or from paaramaarthika point. However at vyaavahaarika point, the infinite Brahman as though appears to have parts. The very scriptural statement that says – One decided to become many and it became many. Thus division-less or part-less Brahman appears to divide in becoming many. Hence at transactional level there appears to be parts; however appearance of many due to maayaa is only at transactional level. The ignorance as well as its opposite, knowledge both are at transactional level only. The teaching is for the one who does not recognized that he indivisible Brahman. He feels he is finite and different from the rest of the world. For him the scripture
+ says there is error or adhyaasa in his understanding about his self or Brahman. 
+
