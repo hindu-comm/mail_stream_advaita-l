@@ -23,5 +23,5 @@ wrote:
 >> world, the mAyin, the arch-juggler, is Isvara >>. Unquote.
 >>
 >
-​Apply the same to ekajIva-dRRiShTisRRiShTi and destroy the whole concept
+Apply the same to ekajIva-dRRiShTisRRiShTi and destroy the whole concept
 of dRRiShTisRRiShTi. I'll be more happy than you.

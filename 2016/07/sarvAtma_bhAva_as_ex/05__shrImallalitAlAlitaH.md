@@ -31,59 +31,59 @@ wrote:
 > jIvanmukti.
 >
 
-​No. I just meant that they are needed, either prior or at the same time or
+No. I just meant that they are needed, either prior or at the same time or
 even after GYAna.
-​
+
 
 > This is admitted by Swami Vidyaranya in his work जीवन्मुक्तिविवेक
 > (jīvanmuktiviveka).
 >
 
-​He doesn't talk about other sAdhana-s following GYAna only, but the cases
+He doesn't talk about other sAdhana-s following GYAna only, but the cases
 where they were accomplished even before or at same time as that of
 shravaNa, etc.
-​
+
 
 > The ज्ञानि (jñāni) in this school of thought ( there are other schools of
 > thought as well concerning jIvanmukti ) engages himself continuously in
 > निदिध्यासन (nididhyāsana) only.
 >
 
-​If you are talking of अयोगिज्ञानी, then he doesn't even engage himself in
+If you are talking of अयोगिज्ञानी, then he doesn't even engage himself in
 nididhyAsana, because he has nothing to acquire.
 Only योगिज्ञानी-s engage in nididhyAsa, etc. which helps them eradicate
 viparIta-bhAvanA and experience of apparent duality.  It is done till
 nirodha-samAdhi is achieved.
-​
+
 
 >   Would the दृष्टिसृष्टिप्रक्रिया / एकजीवप्रक्रिया (dṛṣṭisṛṣṭiprakriyā /
 > ekajīvaprakriyā) be the appropriate प्रक्रिया (prakriyā) for this
 > निदिध्यासन (nididhyāsana) ??
 >
 
-​I don't understand what you are trying to imply by this sentence.
+I don't understand what you are trying to imply by this sentence.
 If I take this sentence for face value, even then I don't understand the
 meaning of 'this निदिध्यासन'. Are there many types of nididhyAsana-s in
 your mind?
-​
+
 
 >   From your response to one of my earlier posts, I do believe you are very
 > averse to the  दृष्टिसृष्टिप्रक्रिया / एकजीवप्रक्रिया (dṛṣṭisṛṣṭiprakriyā
 > / ekajīvaprakriyā) .
 >
 
-​This gives me a hint that you didn't read\understand my post.
+This gives me a hint that you didn't read\understand my post.
 When I posted to दृष्टसृष्टि thread, I was just propounding that there are
 other views regarding that, which are not mentioned by मधुसूदन,etc. That
 much. What you are trying to guess, is not intended.
-​
+
 
 > But still I thought it would be better to check with you if this would be
 > appropriate for a ज्ञानि (jñāni) engaged only in निदिध्यासन
 > (nididhyāsana) to achieve jIvanmukti.
 >
 
-​According to bhAShyakAra, the adhikAra for shravaNa, etc. is for only
+According to bhAShyakAra, the adhikAra for shravaNa, etc. is for only
 those who have sAdhana-chatuShTya, etc. That means that in his view
 vAsanA-xaya is very important pre-requisite for brahmaGYAna. The samAdhAna
 hints that the person must have some degree of control of mind, by the

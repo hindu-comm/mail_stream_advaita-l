@@ -8,10 +8,10 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 
 Namaste Aditya,
 I
-​ couldn't help responding to you comment over the sampradAya teachers,
+ couldn't help responding to you comment over the sampradAya teachers,
 that too giants.
 
-​
+
 On Sun, Jul 23, 2017 at 5:53 PM, Aditya Kumar via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 
@@ -21,10 +21,10 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > prefer one author over another?
 
 
-​​Logic of convenience. There is nothing like near or far in the tradition,
+Logic of convenience. There is nothing like near or far in the tradition,
 which is why it is called a paramparA or sampradAya. The derivation of the
 words themselves say that it is the right version handed over. Your
-choosing far-from-tradition Modi, Dasgupta​, etc, over Prakashananda
+choosing far-from-tradition Modi, Dasgupta, etc, over Prakashananda
 Sarasavati and Madhusudhana Sarasvati of the tradition shows that you
 yourself are being outside the tradition. It is as simple as that. The
 traditional approach is to show that the teaching is handed over. The
@@ -54,5 +54,5 @@ Moreover, a particular author clearly disagrees with another author/view.
 The research, even if called scholarly, does not make a truth. They are all
 termed as paNDitammanyamAnAH by Shruti and sampradAya.
 
-​gurupAdukAbhyAm,
+gurupAdukAbhyAm,
 --praveen

@@ -7,8 +7,8 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/045815.html)
 
 Namaste Subbuji,
-​
-2017-07-05 12:27 GMT+05:30 V Subrahmanian <v.subrahmanian at gmail.com>:​
+
+2017-07-05 12:27 GMT+05:30 V Subrahmanian <v.subrahmanian at gmail.com>:
 >
 >
 > Very true.  Just see this sentence of the Br.up. bhashya:
@@ -25,7 +25,7 @@ Namaste Subbuji,
 > opponent.
 >
 >
-​Wonderful. In this context, I also like Vidyaranyamuni's ध्यानदीपप्रकरण
+Wonderful. In this context, I also like Vidyaranyamuni's ध्यानदीपप्रकरण
 where he recommends निर्गुणब्रह्मोपासन and refutes objections to it by
 saying that if निर्गुणब्रह्मोपसन is not possible, निर्गुणब्रह्मज्ञान is
 also not possible, something that I landed on after using similar logic
@@ -33,7 +33,7 @@ with someone who questioned as to how निर्गुणब्रह्मो
 Undoubtedly, I was so happy to read that. :)
 
 g
-​urupAdukAbhyAm​
+urupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

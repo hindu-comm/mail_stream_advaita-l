@@ -11,7 +11,7 @@ Namaste Rajeshji,
 On Sun, Nov 5, 2017 at 6:45 PM, Rajesh Benjwal via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 
-> ​​
+> 
 > Thanks, Venkatraghavanji for your suggestion.
 >
 > I just checked Apasthambha sUtra and found अतिक्रान्ते सावित्रया: काल ऋतुं
@@ -23,8 +23,8 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > right meaning, who follows Apasthambha sUtra.
 >
 
-​It appears that the above solution in Apastamba of following all of
-Brahmachari's vows​ (except for agnikArya, vedAdhyAyana and gurusuSrUSha)
+It appears that the above solution in Apastamba of following all of
+Brahmachari's vows (except for agnikArya, vedAdhyAyana and gurusuSrUSha)
 synchronising with a Rtu is valid only if upanayana is done immediately
 afterwards, before 19 years of age is attained! There is more to be done
 after the upanayana too, but its not applicable since your prospective
@@ -42,12 +42,12 @@ well as 17-day yAvakavrata).
 That said, I am sure you will not give up on the students since people
 wanting to study Vedas is rare and should be encouraged. To that effect, I
 do feel that some simpler solution will definitely come to light when you
-talk to some traditional scholar, HH Shankaracharya​ or with a Vedic
+talk to some traditional scholar, HH Shankaracharya or with a Vedic
 assembly.
 
 s
-​hubhaM bhUyAditi prArthaye​
+hubhaM bhUyAditi prArthaye
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
-That owing to which all this is known! [Br.Up. 4.5.15] */​
+That owing to which all this is known! [Br.Up. 4.5.15] */

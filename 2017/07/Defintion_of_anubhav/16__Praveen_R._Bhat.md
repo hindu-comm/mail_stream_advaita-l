@@ -10,7 +10,7 @@ Namaste Chandramouliji
 
 On Tue, Jul 4, 2017 at 7:22 PM, H S Chandramouli <hschandramouli at gmail.com>
 wrote
-​​
+
 
 >
 >
@@ -21,7 +21,7 @@ wrote
 >> anubhava. A slightly better term is “intuitive experience”. This also
 >> suffers from the same limitation of tripuTi.
 >>
-> ​That's an interesting point, which I too subscribe too, but it has a
+> That's an interesting point, which I too subscribe too, but it has a
 slight tilt towards Bhamati, since lack of त्रिपुटि usually means
 निर्विकल्पकसमाधि। I am okay with that, but I'm not sure if everyone is,
 especially those who have trouble using the word अनुभव।
@@ -31,7 +31,7 @@ especially those who have trouble using the word अनुभव।
 >> better terminology than अनुभव (anubhava) or “intuitive experience” for
 >> conveying the meaning of ब्रह्मज्ञान (brahmaj~nAna)fully either.
 >>
-> Agreed.​
+> Agreed.
 
 >
 >> Perhaps this also answers your two questions in your latest post namely
@@ -68,7 +68,7 @@ especially those who have trouble using the word अनुभव।
 >> This would be the “ definition “ of अनुभव (anubhava).
 >>
 >
-​I do not have the book with me readily, but that चकार tells me that its
+I do not have the book with me readily, but that चकार tells me that its
 not a definition. Its also not a definition due to the reason mentioned in
 my first post that only suffixes used are different between अनुभव and
 अनुभूति, so its like a dictionary meaning. The qualifiers used are equally

@@ -6,8 +6,8 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2014-Januar
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2014-January/036333.html)
 
-​Actually, your mere reply has refuted you already, but let me show that
-you can be refuted again.​
+Actually, your mere reply has refuted you already, but let me show that
+you can be refuted again.
 
 
 *श्रीमल्ललितालालितः *www.lalitaalaalitah.com
@@ -41,7 +41,7 @@ The second virodha is only possible if utterance is accepted as vyApya of
 mithyAtvAbhAva = satyatvam. I don't accept such vyApti, because utterance
 is seen in svapnam also.
 So, there is no virodha of mithyAtvam with my kriyA.
-​According to vedAntin-s, the unreal-ness is not opposed to kriyA - is to
+According to vedAntin-s, the unreal-ness is not opposed to kriyA - is to
 be noted.
 
 > Now, if you think that my words don't prove anything and they have no
@@ -57,13 +57,13 @@ be noted.
 > have already lost.
 >
 
-​You are bringing words of advaitAchArya without understanding it.
+You are bringing words of advaitAchArya without understanding it.
 When we say that 'everything is mithyA' then we mean that 'everything is
 anirvachanIya'. We don't mean that 'everything is like horn of hair'.
 So, my pratiGYA is also mithyA, i.e. anirvachanIya, but not non-existent.
 If it were, you wouldn't have replied me.
 
-​
+
 
 
 >  > In this case, I will be announced winner by those who are
@@ -73,9 +73,9 @@ If it were, you wouldn't have replied me.
 > Again, yuShmad-asmad once more!
 >
 
-​Yes, because words are not going to prove themselves real and you are
+Yes, because words are not going to prove themselves real and you are
 anyhow going to loose.
-​
+
 
 
 > > And, if you reply, you are opposing your own rule and hence accepting
@@ -86,9 +86,9 @@ anyhow going to loose.
 > I am not opposing my rule. What is my rule?
 >
 
-​How poor !!??
+How poor !!??
 You don't know that you have made a rule while talking with others!!??
-​
+
 
 
 > I have said "*it is expected in vidvad circles that hEtu used in such
@@ -99,13 +99,13 @@ You don't know that you have made a rule while talking with others!!??
 > siddhAnta..."
 >
 
-​I've noted every word.
+I've noted every word.
 You are making rule for me to accept things real in order to prove me
 anything.
 This rule is not accepted by us.
 Why ?
 The previous post is answer. The whole post applies here.
-​
+
 
 
 > Remember, I am a realist in this vAda setup and per my siddhAnta, I see you
@@ -114,11 +114,11 @@ The previous post is answer. The whole post applies here.
 > in my case.
 >
 
-​This 'svakriyAvirodhAbhAva' is useful only when the above rule is
+This 'svakriyAvirodhAbhAva' is useful only when the above rule is
 accepted. So, it's useless to show that you have no virodha.
 Moreover, I've already said that mithyA things are not opposed with
 unreal-ness and hence I also don't have svakriyAvirodha.
-​
+
 
 
 > >
@@ -130,9 +130,9 @@ unreal-ness and hence I also don't have svakriyAvirodha.
 > to better acquainted with the situation.
 >
 
-​Thanks, for letting me know about the name of work.
+Thanks, for letting me know about the name of work.
 But, let me assure that I'm not just putting words from any book here. If
 you or any dvaitI-mAdhva could assure me that he understands advaita-mataM
 and it's technical words and use tenable logic, I'll accept his view after
-testing. Till now I've not seen such a person.​
+testing. Till now I've not seen such a person.
 

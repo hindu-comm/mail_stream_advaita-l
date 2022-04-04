@@ -11,13 +11,13 @@ On Sat, Dec 7, 2013 at 8:35 AM, Nithin Sridhar <sridhar.nithin at gmail.com>wrot
 > But, Jnana cannot arise in a person with impure chitta.
 
 
-​It can arise in a person who knows mahAvAkya and understands it's meaning.
+It can arise in a person who knows mahAvAkya and understands it's meaning.
 Whether it stays and stabilizes or not, is what controlled by shuddhi of
 chitta.
 There are specific rAga, etc. which are opposed to GYAna and there are
 others, as desire of veg diet, hating veda-nindaka-s, etc. which are not
 opposed to it. So, even with specific ashuddhi-s of specific intensity, one
-can have GYAna.​
+can have GYAna.
 
 
 

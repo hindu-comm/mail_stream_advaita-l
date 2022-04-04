@@ -148,10 +148,10 @@ advaita-l at lists.advaita-vedanta.org>:
 > > number of people.
 > >
 >
-> ​I'm not interested in independent comments. They must be related to
+> I'm not interested in independent comments. They must be related to
 > scriptures. And, the person analyzing them should do that according to
 > saMpradAya.
-> So, I didn't send translation.​
+> So, I didn't send translation.
 >
 >
 >

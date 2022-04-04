@@ -39,7 +39,7 @@ On Thu, Jul 13, 2017 at 12:40 PM, H S Chandramouli <hschandramouli at gmail.com
 >
 > There was a discusssion in this list under the caption <<
 > "time" as defined in Vedanta pariBAsha.
-> ​>> in Dec2016-Jan2017. I find you did not participate in the same. Many
+> >> in Dec2016-Jan2017. I find you did not participate in the same. Many
 > of the points you have covered have been discussed therein. I am not sure
 > if any have been leftout.
 >

@@ -7,7 +7,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Novemb
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-November/047509.html)
 
 Namaste
-​
+
 Sarmaji,
 
 
@@ -23,7 +23,7 @@ yield अदृष्टफलम्.
 Thanks
 
 2017-11-06 12:44 GMT+05:30 D.V.N.
-​​
+
 Sarma డి.వి.ఎన్.శర్మ via Advaita-l <advaita-l at lists.advaita-vedanta.org>:
 
 > Here we are hairsplitting about the conditions under which vedic mantras

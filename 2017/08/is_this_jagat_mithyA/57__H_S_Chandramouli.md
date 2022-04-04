@@ -7,12 +7,12 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-August
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-August/046314.html)
 
 >
-> ​<< ​
+> << 
 > http://www.adhyatmaprakasha.org/php/bookreader/templates/book.php?type=english&book_id=034&pagenum=0000ag#page/11/mode/1up
 > >>
 >
 
-​The above is the link to the translation by DB Gangolli of Sri SSS
+The above is the link to the translation by DB Gangolli of Sri SSS
 independant work on Karika. I am not sure if this is what you wanted.
 
 The link to Sri SSS kannada translation of the bhAshya on Mandukya Up
@@ -23,7 +23,7 @@ http://www.adhyatmaprakasha.org/php/kannada/kannada_books_toc.php?book_id=094&ty
 >>.
 
 All the works of Sri SSS and his associates in kannada/sanskrit/english
- can be accessed at the following link​
+ can be accessed at the following link
 
 << http://www.adhyatmaprakasha.org/index.php >>
 

@@ -11,7 +11,7 @@ Namaste,
 the authors of kavya-s like Kalidasa are foremost Vedantins. There is a lot of Vedanta to be gleaned from their works.
 ........
 
-The famous poet भवभूती in his work 'उत्तररामचरित​', composes a wonderful shloka which is \
+The famous poet भवभूती in his work 'उत्तररामचरित', composes a wonderful shloka which is \
 known to everyone.  
 
  एको रसः करुण एव निमित्त- भेदाद्भिन्नः पृथक् पृथगिवाश्रयते विवर्तान् ।
@@ -22,7 +22,7 @@ the rAmAyaNa is 'karuNa-rasa' pradhAna.  He goes to the extent of saying that
 there is only one rasa ie., karuNa and the rest of the rasa-s are modifications of the
 that which is similar to ripples in the water / ocean (अधिष्ठानं).   Just as the अधिष्ठानं (water) is 
 is getting apparently transformed into ripples; similarly, the मूल रसः in रामायणं is
-करुण​ and rest of the 8 are apparently seen in this.  
+करुण and rest of the 8 are apparently seen in this.  
 
 Interestingly, भवभूती names this phenomena with a wonderful terminology called
 विवर्तान् which is the basic concept of advaita.

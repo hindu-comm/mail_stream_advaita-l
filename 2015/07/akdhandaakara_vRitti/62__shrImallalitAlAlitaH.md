@@ -13,7 +13,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > defining akhaNDAkAra as niShprakAra ?
 >
 
-​Why should one play with system-specific-terms?​ Better make your separate
+Why should one play with system-specific-terms? Better make your separate
 system and spare us.
 
 

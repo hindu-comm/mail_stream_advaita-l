@@ -19,14 +19,14 @@ prakAra means adjectives. The vRtti which illuminates base, it's qualities and t
 
 2.akhaNDAkAra of vRtti means that it doesn't illuminate any adjective or relation. It just dispels ignorance of / illuminates one thing, either brahman or pot without revealing it's qualties and relations."
 
-Doubts: vRttiH is dispelling ignorance of say,a परिच्छिन्न​ pot.
+Doubts: vRttiH is dispelling ignorance of say,a परिच्छिन्न pot.
 1. Why it is called akhaNDAkAra of vRtti? What is the reason for using the term 'akhaNDa'?
 
 2. Can it be called आवरण भंगत्व of vRttiH? Is there a difference between आवरण भंगत्व and akhaNDAkAratva?
 
-3. As per this definition, any vRttiH that dispels ignorance of any vastu, परिच्छिन्न​ or अपरिच्छिन्न, has akhaNDAkAratva. Am I right?
+3. As per this definition, any vRttiH that dispels ignorance of any vastu, परिच्छिन्न or अपरिच्छिन्न, has akhaNDAkAratva. Am I right?
 
-4. Is the characteristics of of dispelling ignorance of परिच्छिन्न​ vastu and अपरिच्छिन्न vastu same? 
+4. Is the characteristics of of dispelling ignorance of परिच्छिन्न vastu and अपरिच्छिन्न vastu same? 
 
 Thank you and regards
 -- durga prasad

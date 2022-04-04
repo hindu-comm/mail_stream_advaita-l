@@ -6,7 +6,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Novemb
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-November/047763.html)
 
-​Apologies, I forgot the footnote to *1 हेतुकर्ता​, I meant to quote
+Apologies, I forgot the footnote to *1 हेतुकर्ता, I meant to quote
 Paninisutra १.१.४५: तत्प्रयोजको हेतुश्च।
 
 गुरुपादुकाभ्याम्,

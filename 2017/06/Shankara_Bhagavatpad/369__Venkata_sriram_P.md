@@ -9,7 +9,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/0
 Nice Subbuji.  
 
 This was the controversial work and benefit of doubt was ascribed to this work.  
-I had a glance (cursory though..) and perplexed to see some tantric mantras (मन्मथ तन्त्र​) 
+I had a glance (cursory though..) and perplexed to see some tantric mantras (मन्मथ तन्त्र) 
 and thought how could a great advaitin whose mind used to roam in the lofty heights of vedanta
 could compile such mantras ! 
 

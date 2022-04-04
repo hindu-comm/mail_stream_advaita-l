@@ -19,7 +19,7 @@ I am aware of the advaita-siddhAnta and also aware that सत् only exists.
 My point of emphasis was to state that Sankara has refuted various erroneous 
 concepts like असत्कार्यवादः  and सत्कार्यवादः etc with the usage of विश्वं पश्यति कार्यकारणतया.
 
-The one who is deluded perceives the Jagat as कार्य​-कारण संबन्धः that has been refuted
+The one who is deluded perceives the Jagat as कार्य-कारण संबन्धः that has been refuted
 owing to अन्योन्याश्रय दोषः associated hence मिथ्या .  It is this मिथ्या which is 
 called "falsity" which is the derivative of "fallacy". 
 

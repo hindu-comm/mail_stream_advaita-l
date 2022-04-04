@@ -154,13 +154,13 @@ On Thu, Jul 24, 2014 at 11:33 PM, Sujal Upadhyay <sujal.u at gmail.com> wrote:
 > on their neck a necklace prepared from Rudraksha beads shall not give up
 > wearing them, even after becoming My followers.
 >
-> ​47. All shall realize that Narayan and the Mahesh are one, for as Brahman
+> 47. All shall realize that Narayan and the Mahesh are one, for as Brahman
 > they have been described as one in the Vedas.
 >
 > OR
 >
 > *47. All shall know that Narayana and Mahesha are one, as they have been
-> both described as brahman by the vedas.​*
+> both described as brahman by the vedas.*
 >
 > 59. Shastras proclaim these Bhaktas as Nirguna (i.e. completely free from
 > mundane qualities like Satva, Rajas, and Tamas) since Lord Shri Krishna

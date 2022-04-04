@@ -21,9 +21,9 @@ To:
 
 
 घोषणात्मकमिदं
-​ पत्त्रं‌ नैकत्र प्रेष्यते - (संस्कृतसन्देशश्रेणिः samskrta-yUthaH <
+ पत्त्रं‌ नैकत्र प्रेष्यते - (संस्कृतसन्देशश्रेणिः samskrta-yUthaH <
 samskrita at googlegroups.com>, bhAratIya vidvat pariShad भारतीयविद्वत्परिषद् <
-bvparishat at googlegroups.com>, rAShTriya-shikshakagana राष्ट्रिय-शिक्षकगणः)​
+bvparishat at googlegroups.com>, rAShTriya-shikshakagana राष्ट्रिय-शिक्षकगणः)
 
 
 FYI......

@@ -53,7 +53,7 @@ On Tue, May 24, 2016 at 5:43 PM, Sujal Upadhyay <sujal.u at gmail.com> wrote:
 > which is not acceptable. 1/4 part of Brahman will become void, SUNya.
 >
 > Maybe I am wrong, as said earlier, I dont have much knowledge on this
-> subject. ​
+> subject. 
 >
 
 > OM

@@ -6,7 +6,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-August
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-August/046311.html)
 
-​​Namaste all,
+Namaste all,
 
 I've a particular question about how is the tattvamasi-vAkya interpreted
 using *only* bhAShya. If the interpretation uses jahadajahallakShaNa
@@ -21,7 +21,7 @@ Bhashyakara?
 I'd appreciate the reply from anyone who either subscribes to the view that
 only bhAShya should be studied or knows their perspective.
 
-​Thanks
+Thanks
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

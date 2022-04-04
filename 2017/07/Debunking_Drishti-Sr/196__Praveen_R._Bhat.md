@@ -9,7 +9,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 Namaste Adityaji,
 
 As Venkateshji already suggested, kindly go through over 200 mails
-exchanged on this ​​in the recent past.
+exchanged on this in the recent past.
 Other than that, I suggest not to learn DSV or anything for that matter
 related to Vedanta from scholars' books and consider that as traditional
 stance. Learn the tradition from the tradition.
@@ -32,7 +32,7 @@ To call DSV as one individual's subjectivity is showing one's ignorance of
 DSV and more, whoever it is. It is said कामी स्वतां पश्यति। One sees what
 he desires... regardless of what DSV really says.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

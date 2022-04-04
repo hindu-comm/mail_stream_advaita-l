@@ -18,7 +18,7 @@ chandramouli
 2014-03-05 21:17 GMT+05:30 श्रीमल्ललितालालितः <
 lalitaalaalitah at lalitaalaalitah.com>:
 
-> ​​
+> 
 > H:
 > The words " mayopadhika Iswara " and " mayavishishta Iswara " are both used
 > frequently in the literature on vedanta. Many times in the same work

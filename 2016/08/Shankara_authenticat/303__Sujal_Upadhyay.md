@@ -29,7 +29,7 @@ On Thu, Aug 18, 2016 at 4:55 PM, Sujal Upadhyay <sujal.u at gmail.com> wrote:
 > I am not implying your position and even in your posts you have
 > acknowledged that Vishnu can be formless, nirguna Brahman.
 >
-> ​<message clipped>​
+> <message clipped>
 >
 > On Thu, Aug 18, 2016 at 4:07 PM, D Gayatri <dgayatrinov10 at gmail.com>
 > wrote:

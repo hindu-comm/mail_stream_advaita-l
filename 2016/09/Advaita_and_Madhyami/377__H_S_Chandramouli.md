@@ -41,18 +41,18 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2016-Septem
 >>> second part of your statement is not considered by any advaitin at all.
 >>>
 >>
-​         ​
+         
  Reg  <<  Can we take some common minimum principles to be necessary or
 sufficient to
-​           ​
+           
 be counted as a sadhvI prakriyA of the advaita tradition ? >>,
 
 
 
-​           ​
+           
 there are ever so many prescribed in the sruti/smriti/purANa/itihasa etc. I
 am not sure why
-​           ​
+           
 such a doubt should arise.
 
 

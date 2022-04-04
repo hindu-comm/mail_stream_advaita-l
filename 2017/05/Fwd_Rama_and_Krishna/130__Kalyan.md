@@ -38,7 +38,7 @@ On Wed, 5/24/17, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
  that advaitins do not criticize anybody is far removed from
  reality.
 
- ​​There's a
+ There's a
  huge difference between criticising a sampradAya or a deity
  just because it is not one's own versus criticising the
  following as it does not lead to mokSha. Bhagvatpadacharya
@@ -51,4 +51,4 @@ On Wed, 5/24/17, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
  विजानीयात्।Through what
  should one know That owing to which all this is known!
  [Br.Up. 4.5.15]
- */​
+ */

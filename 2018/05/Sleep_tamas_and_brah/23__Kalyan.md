@@ -35,9 +35,9 @@ On Tue, 5/1/18, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
 
  In the face of such evidence, the contention that ignorance
  exists in deep sleep, has no ground to stand upon.
- ​And the
+ And the
  nirguNabrahma jIva wakes up from suShupti (effects of
- avidyA) because... ?​
+ avidyA) because... ?
  Kind
  rgds,
  --Praveen R. Bhat

@@ -30,7 +30,7 @@ Venkatraghavan
 
 On 15 Aug 2017 5:53 p.m., "Praveen R. Bhat" <bhatpraveen at gmail.com> wrote:
 
-> ​Namaste Venkatraghavanji,
+> Namaste Venkatraghavanji,
 >
 > Thanks for your additions. I was wondering when I saw an empty mail from
 > you earlier thinking it got sent by mistake and was looking forward to your
@@ -47,7 +47,7 @@ On 15 Aug 2017 5:53 p.m., "Praveen R. Bhat" <bhatpraveen at gmail.com> wrote:
 >> avidyA.
 >>
 >
-> ​This above, and the following ​that you mention seems to be a logical
+> This above, and the following that you mention seems to be a logical
 > conclusion if one subscribes to NJV DSV. Else there is no reason for an
 > overlap to be there between NJ's universes and Ishvaras. Not that it would
 > matter so much, since people who are not convinced of DSV will question EJV

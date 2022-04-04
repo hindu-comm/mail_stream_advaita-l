@@ -31,9 +31,9 @@ wrote:
 >> on Vichara Sagara. Anyone following the same may please clarify  and also
 >> inform what he has to say on the subject. If confirmed, then the
 >> understanding that Swami Vidyaranya has endorsed DSV
->> ​
+>> 
 >> (any version)
->> ​
+>> 
 >> would not be correct.
 >>
 >>

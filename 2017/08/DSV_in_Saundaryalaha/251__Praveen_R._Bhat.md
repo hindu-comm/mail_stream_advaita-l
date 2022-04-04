@@ -32,7 +32,7 @@ knowable [world] other than the knowledge/ cognition, in the view of DSV
 follower, the meaning "immediately" should be understood from the word
 "due-to-blinking".
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

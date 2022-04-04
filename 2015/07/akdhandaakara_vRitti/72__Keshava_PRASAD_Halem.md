@@ -32,7 +32,7 @@ Keshava PRASAD HalemanemOkShakaamaarthadharmahjanmanaa jaayatE jantuḥ | samska
 
 
      On Sunday, 5 July 2015 3:43 PM, श्रीमल्ललितालालितः via Advaita-l <advaita-l at lists.advaita-vedanta.org> wrote:
-   ​
+   
 For Keshav,
 I've to say that I've read your posts and they are difficult to understand.
 In clear words, they are not close to my understanding. However, the anvaya

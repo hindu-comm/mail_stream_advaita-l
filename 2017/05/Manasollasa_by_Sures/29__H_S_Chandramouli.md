@@ -43,7 +43,7 @@ wrote:
 >>> Link for
 >>> Dakshinamurti Stotra of Sri Sankaracharya with Svayamprakasa's
 >>> Tattvasudha and Suresvara's Manasollasa with Ramatirtha's commentary
->>> ​   Translation to english by Sri Mahadeva Shastri   << ​
+>>>    Translation to english by Sri Mahadeva Shastri   << 
 >>> https://archive.org/details/Dakshinamurti.Stotra.of.Sri.San
 >>> karacharya.with.Commentaries >>
 >>>

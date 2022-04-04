@@ -12,7 +12,7 @@ wrote:
 >
 >
 > > Slowly he changed due to the effect of Maha Periyava who weaned him from
->> ​> ​
+>> > 
 >> useless rationalism.
 >>
 >

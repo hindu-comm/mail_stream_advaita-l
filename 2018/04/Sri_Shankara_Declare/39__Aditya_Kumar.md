@@ -9,7 +9,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2018-April/
  Namaste Praveenji,
 I hope you don't get angered by anything that I may write on the internet.
 
-​ ​​This utility argument has been refuted in Mandukya karika by showing
+ This utility argument has been refuted in Mandukya karika by showing
 that the comparison is improper just like apples with oranges. The waking
 object is as useless to a dreamer in the dream as the dream object is
 useless in waking for a waker! You can surely cook using dream vessel in
@@ -29,11 +29,11 @@ I understand the non-utility of wealth obtained in the dreams when I wake up. He
 The pramANatva of waking is also w.r.t. to waking which is equally true of
 a dream during the dream.
 A : So how can the study of Shastras eliminate the other two states? By your argument, it should only nullify samsara in waking state.
-​
+
 gurupAdukAbhyAm,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
-That owing to which all this is known! [Br.Up. 4.5.15] */ ​
+That owing to which all this is known! [Br.Up. 4.5.15] */ 
 _______________________________________________
 Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
 http://blog.gmane.org/gmane.culture.religion.advaita

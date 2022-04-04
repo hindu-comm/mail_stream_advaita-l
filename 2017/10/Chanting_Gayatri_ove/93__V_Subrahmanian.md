@@ -22,7 +22,7 @@ Namaste Sri Kalyan ji,
 
 I talked to my friend who has visited Sringeri Matha several times. He
 daily practises nitya karma and anusthana, that he is supposed to do as a
-Brahmin.​ He did not have all the answers, but honestly gave some answers.
+Brahmin. He did not have all the answers, but honestly gave some answers.
 I will share the same.
 
 
@@ -43,7 +43,7 @@ I will share the same.
 the
    yajna-s i.e. havan and vedika yagja-s organised by matha and denfinitely
    not in the Sringeri matha itself. Only Bra
-   ​h​
+   h
    mins from Bharat are allowed to perform Yajna
    8. Sringeri Jagadguru may bless anyone who approaches him but this does
    not mean that he endorses their actions. Many come with a hope to solve
@@ -51,7 +51,7 @@ the
    does not mean he will actually take away all their sorrows or say
 tathastu
    and fulfill their wishes.
-   9. ​He indicated that at times, Acharya remains detached and neutral to
-   many activities and may bless the work as a formality​
-   ​. Actually it's not blessings nor it's appreciation, but just a
+   9. He indicated that at times, Acharya remains detached and neutral to
+   many activities and may bless the work as a formality
+   . Actually it's not blessings nor it's appreciation, but just a
    formality.

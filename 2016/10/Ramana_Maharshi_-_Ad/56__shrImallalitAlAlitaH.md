@@ -16,9 +16,9 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > not. Beliefs are not logical since they are beliefs.
 >
 
-​If this was so meaningless, you wouldn't have posted it here.
+If this was so meaningless, you wouldn't have posted it here.
 It has some purpose.
->From our end, it will help you learn about pramANa(shruti) and logic.​
+>From our end, it will help you learn about pramANa(shruti) and logic.
 >From other's end, ramaNa's devotees may get force to follow more and more.
 
 Shraddhaa you are referring is very important - but that is defined as -
@@ -26,7 +26,7 @@ Shraddhaa you are referring is very important - but that is defined as -
 > only on teacher but on shaastra is also important.
 >
 
-​The misconception which is well spread among even advaitin-s is that they
+The misconception which is well spread among even advaitin-s is that they
 think that avadhAraNa is assumptions.
 It is not.
 avadhAraNa means conclusion. And, that is not same as assumption. It must
@@ -34,21 +34,21 @@ be reached by using logic.
 So, in this way even those teaching advaita are reaping benefits by making
 fool of students. That's why we see that guru's rarely get questioned
 seriously, for their anger(visible or not) may arise and destroy you. :P
-​
+
 
 > Whether one is jnaani or not cannot be litmus-tested,
 
-​
-Yes, that's why shruti says disciple to reach shrotriya​ and brahmaniShTha,
+
+Yes, that's why shruti says disciple to reach shrotriya and brahmaniShTha,
 since no one can know who is brahmasaMstha!! :P
 
 Hence one can say he is shaastravit not necessarily jnaani - but hopefully
 > we assume that he knows what he is teaching.
 >
 
-​That's why I said that assumption is base of the whole breed of new
+That's why I said that assumption is base of the whole breed of new
 vedAnta sampradAya.
-​
+
 
 > Knowledge once gained will not get negated - the mind may not be capable
 > of repeating that knowledge due to memory problems - that is true for any
@@ -59,18 +59,18 @@ vedAnta sampradAya.
 > that. However it does not matter since it is not relevant.
 >
 
-​You may need some help for differntiating 'negation'(bAdha) of GYAna and
+You may need some help for differntiating 'negation'(bAdha) of GYAna and
 anityatva of the same.
-​I think you are capable, and will find the difference of what I told and
+I think you are capable, and will find the difference of what I told and
 what you are superimposing on me.
 
 Scripture provided a case using Vamadeva that jnaanam is not lost by being
 > born as vaamadeva.
 
 
-​Then accept that GYAna is not a mean of cessation of saMsAra, since the
+Then accept that GYAna is not a mean of cessation of saMsAra, since the
 GYAna was not lost and he got birth too.
-​
+
 
 > Krishna says a person, if he has not shtita prajna, will be born in a
 > conducive family for his rapid growth. Nothing is lost by this pursuit.  It
@@ -78,30 +78,30 @@ GYAna was not lost and he got birth too.
 > death-experience - some experience that triggered further pursuit. Hence
 > knowledge never get wasted.
 >
-​
+
 The portion of gItA which is exclusively for yoga(karma), is being bent
 here for some unknown reason.
-God know what purpose this dishonesty will serve.​
+God know what purpose this dishonesty will serve.
 
 Most of us agree that anubhava -including samadhi - is not a means of
 > knowledge. Pramana has to operate by its due process via the mind. anubhava
 > from advaita point is abiding in the knowledge gained by shravana etc.
 >
 
-​So, here :
+So, here :
 abiding in knowledge = anubhava
 I leave people to decide, where this useless laxaNA will lead.
-​
+
 
 > What is required is mahaavaakya - the essence of vedanta - That part is
 > apourusheya - not the text per sec - that is the pramaana part.
 
 
-​I've seen K Sadananda doing this all over apauruSheyatva thread in many
+I've seen K Sadananda doing this all over apauruSheyatva thread in many
 forums. He doesn't have any idea about the meaning and context of the word
 in which it occurs during discussion in older text. So, he always tends to
 bring his version.
-​
+
 Rest of his post doesn't deserve attention, since this apauruSheytva thing
 is too much disturbing.
 

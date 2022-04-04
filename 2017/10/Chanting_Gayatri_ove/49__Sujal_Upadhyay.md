@@ -83,7 +83,7 @@ Sringeri Bharathi Tirtha Swamigal's Anugraha Bhashanam on July 14th 2008
 Sringeri Swamigal's July 14th Anugraha Bhashanam Part 1
 https://youtu.be/IbytUkpNCmI
 
-Sringeri Swamigal's July 14th Anugraha Bhashanam Part ​2​
+Sringeri Swamigal's July 14th Anugraha Bhashanam Part 2
 
 https://youtu.be/RGUzVwheChA
 
@@ -107,6 +107,6 @@ On Fri, Oct 6, 2017 at 12:18 PM, Sujal Upadhyay <sujal.u at gmail.com> wrote:
 > shastras. They themselves have opened branches in USA and Canada. Please
 > find my earlier responses.
 >
-> ​<Content Clipped>
+> <Content Clipped>
 >
 >

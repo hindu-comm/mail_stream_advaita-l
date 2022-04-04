@@ -103,7 +103,7 @@ On Tue, Sep 6, 2016 at 11:01 AM, Sujal Upadhyay <sujal.u at gmail.com> wrote:
 > not involve any effort. It is natural to be just you :)
 >
 >
-> ​Hari ​
+> Hari 
 > OM
 >
 > Sujal

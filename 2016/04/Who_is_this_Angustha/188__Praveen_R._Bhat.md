@@ -17,7 +17,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >
 > //
 >
-> Traditional scholars differ with the above.  In-fact, दहरपुण्डरीक​ is said
+> Traditional scholars differ with the above.  In-fact, दहरपुण्डरीक is said
 > to be
 > in the physical heart.  This is what I am told by couple of traditional
 > scholars

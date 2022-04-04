@@ -132,7 +132,7 @@ wrote:
 >>>>
 >>>> And I'm not saying anything different than "shakti is synonymous with
 >>> mAyA", unless your statement is "shakti is synonymous with brahman
->>> itself".​ If you are indeed saying the latter, that is also true, yet only
+>>> itself". If you are indeed saying the latter, that is also true, yet only
 >>> in the sense of तेजसः उष्णवत्, the heat/ burning power of fire is
 >>> non-different from fire, that is it can neither be separated from fire nor
 >>> can exist without fire, but fire is not heat. Similarly, Maya can neither
@@ -143,7 +143,7 @@ wrote:
 >>> --Praveen R. Bhat
 >>> /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one
 >>> know That owing to which all this is known! [Br.Up. 4.5.15] */
->>> ​
+>>> 
 >>>
 >>>
 >>>

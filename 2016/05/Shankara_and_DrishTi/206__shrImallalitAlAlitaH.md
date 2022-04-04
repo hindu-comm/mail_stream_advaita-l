@@ -12,9 +12,9 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 > It is accepted that there are nAnA-prapa~Ncha. The usage 'what i see is
 > being seen by you' is illusion again.
 
-​In siddhAtabindu we have following said for vAchaspati's view-​
+In siddhAtabindu we have following said for vAchaspati's view-
 
-*​**अस्मिँश्च पक्षे*
+***अस्मिँश्च पक्षे*
 
 अज्ञाननानात्वात् जीवनानात्वम् ।
 
@@ -28,4 +28,4 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 ईश्वरस्य च सप्रपञ्चजीवाविद्याधिष्ठानत्वेन कारणत्वोपचारात् ।
 - इति ।
 
-*​श्रीमल्ललितालालितः*www.lalitaalaalitah.com
+*श्रीमल्ललितालालितः*www.lalitaalaalitah.com

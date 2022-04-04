@@ -21,7 +21,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >
 
 Muktikopanishad mantras 1.2.1 to 1.2.5 themselves list shAntimantras for
-108 Upanishads.​
+108 Upanishads.
 
 Kind rgds,
 --Praveen R. Bhat

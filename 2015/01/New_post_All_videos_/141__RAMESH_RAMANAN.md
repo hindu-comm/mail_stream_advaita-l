@@ -26,7 +26,7 @@ From: comment-reply at wordpress.com
 Subject: [New post] All videos from Sanyasa sweekara last week
 
  #yiv7709505808 .yiv7709505808ExternalClass a:hover {color:red;}#yiv7709505808 .yiv7709505808ExternalClass a {text-decoration:none;color:#0088cc;}#yiv7709505808 .yiv7709505808ExternalClass a.yiv7709505808ecxprimaryactionlink:link {background-color:#2585B2;color:#fff;}#yiv7709505808 .yiv7709505808ExternalClass a.yiv7709505808ecxprimaryactionlink:hover {background-color:#11729E;color:#fff;} WordPress.com
-|   thapas posted: "For those who missed Sankara TV telecast, here are the videos of Sringeri shishya sweekara,​Uttaradhikari participating in Purusha sookta homahttps://www.youtube.com/watch?v=6NdJIYNCKSUhttps://www.youtube.com/watch?v=MPKnPnn5mvc&x-yt-ts=1421"  
+|   thapas posted: "For those who missed Sankara TV telecast, here are the videos of Sringeri shishya sweekara,Uttaradhikari participating in Purusha sookta homahttps://www.youtube.com/watch?v=6NdJIYNCKSUhttps://www.youtube.com/watch?v=MPKnPnn5mvc&x-yt-ts=1421"  
 |  
 | Respond to this post by replying above this line |
 
@@ -46,7 +46,7 @@ Subject: [New post] All videos from Sanyasa sweekara last week
 All videos from Sanyasa sweekara lastweek
  by thapas  |
 
-  For those who missed Sankara TV telecast, here are the videos of Sringeri shishya sweekara, ​ Uttaradhikari participating in Purusha sookta homa https://www.youtube.com/watch?v=6NdJIYNCKSU https://www.youtube.com/watch?v=MPKnPnn5mvc&x-yt-ts=1421914688&x-yt-cl=84503534 https://www.youtube.com/watch?v=RHzvJiG2e7w pranavapodaseha https://www.youtube.com/watch?v=zLrFms-3L4s Parayanka Soucha https://www.youtube.com/watch?v=6qnXEbCr4tk Vyakhyana SImhasana and Mangalarati https://www.youtube.com/watch?v=lnF2qNlgAcw Padapuja https://www.youtube.com/watch?v=nBX8Yh1LMnY Yogapatta announcement https://www.youtube.com/watch?v=XVcIrfAgm_Y Darshana of Sharadamba by the two Jagadgurus https://www.youtube.com/watch?v=DflTTqYwkkk ANugraha Bashana by Sri Vidhushekarabharati swamiji https://www.youtube.com/watch?v=t79q74S9s-Q […]Read more of this post   thapas | January 25, 2015 at 4:03 pm | Categories: Uncategorized | URL: http://wp.me/ppbHD-jE   
+  For those who missed Sankara TV telecast, here are the videos of Sringeri shishya sweekara,  Uttaradhikari participating in Purusha sookta homa https://www.youtube.com/watch?v=6NdJIYNCKSU https://www.youtube.com/watch?v=MPKnPnn5mvc&x-yt-ts=1421914688&x-yt-cl=84503534 https://www.youtube.com/watch?v=RHzvJiG2e7w pranavapodaseha https://www.youtube.com/watch?v=zLrFms-3L4s Parayanka Soucha https://www.youtube.com/watch?v=6qnXEbCr4tk Vyakhyana SImhasana and Mangalarati https://www.youtube.com/watch?v=lnF2qNlgAcw Padapuja https://www.youtube.com/watch?v=nBX8Yh1LMnY Yogapatta announcement https://www.youtube.com/watch?v=XVcIrfAgm_Y Darshana of Sharadamba by the two Jagadgurus https://www.youtube.com/watch?v=DflTTqYwkkk ANugraha Bashana by Sri Vidhushekarabharati swamiji https://www.youtube.com/watch?v=t79q74S9s-Q […]Read more of this post   thapas | January 25, 2015 at 4:03 pm | Categories: Uncategorized | URL: http://wp.me/ppbHD-jE   
 | Comment | See all comments |
 
    |

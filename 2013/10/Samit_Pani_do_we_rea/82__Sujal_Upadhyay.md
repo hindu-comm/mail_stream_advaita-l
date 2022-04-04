@@ -40,7 +40,7 @@ On Tue, Oct 29, 2013 at 5:39 PM, Sujal Upadhyay <sujal.u at gmail.com> wrote:
 >> PS: even this forum is helping mumukshus in keep going forward.
 >
 >
-> Maybe Upanishad would mean - to stay connected to Guru via internet ;)​​
+> Maybe Upanishad would mean - to stay connected to Guru via internet ;)
 >
 >
 > OM

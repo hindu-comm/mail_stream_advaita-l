@@ -7,7 +7,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/0
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/045550.html)
 
 Namaste Subbuji,
-​
+
 On Wed, Jun 21, 2017 at 7:54 AM, V Subrahmanian via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 >
@@ -18,15 +18,15 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > such junk material to the forum.
 >
 
-​Apologies, I wasn't aware of this or at least do not remember. I do
-remember seeing his name on either of these lists though.​ However, since I
+Apologies, I wasn't aware of this or at least do not remember. I do
+remember seeing his name on either of these lists though. However, since I
 saw this mail before posting my reply to the list, I shall send the reply
 to him off the list and stop there.
 
-​
-​
+
+
 Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

@@ -34,8 +34,8 @@ endearment, productive of that experience, without any blemish, **that is
 the nirvikalpa-samadhi which is the cause of the dissolution of all
 universal vasanas beginning with ahamkAra**.
 
-​...and where are vAsanA-s - sarvAn partha manogatAm BG 2.55. Where are
-vritti-s - inside mind.​
+...and where are vAsanA-s - sarvAn partha manogatAm BG 2.55. Where are
+vritti-s - inside mind.
 
 I too didnt use the word namolaya for same reason :)
 

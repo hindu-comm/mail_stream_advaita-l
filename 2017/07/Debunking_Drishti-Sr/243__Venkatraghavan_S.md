@@ -46,7 +46,7 @@ Venkatraghavan
 
 On 20 Jul 2017 3:10 a.m., "Praveen R. Bhat" <bhatpraveen at gmail.com> wrote:
 
- I am not saying that mithyAtva is reserved only for​ DSV, but dRshyatvAt
+ I am not saying that mithyAtva is reserved only for DSV, but dRshyatvAt
 hetu is definitely reserved only for DSV. You could say kAryatvAt, but not
 dRshyatvAt. mithyAtvanishchaya in pure SDV has to necessarily be with
 dependency example. If you recall, my reasoning for SDV leading to the last

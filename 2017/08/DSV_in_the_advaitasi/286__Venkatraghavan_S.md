@@ -13,7 +13,7 @@ On Tue, Aug 22, 2017 at 1:42 PM, Praveen R. Bhat <bhatpraveen at gmail.com>
 wrote:
 
 >
->> Venkatraghavanji, ​I am not sure as to what sthUla and ​sUkShma means
+>> Venkatraghavanji, I am not sure as to what sthUla and sUkShma means
 > here in terms of shuktikA-rajat example in the context of DSV.
 >
 

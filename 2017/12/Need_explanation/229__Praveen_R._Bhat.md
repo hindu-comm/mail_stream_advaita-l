@@ -24,7 +24,7 @@ become something one is not. That is just not possible. Coming to your
 question, its tricky. One can't say it is not a process since there is
 effort involved. However, it is prAptasya prAptiH, gaining of the already
 gained, what you already are. Since there is no choice in knowing something
-as is, one can't say that ​there is a process of choosing to become. Yet
+as is, one can't say that there is a process of choosing to become. Yet
 knowledge takes effort in terms of removing misunderstandings. So
 realisation is a process of removing the misconceptions of taking oneself
 as something one is not, including the thinking that one will become
@@ -34,7 +34,7 @@ absolute while being limited. That is an impossibility.
 Does this mean that the world is not a second absolute, since two absolutes
 > would be a contradiction?
 >
-​Yes, it verily means that.​ This absolute is not like my saying that "O,
+Yes, it verily means that. This absolute is not like my saying that "O,
 my friend is absolutely good", the absolute good there being relative/
 subjective. This absolute is the real sense of the word absolute. There
 cannot be anything outside of it.
@@ -43,10 +43,10 @@ Does the presence of infinite individuaualities not contradict that there
 > can be only one absolute? How do we arrive at the conclusion that an
 > infinite set of finites spread across space cannot be divided?
 >
-​No, appearances do not contradict the one. A rope can be seen as a snake,
+No, appearances do not contradict the one. A rope can be seen as a snake,
 a split in the [path, a stream of water and so on, but the rope always
 remains one even when perceived as many.
-​​
+
 
 > Putmān retas siñcati yoṣitāyām bahvīḥ prajāḥ puruṣāt samprasūtāḥ: In this
 > manner, the heavenly Purusha is causing, by his own vibration of will, the
@@ -71,10 +71,10 @@ there has to be a cause that is Itself causeless. That is one and brahman
 as per Shruti. Moreover, if there is a cause for brahman, that brahman will
 not be absolute, as explained earlier.
 
-​gurupAdukAbhyAm,
-​
-​
+gurupAdukAbhyAm,
+
+
 --Praveen R. Bhat
  /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
-​ ​
-That owing to which all this is known! [Br.Up. 4.5.15] */​
+ 
+That owing to which all this is known! [Br.Up. 4.5.15] */

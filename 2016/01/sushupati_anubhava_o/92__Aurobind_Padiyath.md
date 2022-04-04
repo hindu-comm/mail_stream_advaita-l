@@ -39,7 +39,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >
 > Thanks for the answer.
 >
-> ​>>
+> >>
 > We have somany questions on waking and dream states since it varies from
 > individual to individual due to upAdhi-s bedha,  whereas nobody would ask
 > the question about one's anubhava of deep sleep state since it is the state
@@ -69,7 +69,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > jnAni and jnAni, ajnAni and ajnAni since the 'experience' of sushupti is
 > > same for one and all.  Hence no question/doubt on the experience of deep
 > > sleep state.
-> > ​​
+> > 
 > > We have somany questions on waking and dream states since it varies from
 > > individual to individual due to upAdhi-s bedha,  whereas nobody would ask
 > > the question about one's anubhava of deep sleep state since it is the

@@ -6,8 +6,8 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2016-March/
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2016-March/040669.html)
 
-​Nicely replied.
-Thanks, Venkataraghavan S.​
+Nicely replied.
+Thanks, Venkataraghavan S.
 
 You can change the rule 1's wording as:
 there must be saMskAra of adhyasyamAna(the thing being superimposed), not

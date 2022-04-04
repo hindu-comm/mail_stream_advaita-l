@@ -9,24 +9,24 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 Reposting in 2 parts since I got a server response so:  Message body is too
 big: 57888 bytes with a limit of 50 KB
 
-​Part 1: ​
+Part 1: 
 
-​​Namaste Adityaji,​
+Namaste Adityaji,
 
 On Sat, Jul 15, 2017 at 2:54 PM, Aditya Kumar <kumaraditya22 at yahoo.com>
  wrote:
 
 >
-> ​If that, I am glad, but you are still sadly mistaken. Bhamatikara
+> If that, I am glad, but you are still sadly mistaken. Bhamatikara
 > Vachaspati Mishra accepts DSV with NJV not EJV. That is not to say that he
-> ​is against DSV. Someone who has Bhamati reference for this may kindly
+> is against DSV. Someone who has Bhamati reference for this may kindly
 > quote the same, since I haven't studied Bhamati text proper.
 >
 > A : I am not sure if Bhamati explicitly advocates solipsism, but here is a
 > refutation of DSV with nana-jiva vada : -
 >
 
-​If its not from Bhamati, I am not interested in Dasgupta's hypotheses.​
+If its not from Bhamati, I am not interested in Dasgupta's hypotheses.
 However, I will just respond to just some points in the following.
 
 > “Some Vedantists hold that there are many individuals and the
@@ -40,7 +40,7 @@ However, I will just respond to just some points in the following.
 > of each happens for him subjectively and has no corresponding objective
 > phenomena as its ground.
 >
-​I can use this to establish that there is EJV and not NJV,
+I can use this to establish that there is EJV and not NJV,
 
 This must be distinguished from the normal Vedanta view which holds that
 > objectively phenomena are also happening, but that these are illusory only
@@ -51,13 +51,13 @@ This must be distinguished from the normal Vedanta view which holds that
 >
 I am curious if there is any defence for this critique.
 >
-​Yes. Manudkya Karika says:
+Yes. Manudkya Karika says:
 आदावन्ते च यन्नास्ति वर्तमानेऽपि तत्तथा
-​ ​
+ 
 ॥ २.६ ॥
-​
+
 What does not exist in the beginning and in the end, that is so (
-​=​
+=
 non-existent) even in the present.
 
 
@@ -80,16 +80,16 @@ non-existent) even in the present.
 Why are you suddenly landing on EJV? You are objecting to tucchatva, aren't
 you?
 I could equally ask you
-​ if tucchatva is not talked about but only mithyatva, how does that prove
-SDV?​
+ if tucchatva is not talked about but only mithyatva, how does that prove
+SDV?
  This bhAShya is leading to
-​tucchatva
+tucchatva
 ,
-​the only reason by ​
+the only reason by 
 which
-​it ​
+it 
 was quoted next.
-​
+
 
 
 > उत्पत्तिप्रलययोरभावाद्बद्धादयो न सन्तीत्येषा परमार्थता ।
@@ -98,8 +98,8 @@ was quoted next.
 >
 > A : Again, same thing.
 >
-​Again, same tucchatva.
-​
+Again, same tucchatva.
+
 
 
 >
@@ -111,5 +111,5 @@ was quoted next.
 >
 > A : I am not contesting this.
 >
-​Oh, but you are. You can't differentiate jagat and Maya... here's why.​..
-(...​continued in Part 2)​
+Oh, but you are. You can't differentiate jagat and Maya... here's why...
+(...continued in Part 2)

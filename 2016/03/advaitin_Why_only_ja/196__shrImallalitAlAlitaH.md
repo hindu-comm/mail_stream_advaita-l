@@ -13,29 +13,29 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > it??
 
 
-​No.
-​
+No.
+
 
 
 > When you know the true svarUpa of gold,
 
 
-​True svarUpa of Gold? Really?
+True svarUpa of Gold? Really?
 Do you want to say 'of ornament'?
-​
+
 
 
 > the socalled nAma rUpa is nothing but gold only i.e. satyameva.
 
 
-​Really.
+Really.
 I've not seen such  an expression from any serious student.
 Are you really studying vedAnta for a few years?
 
-Who in this world says that nAma-rUpa (of ornament)​
+Who in this world says that nAma-rUpa (of ornament)
 
-​is one with gold?
-​
+is one with gold?
+
 
 > Shankara talks about 'bheda buddhi nivrutti' NOT bhedAkAra nivrutti.
 
@@ -46,17 +46,17 @@ As you are making proclamations, there is no need to put proof for
 supporting my views too. So, I proclaim that if bhedAkAra doesn't dissolve
 by GYAna, then it must be real and it makes advaita impossible.
 I don't think you care about advaita-system.
-​
+
 
 
 > Hence it has been clarified that the 'jagat' will not be vanquished by
 > attaining the brahmavidyA.
 
 
-​Sure! That's why you need to read first adhikaraNam of brahmasUtra, if you
+Sure! That's why you need to read first adhikaraNam of brahmasUtra, if you
 could get the correct meaning without superimposing your pet theories on
 them.
-​
+
 
 
 > But the assumptions (like it is asarvaM, paricchinnaM, independent from
@@ -66,7 +66,7 @@ them.
 > 'truth' behind jagat which is nothing but brahman.
 
 
-​Enough. I can't bear any more.
+Enough. I can't bear any more.
 I've other works to do. Most important of them is to learn new shAstra-s.
 I'll suggest all to learn to learn, if they are serious.
 Future posts will be neglected.

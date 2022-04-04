@@ -20,7 +20,7 @@ To: bvparishat <bvparishat at googlegroups.com>
 The Indian Institute Of World Culture,
 
 Basavanagudi, Bangalore –
-​560 004
+560 004
 
 
 

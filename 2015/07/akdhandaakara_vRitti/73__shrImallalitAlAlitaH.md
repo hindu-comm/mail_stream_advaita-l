@@ -16,14 +16,14 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > brahma-vastu?
 
 
-​You know, anyone will hate to say same thing again and again. I'm telling
+You know, anyone will hate to say same thing again and again. I'm telling
 this about second question.
 
 If you understand that I was refuting it's relation with  brahma-vastu
 only, then it makes sense to deduce that I accept that this vRtti is
 possible for other objects. Otherwise, why should I insist to cover सोयम्
 and प्रकृष्टप्रकाशश्चन्द्रः etc.?
-​
+
 
 
 

@@ -28,10 +28,10 @@ Subject: Re: [Advaita-l] About Moksha or Enlightenment
 
 Namaste Kripaji,
 
-If we go with ​​Bhag​a​v​A​n Bhasy​a​k​A​raa and tikAk​A​ra then this problem of animal geting moskha does not come as they do not define p​A​payoni here as animals.
+If we go with BhagavAn BhasyakAraa and tikAkAra then this problem of animal geting moskha does not come as they do not define pApayoni here as animals.
 
 
-​​Bhag​a​v​A​n Bhasy​a​k​A​ra says, ,मां हि यस्मात् पार्थ व्यपाश्रित्य माम् आश्रयत्वेन गृहीत्वा येऽपि स्युः भवेयुःपापयोनयः पापा योनिः येषां ते पापयोनयः पापजन्मानः। के ते इति? आह -- स्त्रियः वैश्याः तथा शूद्राः तेऽपि यान्ति गच्छन्ति परां प्रकृष्टां गतिम्।।
+BhagavAn BhasyakAra says, ,मां हि यस्मात् पार्थ व्यपाश्रित्य माम् आश्रयत्वेन गृहीत्वा येऽपि स्युः भवेयुःपापयोनयः पापा योनिः येषां ते पापयोनयः पापजन्मानः। के ते इति? आह -- स्त्रियः वैश्याः तथा शूद्राः तेऽपि यान्ति गच्छन्ति परां प्रकृष्टां गतिम्।।
 
 
 महामण्डलेश्वर श्रीमत्स्वामी विद्यानन्दगिरिजी is also clear in his ललिताव्याख्या of शाङ्करभाष्य that as per भगवान्भाष्यकार pApayoni means stri, vaishya, sudra here. 
@@ -43,10 +43,10 @@ And in the very next verse tikAkAra clear it that animal are not fit for bhagvad
 मनुष्यदेहातिरिक्तेषु पश्वादिदेहेषु भगवद्भजनयोग्यताभावात्प्राप्ते मनुष्यत्वे तद्भजने प्रयतितव्यमित्याह –दुर्लभमिति।
 
 
-So he sa​ys​ that it is durlabham, so there can be apavAdam.
+So he says that it is durlabham, so there can be apavAdam.
 
 
-About the animals can get moksha or not? We can put in category of apavAdam. There is a rare possibity that some time a human can born with such a prArabdha which need​s​ more than one janma to ​​exhaust. So if he​/she​ get​s​ brahma jnAnam, still he​/she​ may reborn again. I forgot the maximum span of lfie in such case but I think it can be many hundred years. So in that case you get the videhamukti in you last birth.
+About the animals can get moksha or not? We can put in category of apavAdam. There is a rare possibity that some time a human can born with such a prArabdha which needs more than one janma to exhaust. So if he/she gets brahma jnAnam, still he/she may reborn again. I forgot the maximum span of lfie in such case but I think it can be many hundred years. So in that case you get the videhamukti in you last birth.
 
 
 
@@ -56,12 +56,12 @@ Any you are correct about Sri Abhinava Gupt ji commentry.
 मां हि इत्यादि मत्परायण इत्यन्तम्। पापयोनयः पशुपक्षिसरीसृपादयः। स्त्रिय इति अज्ञाः। वैश्या इति कृष्यादिकर्मान्तररताः। शूद्रा इति कार्त्स्येन वैदिकक्रियानधिकृताः परतन्त्रवृत्तयश्च। तेऽपि मदाश्रिता मामेव यजन्ते। गजेन्द्रमोक्षणादीनि चरितानि हि परमकारुणिकस्य भगवतः सहस्रशः श्रूयन्ते। किमङ्ग पुनरेतद्विपरीतवृत्तयः।
 
 
-I am not sure how tradition explains गजेन्द्रमोक्ष​ by extended prArabdha or ?
+I am not sure how tradition explains गजेन्द्रमोक्ष by extended prArabdha or ?
 
 
-​My two cents
+My two cents
 
-Thanks​
+Thanks
 
 On Thu, Feb 2, 2017 at 7:26 PM, Kripa Shankar via Advaita-l <advaita-l at lists.advaita-vedanta.org> wrote:
 ‎Namaste Praveen,

@@ -63,10 +63,10 @@ understood as the kArana for adhyAsa itself per se.
 As you have yourself clarified, avidya having Brahman as locus is to be
 understood as avidya being the adhyasta and Brahman as adhishthAna, one
 being
-​mithya​
-​(​
+mithya
+(
 unreal
-​)​
+)
 and the other real.
 
 

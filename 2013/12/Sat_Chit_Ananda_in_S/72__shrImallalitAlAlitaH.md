@@ -13,9 +13,9 @@ On Wed, Dec 4, 2013 at 1:55 PM, Sumitha Ramachandran <sumitha.rama at yahoo.com
 > scriptures?
 
 
-​These three are not different is to be understood.
+These three are not different is to be understood.
 Again, when their is no dR^iShya, i.e. in nirvikalpa-samAdhi, they are
-realized as they are. They are known as devoid of any constraint​.
+realized as they are. They are known as devoid of any constraint.
 To understand, please note that sat, chit and Ananda are known in every
 state, as they are adhiShThAna of everything. But, they are contained by
 nAma and rUpa.

@@ -27,7 +27,7 @@ According to Swami Shankarananda of Chinmaya Mission, who has Translated
 PancadaSI in Hindi and have commented on it says that this verse occurs in
 Yog VAsisTa too.
 
-​SrI VidyAraNya svAmI has also cited Amrit Bindu Upanishad 1 and 18 in
+SrI VidyAraNya svAmI has also cited Amrit Bindu Upanishad 1 and 18 in
 PanchdaSI 1.4.45-46.
 
 P. 1.4.45 = Amrit. B. Up. 1
@@ -48,9 +48,9 @@ scribd<http://www.scribd.com/doc/79331270/Hindi-Book-Panchadasi-by-Vidyaranya-sw
 Pt. RAmAvatAra vidyAbhAskara)
 
 
-​Hari ​
+Hari 
 OM
 
 Sujal
-​​
+
 

@@ -17,7 +17,7 @@ On Tue, May 1, 2018 at 3:45 PM Kalyan <kalyan_kg at yahoo.com> wrote:
 > So let us agree to disagree here.
 >
 
-​
+
 Pending answers to the questions asked by others, just bhAShya quotations
 cannot be convincing, since there is scope for misunderstanding or
 completely understanding the same. Nonetheless, I will drop the discussion
@@ -35,9 +35,9 @@ itself answers it! TIkAkAra explains the answer so:
 So what is to be understood as that the vikShepashakti of avidyA is shAnta
 but the AvaraNa is very much there. Both are very much there, the former
 unmanifest and the latter manifest.
-​
+
 gurupAdukAbhyAm,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

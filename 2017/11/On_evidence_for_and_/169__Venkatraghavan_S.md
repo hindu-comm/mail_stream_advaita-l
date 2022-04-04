@@ -52,8 +52,8 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > Time dilation was recently known, in fact was postulated first. But
 > Dwaipayana knew about it thousands of aeons ago.
 >
-> ​Can you tell us how you arrived at this conclusion.
-> regards,Sarma.​
+> Can you tell us how you arrived at this conclusion.
+> regards,Sarma.
 > _______________________________________________
 > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
 > http://blog.gmane.org/gmane.culture.religion.advaita

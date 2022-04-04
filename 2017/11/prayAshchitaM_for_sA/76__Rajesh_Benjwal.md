@@ -6,7 +6,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Novemb
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-November/047493.html)
 
-​​
+
 Thanks, Venkatraghavanji for your suggestion.
 
 I just checked Apasthambha sUtra and found अतिक्रान्ते सावित्रया: काल ऋतुं

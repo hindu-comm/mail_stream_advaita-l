@@ -15,11 +15,11 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > from its BhAtta MImAmsaka counterpert.
 
 
-​Actually those who can't understand that we are talking of vyvahAra-level
+Actually those who can't understand that we are talking of vyvahAra-level
 and trying to fit advaita-vedAnta to pratikarma-vyavastha, which is
 loka-siddha, can't understand these intricacies.
 vedAnta doesn't accept that attributeless brahman can be revealed in
-saMsArAvasthA, that too by ghaTa-GYAna.​
+saMsArAvasthA, that too by ghaTa-GYAna.
 
 
 

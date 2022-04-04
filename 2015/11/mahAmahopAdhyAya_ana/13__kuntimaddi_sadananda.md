@@ -35,7 +35,7 @@ On Tue, 11/3/15, श्रीमल्ललितालालितः via Adva
 
  On Tue, Nov 3, 2015 at 11:58 AM,
  श्रीमल्ललितालालितः
- ​ ​
+  
  wrote:
 
  > I found this write up about mahAmahopAdhyAya

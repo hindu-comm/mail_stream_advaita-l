@@ -24,7 +24,7 @@ On Tue, 5/1/18, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
  Cc: "Advaita-l" <advaita-l at lists.advaita-vedanta.org>
  Date: Tuesday, May 1, 2018, 9:56 AM
 
- ​Namaste
+ Namaste
  Kalyanji,
  On Tue, May
  1, 2018 at 2:32 PM Kalyan <kalyan_kg at yahoo.com>
@@ -39,7 +39,7 @@ On Tue, 5/1/18, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
  with by the same Bhashyakara in Mandukya 1.6 and Chandogya
  6th chapter. Bhashyakara may not answer all questions
  everywhere as they are answered elsewhere. Brihad is the
- last studied Upanishad in the sequence of ten. ​Upanishads
+ last studied Upanishad in the sequence of ten. Upanishads
  are one unit. Although one is sufficient, it doesn't
  mean that others are completely contradictory or even
  tangential. Else Bhashyakara need not quote other Upanishad
@@ -65,4 +65,4 @@ On Tue, 5/1/18, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
  विजानीयात्।Through what should one know That
  owing to which all this is known! [Br.Up. 4.5.15]
  */
- ​
+ 

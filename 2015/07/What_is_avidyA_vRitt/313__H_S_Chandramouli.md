@@ -31,7 +31,7 @@ and its vritti ) , the vritti is termed antahkarana vritti ( अन्तःक�
  Reg << Sarvajnatma-muni states that in illusions such as seeing a nacre as
 silver,
 इदम्  is अन्तःकरण वृत्ति   (  idam is antaHkaraNa vR^itti
-रजताकार​ is अविद्या वृत्ति  (  rajatAkAra  is avidyA vR^itti) >> ,
+रजताकार is अविद्या वृत्ति  (  rajatAkAra  is avidyA vR^itti) >> ,
 
 
  The antahkarana vritti issues forth through the eye and contacts the
@@ -39,12 +39,12 @@ object nacre . However it is not capable of uncovering the nacre fully and
 does so only partially. Hence the Chidabhasa is only able to illumine the
 Idam ( this is ) part only . It is unable to illumine the “ nacre “ ( shell
 ) part . Therefore Idam is termed antahkarana vritti . The “
-rajatakara “ ( रजताकार​
+rajatakara “ ( रजताकार
 ) ( silver ) part is a projection of the avidya located in the Consciouness
 enclosed by nacre ( शुक्तिअवछ्छिन्नचैतन्याश्रितअविद्या ) . This is not
 contacted by the earlier antahkarana vritti ( which is in contact with
 nacre ) and is illumined directly by the Consciousness associated with the
-mind ( साक्शि ) ( Sakshi or Witness ) . This “ rajatakara “ ( रजताकार​ ) is
+mind ( साक्शि ) ( Sakshi or Witness ) . This “ rajatakara “ ( रजताकार ) is
 termed Avidya vritti ( अविद्या वृत्ति ) .
 
 
@@ -87,7 +87,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >
 > Sarvajnatma-muni states that in illusions such as seeing a nacre as silver,
 > इदम्  is अन्तःकरण वृत्ति   (  idam is antaHkaraNa vR^itti
-> रजताकार​ is अविद्या वृत्ति  (  rajatAkAra  is avidyA vR^itti)
+> रजताकार is अविद्या वृत्ति  (  rajatAkAra  is avidyA vR^itti)
 >
 >
 > Thank you and regards

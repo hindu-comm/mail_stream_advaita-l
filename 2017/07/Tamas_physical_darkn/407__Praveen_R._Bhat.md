@@ -14,7 +14,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > Interestingly, only light (tejas) is listed under dravya (substance), but
 > not darkness (tamas), in tarka sangraha.
 >
-​True. In Padakrtya, a doubt is raised: there is a saying that the
+True. In Padakrtya, a doubt is raised: there is a saying that the
 darkness/shadow moves. नीलस्तमश्चलति। They also say that being touched with
 someone's shadow is auspicious while that of another is inauspicious. The
 answer given is: तेजसः अभावः तमः।
@@ -28,8 +28,8 @@ since अभावरूप शून्यत्वम् can also cause सं
 really insist on भावरूपा, but we say it is not अभावरूपा। It can be said as
 यत्किञ्चिद् भावरूपा।
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
-That owing to which all this is known! [Br.Up. 4.5.15] */​
+That owing to which all this is known! [Br.Up. 4.5.15] */

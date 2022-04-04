@@ -14,7 +14,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > constitute Akhandakara Vritii.
 >
 
-​I hope you have read the whole thread. If not then go through it. Better
+I hope you have read the whole thread. If not then go through it. Better
 not repeat all that.
 
 Even then I'll like to test your sentence:
@@ -26,8 +26,8 @@ It doesn't make sense for 'limitless, shapeless' Atman.
 
 BTW, if you want to say that you were little poetic while describing
 brahmaGYAna, then I'll request you to stay away from scholarly discussions
-to save your poetry.​
-​
+to save your poetry.
+
 
 
 

@@ -68,7 +68,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > in
 > > material-centered society. Some work needs to be done.
 > >
-> > ​<content clipped>​
+> > <content clipped>
 > >
 > >
 > _______________________________________________

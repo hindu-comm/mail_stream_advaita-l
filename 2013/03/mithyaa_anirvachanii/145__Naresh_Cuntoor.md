@@ -18,7 +18,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2013-March/
 > >
 >
 > I can't anything like that in my postings.
-> ​​
+> 
 >
 >
 As the quoted part of your previous message said "putrahInA means a woman
@@ -28,7 +28,7 @@ and putraH means son".
 >
 > OK. So, you were always talking about some sentence and it's meaning while
 > we all were talking about a padArtha.
-> ​​
+> 
 >
 
 No we are talking about the same thing -- the meaning of the samastapada.
@@ -54,14 +54,14 @@ to explain.
 >
 >
 > OK.
-> ​​
+> 
 >
 
 > > Then the uttarapada adds putraH.
 >
 >
 > So, what ? putraH doesn't mean 'a woman who doesn't have a son'.
-> ​​
+> 
 >
 
 Of course it doesn't. Neither did I say so at any point.  The remaining

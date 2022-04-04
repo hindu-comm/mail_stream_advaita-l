@@ -17,7 +17,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2013-Octobe
 > PS: even this forum is helping mumukshus in keep going forward.
 
 
-Maybe Upanishad would mean - to stay connected to Guru via internet ;)​​
+Maybe Upanishad would mean - to stay connected to Guru via internet ;)
 
 
 OM

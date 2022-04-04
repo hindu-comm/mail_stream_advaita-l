@@ -20,14 +20,14 @@ On Mon, 3 Oct 2016 10:29 Praveen R. Bhat, <bhatpraveen at gmail.com> wrote:
 > On Sun, Oct 2, 2016 at 11:39 PM, श्रीमल्ललितालालितः <
 > lalitaalaalitah at lalitaalaalitah.com> wrote:
 >
-> ​If you understand limitations regarding GYAna, my case is still strong.
+> If you understand limitations regarding GYAna, my case is still strong.
 >
 >
 > I think you meant samAdhi not jnAna.
 >
 > To add, vAsanAxaya is not result of samAdhi, it just helps them suppress.
 > The eradication is brought by practicing shubhavAsanA and finding faults.
-> ​kAraNa means asAdhAraNakAraNa, whenever we talk.
+> kAraNa means asAdhAraNakAraNa, whenever we talk.
 >
 > Thanks, I stand corrected.
 >
@@ -44,17 +44,17 @@ On Mon, 3 Oct 2016 10:29 Praveen R. Bhat, <bhatpraveen at gmail.com> wrote:
 > all I was indicating.
 >
 >
-> ​
+> 
 >
 > The only benefit of doubt you would give is that since he studied
 > shAstras, maybe he really knows.
 >
 >
-> ​If study doesn't generate knowledge, then what does? Not studying and
+> If study doesn't generate knowledge, then what does? Not studying and
 > some peculiar shock!?
 > We are talking of kAraNa, which itself is kAryaniyatapUrvavR^itti. If you
 > think knowledge can't be gained by study, then you must not study yourself
-> and try to get some shock which again is not in your control.​
+> and try to get some shock which again is not in your control.
 >
 > I am sorry, Swamiji, you are doing the same thing that you accuse others
 > of doing! I did not say that study does not generate knowledge.
@@ -79,11 +79,11 @@ On Mon, 3 Oct 2016 10:29 Praveen R. Bhat, <bhatpraveen at gmail.com> wrote:
 > life.
 >
 >
-> ​Without deciding that the person had results, you can't ascertain that he
+> Without deciding that the person had results, you can't ascertain that he
 > had means even in some distant time. If you are willing to guess that he
 > had results and so he must have means. Then I wish best of luck for you are
 > showing bias, which makes you unfit for a meaningful dialogue.
-> ​
+> 
 >
 > That is a very unfair assessment about me, since I have not particularly
 > used any kutarka. Here's why. All this was said in the context of analysing

@@ -23,7 +23,7 @@ wrote:
 > between the concept of sunyam and the concept of avidya nivrtti.
 >
 
-​I have trouble seeing what the author means with the last line; while the
+I have trouble seeing what the author means with the last line; while the
 concepts of shUnya and avidyA being compared, why has he suddenly landed on
 concept of shUnya and concept of avidyA *nivRtti*?
 
@@ -35,9 +35,9 @@ cannot be a talk of complete non-absence, meaning without the pratiyogi of
 bhAva, abhAva cannot be talked about. This Siddhanta objection will apply
 to Mahavainashikas=Buddhists as well.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

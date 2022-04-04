@@ -6,7 +6,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/046103.html)
 
-​​
+
 Namaste Subbuji,
 
 On Sun, Jul 23, 2017 at 7:31 AM, V Subrahmanian via Advaita-l <
@@ -23,7 +23,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > So, you are only agreeing that there is no world other than perception, the
 > core of DSV : )
 >
-> ​Very much so. स्वयम्​ मूढः सन् अन्यान् मूढयति। One being confused
+> Very much so. स्वयम् मूढः सन् अन्यान् मूढयति। One being confused
 confuses others. There is a perfect endorsement to EJV by Bhashyakara under
 Mandukya Karika 4.37 so:
 
@@ -36,9 +36,9 @@ dream, waking appears like objective reality [for the waker only]. However,
 commonly experienced objective world is not an existent thing, just like
 dream itself; this is the idea.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

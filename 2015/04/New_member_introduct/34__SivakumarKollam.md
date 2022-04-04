@@ -6,9 +6,9 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2015-April/
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2015-April/038384.html)
 
-​SAdara praNAM,
+SAdara praNAM,
 
-We have to be many times​ careful as the christian Church has proclaimed
+We have to be many times careful as the christian Church has proclaimed
 till
 2020 the period to Christianize  India!
 

@@ -117,7 +117,7 @@ and they made this Land pure.
 > Sringeri Swamigal's July 14th Anugraha Bhashanam Part 1
 > https://youtu.be/IbytUkpNCmI
 >
-> Sringeri Swamigal's July 14th Anugraha Bhashanam Part ​2​
+> Sringeri Swamigal's July 14th Anugraha Bhashanam Part 2
 >
 > https://youtu.be/RGUzVwheChA
 >
@@ -141,7 +141,7 @@ and they made this Land pure.
 > > shastras. They themselves have opened branches in USA and Canada. Please
 > > find my earlier responses.
 > >
-> > ​<Content Clipped>
+> > <Content Clipped>
 > >
 > >
 > _______________________________________________

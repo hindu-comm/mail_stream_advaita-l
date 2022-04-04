@@ -27,10 +27,10 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 >>
 >> isn't ghaTA pratyakSa jnAna ?
 >>
-> ​
+> 
 > do  you want to say that ghaTa-GYAna is only paroxa ?
-> ​
-> ​then many here will be able to answer you..
+> 
+> then many here will be able to answer you..
 > if not, then tell clearly what you meant by this so that i could reply.
 >
 
@@ -44,16 +44,16 @@ has its identity..so, did not follow the derivation that ghaTa jnana is
 akhanda..
 
 
-​
+
 >
 >
 >>
 >> and jnAna of pratyagAtma is nitya aparokSa
 >>
 >
-> ​it appears that you​
+> it appears that you
 >
-> ​think that brahmaGYAna is aparoxa while none other GYAna is aparoxa just
+> think that brahmaGYAna is aparoxa while none other GYAna is aparoxa just
 > because of duality.
 >
 
@@ -78,14 +78,14 @@ known ( ghaTa)
 
 >
 > I recommend serious study of vedAnta-paribhAShA under any good scholar.
-> ​
+> 
 >
 >>
 >> How do we understand the aparoxa of ghaTA, as there is duality between
 >> the knower and known ( ghaTA) ? Pl clarify
 >>
 >
-> ​This has nothing to do with total revelation, i.e. pratyaxa or aparoxa,
+> This has nothing to do with total revelation, i.e. pratyaxa or aparoxa,
 > of anything.
 >
 > To add yatsAxAdaparoxAdbrahma, this shruti doesn't say that GYAna of
@@ -112,18 +112,18 @@ Pranams
 >>> > not the charama knowledge.
 >>> >
 >>>
->>> ​Yes, because charama means last. And, jIvanmukta is actually having
+>>> Yes, because charama means last. And, jIvanmukta is actually having
 >>> visions of dvaita, although as mithyA and he is practicing brahmAbhAyAsa
 >>> to
 >>> maintain his vRtti brahmAkAra.
->>> ​
+>>> 
 >>>
 >>>
 >>> > Then it means he does not have Akhandakara
 >>> > Vrtti?
 >>> >
 >>>
->>> ​He has. Let me copy-paste from previous post if you failed to grasp
+>>> He has. Let me copy-paste from previous post if you failed to grasp
 >>> import
 >>> of parts:
 >>> 1.
@@ -142,16 +142,16 @@ Pranams
 >>> Also, note that such vRtti is not only brahmAkArA. When one replies to
 >>> question 'which is moon' as 'prakRShTaprakAshaH chandraH', the sentence
 >>> generates akhaNDAkAravRtti; because the question was not about quality.
->>> ​
+>>> 
 >>>
 >>>
 >>> > How can he say his Ignorance is destroyed?
 >>> >
 >>>
->>> ​Because, he has brahmAkArA vRtti.
+>>> Because, he has brahmAkArA vRtti.
 >>> Although, those who accept jIvanmukti, should accept that jIvanmukta has
->>> avidyAlesha too. In this sense, his ignoran​
->>> ​ce can be said to exist. But, the avidyA in his case can't cause
+>>> avidyAlesha too. In this sense, his ignoran
+>>> ce can be said to exist. But, the avidyA in his case can't cause
 >>> bondage,
 >>> is also accepted. It only causes bhoga of sukha-duHkha.
 >>> If people have patience, let me bring it to their notice that bhoga of
@@ -165,14 +165,14 @@ Pranams
 >>>
 >>> So, in a sense he has aGYAna, although non-binding. From some other point
 >>> of view, he is not aGYAnI, because he knows his identity.
->>> ​
+>>> 
 >>>
 >>>
 >>> > If some person has
 >>> > Akhandakara Vrtti he will immediately die and get Videha Mukti?
 >>> >
 >>>
->>> ​No. ghaTAkArA akhaNDavRtti can't cause your death, and so
+>>> No. ghaTAkArA akhaNDavRtti can't cause your death, and so
 >>> brahmAkAravRtti.
 >>>
 >>> I can see that you are not entertaining my idea of akhaNDAkAravRtti,
@@ -180,7 +180,7 @@ Pranams
 >>> understand.
 >>> So, you are talking as if akhaNDAkAravRtti is a vRtti, mental
 >>> modification,
->>> which ones born stays​ for your life-time. Get rid of such ridiculous
+>>> which ones born stays for your life-time. Get rid of such ridiculous
 >>> idea.
 >>> By the nature, vRtti is dvi-xaNa-sthAyI(or tri). And, it is just because
 >>> of

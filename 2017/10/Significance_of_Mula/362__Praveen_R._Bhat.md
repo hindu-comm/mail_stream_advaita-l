@@ -18,7 +18,7 @@ wrote:
 Apologies, far be it for me to endorse your mail, I was just thinking aloud
 happily reading your views! I am not even a scholar इव scholar.
 
-श्रीराम एव रामदासस्य वा तस्यापि दासरूपेण श्रीरामाख्येन वा वर्तते।​
+श्रीराम एव रामदासस्य वा तस्यापि दासरूपेण श्रीरामाख्येन वा वर्तते।
 तस्य पादुकाभ्याम्,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

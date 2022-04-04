@@ -36,7 +36,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Septem
 > not cover  ऐक्यसामानाधिकरण्यं  (aikyasAmAnAdhikaraNyaM ) in the text.
 >
 
-​
+
     In the kannada commentary on Vichara Sagara by Swami Shankarananda, in
 this part of the book, mind is also mentioned as alternative to chidAbhAsa
 under bAdhAyAM  sAmAnAdhikaraNyaM.

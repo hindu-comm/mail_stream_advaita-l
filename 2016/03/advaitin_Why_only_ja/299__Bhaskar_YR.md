@@ -40,7 +40,7 @@ On Mon, Mar 21, 2016 at 9:35 AM, Bhaskar YR via Advaita-l <advaita-l at lists.ad
 world is NOT a mithyA like snake on the rope
 
 Ask bhagavatpAda, and he says : यन्मायावशवर्ति विश्वमखिलं ब्रह्मादिदेवासुरा, यत्सत्त्वादमृषैव भाति सकलं रज्जौ यथाहेर्भ्रमः
-Your version is not acceptable. ​
+Your version is not acceptable. 
 
 
 श्रीमल्ललितालालितः

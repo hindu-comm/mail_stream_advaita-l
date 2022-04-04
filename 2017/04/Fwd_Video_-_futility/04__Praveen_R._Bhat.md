@@ -12,13 +12,13 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > Wow, is this what is being shown in TV serials these days?
 
 
-​Very rarely, I suppose. :)​
+Very rarely, I suppose. :)
 
 
 
 > Very impressive.
 
-​Truly so, especially in a TV series. I wonder where Subbuji keeps finding
+Truly so, especially in a TV series. I wonder where Subbuji keeps finding
 one gem or the other, every now and then!
 
 --praveen

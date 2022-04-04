@@ -6,13 +6,13 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-May/04
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-May/045171.html)
 
-​Namaste Chandramouliji,
-​
+Namaste Chandramouliji,
+
 On Wed, May 17, 2017 at 7:42 PM, H S Chandramouli <hschandramouli at gmail.com>
 wrote:
 
 >  Reg  << Would anyone know if these Swamijis talk of DSV/ EJV anywhere
-> ​in any of their talks in explaining Srishti prakriya of any work?>>,
+> in any of their talks in explaining Srishti prakriya of any work?>>,
 >
 You can refer to the ongoing talks on Vichara Sagara by Swami
 > Paramarthananda. In the earlier part of the talks he mentioned that the
@@ -22,7 +22,7 @@ You can refer to the ongoing talks on Vichara Sagara by Swami
 > made available freely for the past some time.
 >
 
-I was aware of ​Swamiji's mention of Vichara​sagara being DSV-based, but I
+I was aware of Swamiji's mention of Vicharasagara being DSV-based, but I
 didn't quote that in the earlier mail since I do not know if it has a
 sRShTiprakriyA per se, and since it is a 19th century work in Hindi,
 translated into Sanskrit; again, not so widely taught. I meant more in the
@@ -43,7 +43,7 @@ the context of Brihadaranyaka!
 > generally explanation is given by way of SDV.
 >
 
-​Sure, fair enough. ​
+Sure, fair enough. 
 
 Thanks,
 --Praveen R. Bhat

@@ -8,9 +8,9 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 
 Namaste Chandramouliji,
 
-​Thanks for great quotations from Anubhutiprakasha.
+Thanks for great quotations from Anubhutiprakasha.
 
-​​
+
 On Tue, Jul 18, 2017 at 1:46 PM, H S Chandramouli via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 
@@ -20,8 +20,8 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > of "how and why" arise during this practice, then the right to remain in
 > this prakriyAa is lost.
 >
-​This question is resolved by Shruti-based tarka as "svapnavat
-kalpitatvAt"​. To *the* DSV-follower (since there is only one in EJV), this
+This question is resolved by Shruti-based tarka as "svapnavat
+kalpitatvAt". To *the* DSV-follower (since there is only one in EJV), this
 tarka clicks the first time he understands it and all duality is
 cognitively resolved; no other tarka is needed.
 
@@ -31,7 +31,7 @@ Such questions can only be answered through the सृष्टिदृष्�
 > be so >> is maintained, the practice of दृष्टिसृष्टि प्ररक्रिया
 > (dRRiShTisRRiShTi prakriyA) definitely leads to the desired experience.
 >
-​The Shruti does use tarka for DSV and SDV tarka also finally lands in DSV
+The Shruti does use tarka for DSV and SDV tarka also finally lands in DSV
 as a last step before aikya jnAna. SDV has to resolve lot of queries. For
 example, during the Mandukya vaitatathyaprakaraNa study, someone said "this
 kalpita argument is far-fetched", and at another time, "please explain this
@@ -49,13 +49,13 @@ the rope (of avidyA/ bondage). The knowledge arises at the same time of
 this chidi-kriyA since brahmAtmA is self-evident and self-revealing and
 known as-one-is when all wrong notions are gone.
 
-​Finally, any tarka that lets one remain with ​the aikyajnAna as shown by
+Finally, any tarka that lets one remain with the aikyajnAna as shown by
 Shruti is valid, mithyA during adhyAropa and tuccha after adhyAropa, both
 being mere words showing bAdhasAmAnAdhikaraNya.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

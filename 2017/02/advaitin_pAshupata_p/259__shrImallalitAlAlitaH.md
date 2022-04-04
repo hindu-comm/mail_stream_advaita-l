@@ -14,11 +14,11 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > *न वेदा न यज्ञा *न तीर्थ ब्रुवन्ति
 >
 
-​We are talking about veda-s as whole, not only about karma-kANDa. So, stop
+We are talking about veda-s as whole, not only about karma-kANDa. So, stop
 a second and now test what you said.
 If you mean that just shunning the path of veda-s is enough to get moxa,
 you are already free since I don't see any sign that  you are burdened by
-veda-s.​
+veda-s.
 
 
 

@@ -45,7 +45,7 @@ On Sun, 17/1/16, V Subrahmanian <v.subrahmanian at gmail.com> wrote:
 
 
 
- 1) विद्यारण्य भाष्य​
+ 1) विद्यारण्य भाष्य
 
  Namaste
  If possible could you kindly provide
@@ -53,9 +53,9 @@ On Sun, 17/1/16, V Subrahmanian <v.subrahmanian at gmail.com> wrote:
  Thankssubrahmanian.v
  
  2) पृथ्वीधराचायॅ
- भाष्य​
+ भाष्य
 
- 3) श्रीकण्ठ भाश्य​
+ 3) श्रीकण्ठ भाश्य
 
  4) शताअन्द वृत्तिः
 

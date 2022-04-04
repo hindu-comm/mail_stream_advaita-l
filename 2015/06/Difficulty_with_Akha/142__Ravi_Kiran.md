@@ -22,7 +22,7 @@ Namaste
 > And, the brahman, which is pure knowledge/consciousness, although akhaNDa
 > is not aGYAna-virodhI. So, you can't say that ghaTa-GYAna is vRtti-rUpa and
 > hence skhaNDa, but brahmaGYAna is one with brahman and hence akhaNDa, too.
-> ​
+> 
 >
 >
 ghaTa is illumined by the chidabhAsa  to have ghaTa GYAna  ( ignorance of

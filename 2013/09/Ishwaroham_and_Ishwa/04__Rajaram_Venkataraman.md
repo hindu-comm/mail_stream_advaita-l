@@ -18,7 +18,7 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 > > XX: Manushya jAti is eternal and hence the form.
 > >
 >
-> ​That's wrong. Let the jAti be eternal in terms of AkalpasthAyI. But, how
+> That's wrong. Let the jAti be eternal in terms of AkalpasthAyI. But, how
 > could it's base, a specific body become eternal.
 >
 >
@@ -28,7 +28,7 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 > that karma is exhausted.
 >
 
-​I can't understand what do you want to express by 'particular form is
+I can't understand what do you want to express by 'particular form is
 > eternal as knowledge of Ishvara'. Do you mean that forms and Ishvara-GYAna
 > are similar or same !!??? That's untenable.
 >
@@ -61,7 +61,7 @@ those names)' (Taitt. Âr. III, 12, 7); 'He who makes the one seed manifold'
 
 >
 >
-​
+
 >
 >
 > > XX: How do you know Krishna's form is the same? We know the name Krishna
@@ -71,9 +71,9 @@ those names)' (Taitt. Âr. III, 12, 7); 'He who makes the one seed manifold'
 > > that He has the same form.
 > >
 >
-> ​It is also not very clear.​
+> It is also not very clear.
 >
-> ​Anyway, if no name is eternal, as it is mithyA according to advaitin-s. If
+> Anyway, if no name is eternal, as it is mithyA according to advaitin-s. If
 > you mean that A-pralayam, then it may be true. But, your intentions appear
 > otherwise.
 >
@@ -93,9 +93,9 @@ disillusionment about eternality of bhakti in advaita.
 > it.
 > >
 >
-> ​What if shruti says something opposed to yukti and other pramANa-s. He
+> What if shruti says something opposed to yukti and other pramANa-s. He
 > seems to ignore this fact.
-> ​
+> 
 >
 RV: You are the one who is ignoring the purva mimamsa rule that on unseen
 matters, sabda alone is pramana. We dont know devas through any means other
@@ -113,9 +113,9 @@ capable of revealing aprakrta forms.
 > > XX: If there is pramana, we have to accept.
 > >
 >
-> ​Here it appears that he is trying to escape and hence is nodding head to
+> Here it appears that he is trying to escape and hence is nodding head to
 > your insistence.
-> Anyway, this whole thing was not enough to persuade us.​
+> Anyway, this whole thing was not enough to persuade us.
 >
 > RV: He is willing to engage in hours of discussion and does not mind
 saying I disagree. It is a presumption on your part without a basis.

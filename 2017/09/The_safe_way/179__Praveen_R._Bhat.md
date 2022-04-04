@@ -60,7 +60,7 @@ teachings that advaitaH means na dvaitaH advaitaH, while na advaitaH means
 dvaitaH, thereby including Charvakas and Buddhism along with all
 unmentioned as dvaitaH and not only other five darshanas and Jainism.
 
-​sampradAyAya
+sampradAyAya
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

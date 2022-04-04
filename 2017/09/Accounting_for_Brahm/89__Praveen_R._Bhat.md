@@ -6,7 +6,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Septem
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-September/046776.html)
 
-​Namaste,
+Namaste,
 
 On Mon, Sep 11, 2017 at 2:46 PM, H S Chandramouli via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
@@ -16,7 +16,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > brahmAsmi) are not just the individual understanding of members, but
 > > statements by Swami Sureshvaracharya (Naishkarmya Siddhi), Swami Vasudeva
 > > Brahmendra Saraswati (Vichara Sagara
-> > ​)
+> > )
 > >  etc.
 >
 

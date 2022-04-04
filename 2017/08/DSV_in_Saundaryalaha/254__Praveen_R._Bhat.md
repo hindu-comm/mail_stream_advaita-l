@@ -16,9 +16,9 @@ That owing to which all this is known! [Br.Up. 4.5.15] */
 On Sat, Aug 19, 2017 at 11:21 AM, Praveen R. Bhat <bhatpraveen at gmail.com>
 wrote:
 
-> ​
-> ​
-> ​Under that ​verse of Lalitasahasranama, there is an Saubhagyabhaskara
+> 
+> 
+> Under that verse of Lalitasahasranama, there is an Saubhagyabhaskara
 > says:
-> ​...​
+> ...
 >

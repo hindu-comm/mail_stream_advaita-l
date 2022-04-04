@@ -6,9 +6,9 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Octobe
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-October/047034.html)
 
-​Pranams Sri Santosh ji,
+Pranams Sri Santosh ji,
 
-Now since the doubt has ​entered in your mind, can you actually chant the
+Now since the doubt has entered in your mind, can you actually chant the
 mantra, be it gAyatri or any other mantra with full faith?
 
 I agree with Sri Jaldhar ji. At times it is better not to go into too much
@@ -68,6 +68,6 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > there.Therefore chanting japas in foreign countries is not incorrect.Even
 > Americans have recited Sri Rudram .
 > R.Krishnamoorthy.
-> ​​
+> 
 >
 >

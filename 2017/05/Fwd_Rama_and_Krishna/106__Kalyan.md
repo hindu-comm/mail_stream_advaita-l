@@ -30,18 +30,18 @@ On Sun, 5/21/17, Sriram Sankaranarayanan <ssriram1992 at icloud.com> wrote:
  Advaitins, all the sentences that attacks Advaitins can be
  ad hominem. The arguments are originally from Appayya
  Dikshitar, while Sri Subrahmanian brought it forth for us.
- The sentences including​1.
- ​"​Looks
+ The sentences including1.
+ "Looks
  like advaitins are a divided lot since Shankara and
  Madhusudhana Saraswati consider Krishna as Ishwara and the
- latter considers Rama also as Ishwara.​"​ rather
+ latter considers Rama also as Ishwara." rather
  than, "How can we reconcile the opinions
  ofSriShankaracharyaandSriMadhusudhana
  Saraswathi who consider ..."
  2.Appayya Dikshitha probably has
- not studied the entire Mahabharata3​.Appayya Dikshita ultimately comes
- out as a very poor reader of the great epic.​​were ad
- hominem.​ I have only said that
+ not studied the entire Mahabharata3.Appayya Dikshita ultimately comes
+ out as a very poor reader of the great epic.were ad
+ hominem. I have only said that
  Appayya Dikshita comes across as a poor reader of the epic.
  Here is the reason why - Rama does not become a jIva just
  because he goes to svarga and is under Indra's lordship
@@ -76,9 +76,9 @@ On Sun, 5/21/17, Sriram Sankaranarayanan <ssriram1992 at icloud.com> wrote:
  jivatva of Rama or Krishna. But on the other hand, if
  somebody quotes similar verses on Shiva and claim Shiva is
  jiva, it cannot be accepted. All that Appayya dikshitar
- ​​has shown is that, using the
+ has shown is that, using the
  above said logic, even Rama or Krishna can be proved to be
- Jiva.​
+ Jiva.
  Regards
 
  Kalyan

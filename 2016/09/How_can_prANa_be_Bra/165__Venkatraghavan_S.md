@@ -106,6 +106,6 @@ On 6 Sep 2016 1:13 p.m., "Sujal Upadhyay" <sujal.u at gmail.com> wrote:
 >> describe Brahman, in order to stop the mind's tendency to objectify and
 >> conceptualise! (नाहं मन्ये सुवेदेति,  etc.)
 >>
->> ​<content clipped>​
+>> <content clipped>
 >>
 >>

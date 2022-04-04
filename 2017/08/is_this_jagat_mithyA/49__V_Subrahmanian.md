@@ -27,7 +27,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > Hari Hari Hari Bol!!!
 > > bhaskar
 > > _______________________________________________
-> > ​This article can be viewed at this link  <<
+> > This article can be viewed at this link  <<
 > > http://www.adhyatmaprakasha.org/php/magazineReader/
 > templates/book.php?volume=083&issue=08&page=0221&year=2014&
 > month=%E0%B2%8F%E0%B2%AA%E0%B3%8D%E0%B2%B0%E0%B2%BF%E0%B2%

@@ -10,19 +10,19 @@ Reg  << Why does Shankara say that names and forms are sarvajnasya
 Ishvarasya
 AtmabhUta (ie they are part of him), and later say sarvajna: Ishvara:
 tAbhyAm anya: (ie he is different from them)?
-​ >>,
+ >>,
 
 The important word
 इव
-​ (
+ (
  iva
-​)​
-​appears to be
+)
+appears to be
  misssing from
-​t​
+t
 he translation.
-​I think t
-his leads to the question mark.​
+I think t
+his leads to the question mark.
 
 Regards
 

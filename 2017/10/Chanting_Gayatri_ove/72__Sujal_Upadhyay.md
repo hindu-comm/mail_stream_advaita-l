@@ -15,8 +15,8 @@ When her husband is missing, or is dead, or has renounced the world, or is
 impotent, or has been degraded by sin, — on any of the said five calamities
 befalling a woman, law has ordained another husband for her.
 
-​Pranams
-Sujal​
+Pranams
+Sujal
 
 
 

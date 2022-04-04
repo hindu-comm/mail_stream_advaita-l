@@ -6,15 +6,15 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/045842.html)
 
-​Namaste Venkateshji,​
+Namaste Venkateshji,
 
-In this set of verses, Vadiraja has neither shown the interpretation of ​AV
+In this set of verses, Vadiraja has neither shown the interpretation of AV
 fully, and as usual, nor has he used tarka justly.
 
-​
+
 On Thu, Jul 6, 2017 at 2:01 PM, Venkatesh Murthy via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
-​​
+
 
 
 > सत्यज्ञानादिवाक्यं सत्यत्वादिगुणविशिष्टब्रह्मपरं
@@ -23,7 +23,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > Prashnottara Vaakyatvaat and the example is Candralakshana Vaakya.
 >
 AV refutes the presentation of brightness as a quality of the moon, by
-asking where does the quality rest?​ Does it rest in the bright moon or in
+asking where does the quality rest? Does it rest in the bright moon or in
 an non-bright moon? If the former, then where does the earlier quality of
 brightness rest? This leads to anavasthA doSha. If the latter, then how can
 brightness rest in an non-bright moon, both are opposite to each other.
@@ -44,7 +44,7 @@ with सत्यं ज्ञानमनन्तम्।
 > two words Jnanam and Anantam become useless because they are giving Svarupa
 > again of Brahman we already know from Satyam.
 >
-​I don't think Vadiraja has studied the Bhashyakara's Taittiriya Bhashya at
+I don't think Vadiraja has studied the Bhashyakara's Taittiriya Bhashya at
 all, especially the लक्षणवाक्य, not understood it or is purposefully
 leaving out the details. Bhashyakara says there that यद्रूपेण यन्निश्चितं
 तद्रूपं न व्यभिचरति तत् सत्यम्। That nature which is ascertained for
@@ -94,14 +94,14 @@ the लक्षार्थ would be आनन्दं ब्रह्म whic
 > is also absence of Aganga. This is the nonsense result. Nobody can immerse
 > himself on the bank because it is land.
 >
-> ​This is incorrect. Before one can even proceed in this line of thinking,
+> This is incorrect. Before one can even proceed in this line of thinking,
 the following question has to be answered:
 
    - घटाभावस्य अभावः किम्? What would be the प्रतियोगि of the absence of
    the absence-of-pot?
 
 
-​That will show the flaw in the above line of argument using Aganga and
+That will show the flaw in the above line of argument using Aganga and
 what not! If such out-of-context meanings are allowed to be used, one can
 prove anything to be anything. :)
 

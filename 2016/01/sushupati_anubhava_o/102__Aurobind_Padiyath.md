@@ -108,10 +108,10 @@ wrote:
 >> >
 >> >
 >> >
->> > To ​
+>> > To 
 >> >
 >> >
->> > *kuntimaddi sadananda​ji​*
+>> > *kuntimaddi sadanandaji*
 >> >
 >> > Thanks for all the inputs.
 >> >

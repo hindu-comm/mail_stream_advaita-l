@@ -25,7 +25,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2016-Novemb
 >
 >
 > Thought this may be relevant here and be
-> ​of​
+> of
 >  interest to you and Sri Ryan.
 >
 >

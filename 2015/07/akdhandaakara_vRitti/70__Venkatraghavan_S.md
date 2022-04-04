@@ -15,7 +15,7 @@ advaita siddhi that defines akhandAkArA as such.
 
 To which you replied:
 
-​"See beginning of ​2nd parichchheda and search whole brahmAnandI wherever
+"See beginning of 2nd parichchheda and search whole brahmAnandI wherever
 he has mentioned about this term."
 
 The second pariccheda has this definition of akhandArthatvam as
@@ -48,10 +48,10 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 >> aparyAyashabdAnaM padavRtti-smArita-atirikta-agochara-pramAjanakatvam
 >>
 >
-> ​That is definition of akhaNDArthaka-vAkyama. Why should definition of
+> That is definition of akhaNDArthaka-vAkyama. Why should definition of
 > akhaNDAkAra-vRttiH be same as that?
 > I ask people here not to expect any answer from me now on. I've now
-> understood that we are on different levels and talking different language.​
+> understood that we are on different levels and talking different language.
 >
 >
 >

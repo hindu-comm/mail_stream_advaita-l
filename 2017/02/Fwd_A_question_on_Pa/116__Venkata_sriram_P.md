@@ -16,7 +16,7 @@ Looking from the point of utility the lump of gold and the ring are different
 
 And that utility here is "for the sake of upAsana".
 
-आचार्य​ while commenting on तदनन्यत्वमारम्भणशब्दादिभ्यः says:
+आचार्य while commenting on तदनन्यत्वमारम्भणशब्दादिभ्यः says:
 
 //////////
 

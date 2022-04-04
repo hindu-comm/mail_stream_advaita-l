@@ -18,12 +18,12 @@ advaita-l at lists.advaita-vedanta.org>:
 > Is this the right understanding of Akhandakara Vrtti ? Pl clarify.
 >
 
-​No, it is not.
+No, it is not.
 
 For better understanding, see tarka-sa~Ngraha for niShprakAraka-GYAna and
 advaita-siddhiH for akhaNDAkAra-prakaraNa.
 For definition of AkAra in vedAnta-system, you should search
-advaita-siddhiH again.​
+advaita-siddhiH again.
 
 
 

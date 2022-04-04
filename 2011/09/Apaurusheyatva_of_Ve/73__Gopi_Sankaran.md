@@ -29,7 +29,7 @@ R.Rajagopal
 On Mon, Sep 5, 2011 at 1:41 PM, Srikanta Narayanaswami <
 srikanta.narayanaswami at yahoo.com> wrote:
 
-> The following is my argument for apaurushey​atva of veda. Pl. correct me if
+> The following is my argument for apaurusheyatva of veda. Pl. correct me if
 > it is wrong. If vedas are apaurusheya, they should exist independent of any
 > purusha or person. That is they have to exist as an entity in their own
 > right with the same words and meter. Such an independent existence can be

@@ -21,15 +21,15 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > Vaadiraaja has two objections . Firstly the
 > Akhandakara Vrtti does not have any Content or Phala.
 
-​
-
-If you are translating​
 
 
+If you are translating
 
-​*​*
 
-*​phala*​ as content(*viShaya*), I don't what to say.
+
+**
+
+*phala* as content(*viShaya*), I don't what to say.
 
 Right from here you are wrong.
 
@@ -38,7 +38,7 @@ If vAdirAja presented like this, I will like to put the blame on him.
 It is
 Nishparakaraka.
 
-​I'll also like to say that if your understanding is that niShfala =
+I'll also like to say that if your understanding is that niShfala =
 niShprakAraka, then you need some serious study, at least of
 tarka-sa~Ngraha.
 
@@ -46,10 +46,10 @@ tarka-sa~Ngraha.
 > But in Akhandakara Vrtti there is no content like the Advaitis are
 > saying.
 
-​
+
 
 I don't know how do you come to niShprakAraka = nirviShaya?
-​
+
 
 
 
@@ -62,7 +62,7 @@ Their is third type of vRtti which has no real or illusory content,
 vikalapa-vRtti. So, in this sense there is a contentless vRtti.
 
 You could improve your sentence by adding GYAnAtmaka-vRtti instead of vRtti.
-​
+
 
 
 
@@ -72,48 +72,48 @@ You could improve your sentence by adding GYAnAtmaka-vRtti instead of vRtti.
 > Vrtti. There is no contentless Vrtti like 'there is nothing' like
 > Advaitis are saying.
 >
-​Sorry, we never say like this. Your understanding is very poor.
-​
+Sorry, we never say like this. Your understanding is very poor.
+
 
 
 
 > Secondly Advaitis are saying there is a Final Akhandakara Vrtti Jnana.
 > It will destroy other Vrttis and destroy itself also.
 
-​Correct.
-​
+Correct.
+
 
 
 
 Then we enter
 
-​ ​
+ 
 
 Non-duality.
 
-​I can't understand how could one enter non-duality? Is it a room like
+I can't understand how could one enter non-duality? Is it a room like
 thing?
-​
+
 
 
 
 > How can you say the Akhandakara Vrtti is Final? If you
 > say this you should be saying it in Non-duality condition.
 
-​No need. Without entering a room I can talk about that.
-​
+No need. Without entering a room I can talk about that.
+
 
 
 
 > But in
-> ​
+> 
 > Non-duality there is no thought or Concept of anything.
 
-​You are talking as if non-duality is a mental modification, like nirodha
+You are talking as if non-duality is a mental modification, like nirodha
 of yogI-s. Let me make it clear, it is not.
 
 Now, the objection based on this assumption dissolves.
-​
+
 
 
 
@@ -121,24 +121,24 @@ Now, the objection based on this assumption dissolves.
 > are Illusions in Advaiti's book. Then the Akhanadakara Vrtti Concept
 > is also Illusion.
 
-​Yes, correct. We accept.
+Yes, correct. We accept.
 
 What's harm in accepting so for us?
-​
+
 
 
 
 > It is like hare's horn.
 
-​Get your concepts clear for things appearing in illusion are not accepted
+Get your concepts clear for things appearing in illusion are not accepted
 as alIka.
-​
+
 
 
 
 It is fictional.
 
-​That's correct, but you are using fictional(*prAtibhAsika*) and hare's
+That's correct, but you are using fictional(*prAtibhAsika*) and hare's
 horn(*alIka*) in same sense, which we don't accept.
 
 I've not given any explanation here, because they are quite popular among
@@ -149,7 +149,7 @@ incorrectly blamed on us by you(because a learned person like vAdirAja
 can't be so ignorant of ).
 
 If you ask further, and none replies, I'll continue.
-​
+
 
 
 

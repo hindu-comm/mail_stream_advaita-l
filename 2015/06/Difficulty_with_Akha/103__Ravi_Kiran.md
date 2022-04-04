@@ -28,10 +28,10 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 >>>>
 >>>> isn't ghaTA pratyakSa jnAna ?
 >>>>
->>> ​
+>>> 
 >>> do  you want to say that ghaTa-GYAna is only paroxa ?
->>> ​
->>> ​then many here will be able to answer you..
+>>> 
+>>> then many here will be able to answer you..
 >>> if not, then tell clearly what you meant by this so that i could reply.
 >>>
 >>
@@ -40,7 +40,7 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 >> 1. ghaTa-jnAna gives the knowledge of the vastu ( ghaTa) ,
 >>
 >
-> ​Seriously!! ghaTaGYAna *gives *knowledge!!??
+> Seriously!! ghaTaGYAna *gives *knowledge!!??
 > It should be understood that ghaTaGYAna is knowledge of ghaTa, so it can't
 > give itself.
 >
@@ -48,13 +48,13 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 Ok, used in the sense, knowledge arises when vastu is perceived..
 
 
-> ​
+> 
 >
 >
 >> but not the knowledge of vastu's svarUpa,
 >>
 >
-> ​In realm of vyavahAra, ghaTa is vastu. So, ghaTaGYAna reveals vastu.
+> In realm of vyavahAra, ghaTa is vastu. So, ghaTaGYAna reveals vastu.
 > Why do you expect ghaTaGYAna to reveal vastu-svarUpa, which is brahman in
 > vyavahAra-kAla?
 > That will make ghaTaGYAna similar to brahmaGYAna!!
@@ -63,7 +63,7 @@ Ok, used in the sense, knowledge arises when vastu is perceived..
 analogy used while trying to figure the akhanda of ghaTa jnAna
 mentioned..understand it is not the right approach..
 
-​
+
 >
 >
 >> whereas, jnAna of pratyagAtma is svarUpa jnAna (abhEda),   ...
@@ -72,9 +72,9 @@ mentioned..understand it is not the right approach..
 >> akhanda..
 >>
 >
-> ​Not like that.​
+> Not like that.
 >
-> ​Let me ask you, what do you mean by knower remains different from ghaTa?
+> Let me ask you, what do you mean by knower remains different from ghaTa?
 >
 
 In the sense, I know the vastu perceived , but I am not the vastu
@@ -110,7 +110,7 @@ Ok
 > And, the brahman, which is pure knowledge/consciousness, although akhaNDa
 > is not aGYAna-virodhI. So, you can't say that ghaTa-GYAna is vRtti-rUpa and
 > hence skhaNDa, but brahmaGYAna is one with brahman and hence akhaNDa, too.
-> ​
+> 
 >
 > Understood.
 

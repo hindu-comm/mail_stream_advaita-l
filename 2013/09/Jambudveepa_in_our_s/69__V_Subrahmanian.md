@@ -22,9 +22,9 @@ dvnsarma at gmail.com> wrote:
 > >
 >
 >
-> ​
+> 
 > The visions of all these dvIpAs can be achieved through astral vision
-> inside us ONLY.​​
+> inside us ONLY.
 >    What purpose do these visions which are out of touch with reality serve?
 >
 

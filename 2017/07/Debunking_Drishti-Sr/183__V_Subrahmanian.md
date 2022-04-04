@@ -47,12 +47,12 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > Yes, I too understand Advaita as expounded by Vachaspati Misra.
 > >
 >
-> ​If that, I am glad, but you are still sadly mistaken. Bhamatikara
+> If that, I am glad, but you are still sadly mistaken. Bhamatikara
 > Vachaspati Mishra accepts DSV with NJV not EJV. That is not to say that he
-> ​is against DSV. Someone who has Bhamati reference for this may kindly
+> is against DSV. Someone who has Bhamati reference for this may kindly
 > quote the same, since I haven't studied Bhamati text proper.
 >
-> ​As for tucchatvam, since you have ignored the perspective, it is no proof
+> As for tucchatvam, since you have ignored the perspective, it is no proof
 > and here's quotation from Bhashyakara using tucchatva example, which I
 > mentioned earlier and you don't seem to have landed on:
 >
@@ -103,7 +103,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > subscribed to DSV. This is my firm conclusion. :)
 >
 >
-> (​#)​ Any reduction of Vaidika perspective to shunyavAda is construed as an
+> (#) Any reduction of Vaidika perspective to shunyavAda is construed as an
 > attack since it is against श्रुतिमत।
 >
 > gurupAdukAbhyAm,

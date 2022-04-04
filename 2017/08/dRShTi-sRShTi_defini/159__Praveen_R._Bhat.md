@@ -8,7 +8,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-August
 
 Namaste Chandramouliji,
 
-​On Sun, Aug 13, 2017 at 1:54 PM, H S Chandramouli <hschandramouli at gmail.com
+On Sun, Aug 13, 2017 at 1:54 PM, H S Chandramouli <hschandramouli at gmail.com
 > wrote:
 
 >
@@ -21,7 +21,7 @@ Namaste Chandramouliji,
 > तत् (aj~nAta sattA, yat, tat) to refer to “   प्रत्यगात्मन्
 > (pratyagAtman)/ साक्षी (sAkShI)/ (all pervading) Atman/ Brahman ”.
 >
-​​Sorry, they do not.  अज्ञात and सत्ताक are adjectives to वस्तुएँ which is
+Sorry, they do not.  अज्ञात and सत्ताक are adjectives to वस्तुएँ which is
 plural, talking of objects. That's Hindi. As for Sanskrit, यत् and तत् are
 neuter relatives and co-relatives refering to karma (grammatical object) of
 pashyati (sees), which is a worldly object. Else it had to be यः (masculine
@@ -34,8 +34,8 @@ in anvaya.
 > (all the English terms picked from the translation by Swami Gambhirananda
 > on bhashya for BG 13-31 <<
 >
-​Kindly tell me the shloka words if possible, I would like to check what
-context you are referring to ​for these translations. I haven't found the
+Kindly tell me the shloka words if possible, I would like to check what
+context you are referring to for these translations. I haven't found the
 bhashya under 13.31 or even the entire 13th chapter. In any case, even if
 you apply these very translations to the AS words under discussion, there
 will be no anvaya of the sentence and will make absolutely no sense if yat
@@ -70,14 +70,14 @@ translations for those pronouns out of context.
 > Whatever the प्रत्यगात्मन् (pratyagAtman)/ साक्षी (sAkShI) desires (संकल्प
 > (saMkalpa)), It appears as His vistAram/manifestation/origination >>.
 >
-> I​ used ​DSV instead of DS since its well-understood in these threads as
+> I used DSV instead of DS since its well-understood in these threads as
 the topic of discussion. Obviously, although the word vAda is not
 mentioned, the justification is still of the DS of DSV, as the title
-​"
+"
 Drishtisrishtyupapattih" states. Moreover, you yourself said that the
 versions of DSV being used by me are the ones found as 2 out of 10
 definitions in AS by MS!
-​​
+
 
 > This brings it in line with avasthAtrayavivEka, consistent with the later
 > part of the commentary as also with the verses 48-52, Chapter 9 of
@@ -95,11 +95,11 @@ avasthAtrayaviveka as someone else said? I'd be very surprised. Else...
 > leave it at that.
 >
 
-... ​I don't think I understand the ​dispute. In any case, I was only
+... I don't think I understand the dispute. In any case, I was only
 answering the questions you directed to me. So I am fine with your decision
 too, now that I have responded to your new interpretations.
 
-​Thanks
+Thanks
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

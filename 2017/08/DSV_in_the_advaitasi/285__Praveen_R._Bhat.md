@@ -22,7 +22,7 @@ wrote:
 > The nivritti of ajnAna and its products in its sthUla rUpa (vartamAna) or
 > sUkshma rUpa / kAraNa rUpa (pravilIna) is bAdha, says the vivaraNakAra.
 >
-Venkatraghavanji, ​I am not sure as to what sthUla and ​sUkShma means here
+Venkatraghavanji, I am not sure as to what sthUla and sUkShma means here
 in terms of shuktikA-rajat example in the context of DSV. If you don't
 mind, could you specifically point out in the example which is which and
 therefore the last set of likely impossibilities you point out w.r.t. bAdha
@@ -34,7 +34,7 @@ refutation line given? [Page no. of the PDF will be helpful, since I'd like
 to read around it for my own benefit. Meanwhile, I'll also look around if I
 hit this sentence after sending this mail :)]
 
-​Thanks​
+Thanks
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

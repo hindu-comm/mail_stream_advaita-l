@@ -13,8 +13,8 @@ Pranams,
 I have few doubts. Appreciate if they can be clarified:
 
 1
-"​chaitanyam in it's jIvatva-state can't be identified with brahman."
-​i. Can we say
+"chaitanyam in it's jIvatva-state can't be identified with brahman."
+i. Can we say
 chaitanyam in it's jIvatva-state is vachArthA,   sudha brahman is
 lakSharthA?
 
@@ -48,8 +48,8 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > The jagat in advaita vedAnta is mithya why??
 > >
 >
-> ​Because, shruti says neti, neti and ekamevAdvitIyam.
-> ​
+> Because, shruti says neti, neti and ekamevAdvitIyam.
+> 
 >
 >
 > > brahma satya jaganmithya jeevo brahmaiva na paraH famouns saying goes in
@@ -57,16 +57,16 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > prasthAna traya bhAshya of shankara.
 > >
 >
-> ​There is no need to find such words in bhAShyam. bhAShym is not
+> There is no need to find such words in bhAShyam. bhAShym is not
 > shabda-pramANA; it's validity comes from logic. And no independent logic
 > can prove mithyAtva of jagat.
 > You need shruti to prove jagat mithyA or anumAna backed by/based on
-> shruti.​
+> shruti.
 >
-> ​That was provided above.
+> That was provided above.
 > I think that's enough even if the mentioned shloka is found to be modern
 > creation.
-> ​
+> 
 >
 > > I always wonder when the jeeva has been identified as brahman why jagat
 > is
@@ -75,10 +75,10 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > jagat,  brahman is the both upAdAna and nimitta kAraNa??
 > >
 >
-> ​chaitanyam in it's jIvatva-state can't be identified with brahman. So,
-> jagat in it's jagattva-state can't be identified with brahman too.​
+> chaitanyam in it's jIvatva-state can't be identified with brahman. So,
+> jagat in it's jagattva-state can't be identified with brahman too.
 >
-> ​I mean both can't be identified with brahman in the condition/form they
+> I mean both can't be identified with brahman in the condition/form they
 > are know/famous.
 > So, jIva's case is similar to jagat.
 > This is the solution you need.
@@ -96,62 +96,62 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > brahman it is mithya only.
 > >
 >
-> ​See the difference of answer above.
-> ​
+> See the difference of answer above.
+> 
 >
 >
 > > Is
-> > ​(does) ​
+> > (does) 
 > > this mean that there exists a thing that can be called as ‘anAtma’ in
 > >  ‘jada’ svarUpa??
 > >
 > >
-> ​Not​
+> Not
 >
-> ​anAtma, but anAtmatvam.
+> anAtma, but anAtmatvam.
 > Yes, it exists. But, that existence is not pAramArthika. It's
 > vyAvahArika-sattA.
-> ​
+> 
 >
 > > How can this jada jagat can
-> > (x) ​
+> > (x) 
 > > exist aloof from brahman
 > >
 > >
-> ​You mean independent of brahman? No, it doesn't exist in that way, since
+> You mean independent of brahman? No, it doesn't exist in that way, since
 > brahman is the existence shining as existence of jagat.
-> ​
+> 
 >
 >
 > > to bifurcate brahman is Chaitanya and jagat is jada and this jada is not
 > > brahman but only mithyA??
 > >
 >
-> ​Solved?
-> ​
+> Solved?
+> 
 >
 >
 > > And contrarily,  we elevate upAdhirahita jeeva as brahman since upadhi
 > > rahita jeeva is in his svarUpa brahman only ??
 > >
 >
-> ​Your words appear to show that you are very much disturbed/in hurry.
+> Your words appear to show that you are very much disturbed/in hurry.
 > If you know that since 'upAdhirahita jIva is brahman', then where comes the
 > talk of elevation?
 > We are telling what is truth. We are not elevating because of partiality!!
-> ​
+> 
 >
 >
 > > whereas we are not ready to accept jagat in its svarUpa brahman only
 > >
 >
-> ​My friend! We are not independent in such places. We follow shruti-s and
-> mImAMsA.​
+> My friend! We are not independent in such places. We follow shruti-s and
+> mImAMsA.
 >
-> ​We have shruti-s which support oneness of jIva-brahman, and other which
+> We have shruti-s which support oneness of jIva-brahman, and other which
 > proclaim mithyAtva of jagat. What can we do?
 >
-> ​The problem with most people is that they don't understand that advaita
+> The problem with most people is that they don't understand that advaita
 > can't be proved with the help of logic only. You need shruti for this.
 > There is no other way.
 >
@@ -159,20 +159,20 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > is mithya only.
 > >
 >
-> ​BTW, what is this 'jagat beyond nAma-rUpa'?
+> BTW, what is this 'jagat beyond nAma-rUpa'?
 > I think that you follow bhAShya-s. You must be aware that there is nothing
 > called jagat apart from nAma-rUpa. If you don't, then I must stop here.
-> ​
+> 
 >
 >
 > > We are not ready to accept that once the extra attributes removed from
 > > jeeva and jagat   what remains is brahman only is it not??
 > >
 >
-> ​No, you are missing sommething.
+> No, you are missing sommething.
 > Although jIva has satya-mithyA both; jagat is not so. Hence, we don't find
 > anything after shunning mithyA which can be identified with brahman.
-> ​
+> 
 >
 >
 > >  So the equation is
@@ -182,11 +182,11 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > (b) nAma / rUpa + brahman = jagat
 > >
 >
-> ​No, nAma and rUpa = jagat.​
+> No, nAma and rUpa = jagat.
 >
-> ​There is no brahman which is part of jagat.
+> There is no brahman which is part of jagat.
 > Consciousness is not experienced in jagat(anything which is not brahman or
-> jIva)​. So, there is no need to insert it there.
+> jIva). So, there is no need to insert it there.
 > If you want to add brahman to nAma and rUpa, then it must be added as
 > adhiShThAna; not as a svarUpa(part) of jagat.
 > While in the case of jIva, brahman(chaitanya) is part of svarUpa too.
@@ -199,11 +199,11 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > (d) jagat - nAma/rUpa = brahman
 > >
 >
-> ​No, jagat -nAma and rUpa = ​
+> No, jagat -nAma and rUpa = 
 >
-> ​adhiShThAna
+> adhiShThAna
 > or jagat - nAma and rUpa = nothing(no svarUpa of jagat is left)
-> both are correct​.
+> both are correct.
 >
 > There is a difference in being adhiShThAna and becoming jagat(or part of
 > it).

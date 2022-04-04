@@ -153,7 +153,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > > > > Namaste,
 > > > > > Prashant
 > > > > > _______________________________________________
-> ​ <listmaster at advaita-vedanta.org>
+>  <listmaster at advaita-vedanta.org>
 > > > > >
 > > > >
 > > > >
@@ -162,6 +162,6 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > > > Regards
 > > > >
 > > > > -Venkatesh
-> ​
+> 
 >
-​
+

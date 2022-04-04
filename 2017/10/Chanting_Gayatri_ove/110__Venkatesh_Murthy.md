@@ -144,7 +144,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > > I talked to my friend who has visited Sringeri Matha several times. He
 > > > daily practises nitya karma and anusthana, that he is supposed to do as
 > a
-> > > Brahmin.​ He did not have all the answers, but honestly gave some
+> > > Brahmin. He did not have all the answers, but honestly gave some
 > > answers.
 > > > I will share the same.
 > > >
@@ -171,7 +171,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > >   yajna-s i.e. havan and vedika yagja-s organised by matha and
 > > denfinitely
 > > >   not in the Sringeri matha itself. Only Bra
-> > >   ​h​
+> > >   h
 > > >   mins from Bharat are allowed to perform Yajna
 > > >   8. Sringeri Jagadguru may bless anyone who approaches him but this
 > does
@@ -182,14 +182,14 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > >   does not mean he will actually take away all their sorrows or say
 > > > tathastu
 > > >   and fulfill their wishes.
-> > >   9. ​He indicated that at times, Acharya remains detached and neutral
+> > >   9. He indicated that at times, Acharya remains detached and neutral
 > to
-> > >   many activities and may bless the work as a formality​
-> > >   ​. Actually it's not blessings nor it's appreciation, but just a
+> > >   many activities and may bless the work as a formality
+> > >   . Actually it's not blessings nor it's appreciation, but just a
 > > >   formality.
 > > >
 > > >
-> > > ​As per my understanding, Sringeri Acharya does not give upadehsas to
+> > > As per my understanding, Sringeri Acharya does not give upadehsas to
 > > all,
 > > > but to a select few. He does not give diksha to all. He will not share
 > > his
@@ -203,9 +203,9 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > like
 > > > Sri Chandrashekara Bharathi Swami ji, the guru of Sri Abhinav
 > Vidyatirhta
-> > > Swami ji.​
+> > > Swami ji.
 > > >
-> > > ​Regarding degradation of Brahmins, my friend too is worried and he is
+> > > Regarding degradation of Brahmins, my friend too is worried and he is
 > > also
 > > > sad that western Hindus actively defend attacks on dharma but not much
 > is
@@ -249,20 +249,20 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > > advaita-l at lists.advaita-vedanta.org> wrote:
 > > >
 > > > > Does somebody 's approval disapproval
-> > > > ​of marrying outside hindu fold ​
+> > > > of marrying outside hindu fold 
 > > > > make a difference?
 > > > > Suppose one disapproves what can he do?
 > > > >
 > > > > Puranas have already predicted
-> > > > ​that ​
+> > > > that 
 > > > > in Kaliyuga
-> > > > ​
+> > > > 
 > > > > all the
-> > > > ​earlier ​
+> > > > earlier 
 > > > > norms will be broken. They ha
-> > > > ​ve ​
+> > > > ve 
 > > > > said that this is *Yuga Dharma*.
-> > > > ​That means that *for this age this  is the dharma*.​ Why do we
+> > > > That means that *for this age this  is the dharma*. Why do we
 > hanker
 > > > for
 > > > > Kritayuga dharma in Kali. Is it not wrong to do so.

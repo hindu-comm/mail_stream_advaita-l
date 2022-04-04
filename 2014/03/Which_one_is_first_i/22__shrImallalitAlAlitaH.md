@@ -12,7 +12,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2014-March/
 2014-03-05 21:17 GMT+05:30 श्रीमल्ललितालालितः <
 lalitaalaalitah at lalitaalaalitah.com>:
 
-> ​​
+> 
 >  H:
 >
 > The words " mayopadhika Iswara " and " mayavishishta Iswara " are both used
@@ -62,9 +62,9 @@ lalitaalaalitah at lalitaalaalitah.com>:
 > ईश्वरसाक्षित्वेन ईश्वरीयप्रत्यक्षत्वेन व्यवहारो भवति ।
 >
 
-Author of ​vedAntaparibhAShA​
+Author of vedAntaparibhAShA
 
-​uses the term 'IshvarasAxI' to denote the 'direct perception related to
+uses the term 'IshvarasAxI' to denote the 'direct perception related to
 Ishvara', which is mAyopahita-chaitanya.
 Thus he said:
 *mAyopahita-chaitanya is Ishvara-sAxI. That is begining-less, because so is
@@ -92,7 +92,7 @@ When the same chaitanya is denoted as 'pratyaxa related to Ishvara', then
 mAyA being jaDa(useless for the revelation/illuumination of objects) is
 upAdhi and hence the same chaitanya which was termed 'Ishvara' is called
 Ishvara-sAxI or Ishvara-pratyaxa.
-​
+
 
 >  H:
 >
@@ -108,9 +108,9 @@ Ishvara-sAxI or Ishvara-pratyaxa.
 > विशेषणत्वोपाधित्वे भवतः तदादाय च तस्य ईश्वरत्वसाक्षित्वव्यवहारौ ।
 >
 
-​Hence, when bimba-chaitanya is Ishvara, then the same bimba-chaitanya is
+Hence, when bimba-chaitanya is Ishvara, then the same bimba-chaitanya is
 Ishvara-sAxI also.
-​
+
 
 
 > H:
@@ -123,8 +123,8 @@ Ishvara-sAxI also.
 > सत्यम् ।
 >
 
-​True.
-​
+True.
+
 
 
 >  H:
@@ -138,9 +138,9 @@ Ishvara-sAxI also.
 > तत्र विचार्य्यैव निर्णेयं यत् उपाधिपदेन विशेषणं विवक्षितं न वा ।
 >
 
-​You should decide after considering whether the word 'upAdhi' means
+You should decide after considering whether the word 'upAdhi' means
 'visheShaN' or not.
-​
+
 
 
 >  H:
@@ -161,11 +161,11 @@ Ishvara-sAxI also.
 > अथापि ईश्वरस्य विशिष्टचैतन्यत्वेन सांशत्वमभ्युपेयमेव ।
 >
 > किञ्च भवतैवोक्तं ‘
-> ​​
+> 
 > Iswara = Chaitanya + maya’ इति अतः सांशत्वमेवेश्वरस्य ।
 >
 >
-​In our system, only shuddha-chaitanya is vastu. That is devoid of parts.
+In our system, only shuddha-chaitanya is vastu. That is devoid of parts.
 Hence, if you meant 'shuddha' in your sentence, then you were correct.
 But, that is not the case because we are talking about Ishvara. So, you
 appear wrong.
@@ -173,8 +173,8 @@ appear wrong.
 We have to accept that Ishvara has parts because Ishvara is
 vishiShTa-chaitanya.
 What more, you yourself said that :
-​
-​
+
+
 Iswara = Chaitanya + maya
 So, Ishvara has parts.
 

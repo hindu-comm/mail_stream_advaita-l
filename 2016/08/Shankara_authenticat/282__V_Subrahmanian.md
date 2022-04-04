@@ -175,9 +175,9 @@ wrote:
 > to
 > >> prove supremacy, then what has happened is expected.
 > >>
-> >> ​This argument seems to go on and on. To be fair, I would not mind you
+> >> This argument seems to go on and on. To be fair, I would not mind you
 > >> replying, but will resist myself replying and retire from this
-> >> discussion.​
+> >> discussion.
 > >>
 > >> Lastly, if, at any time, such verses are quoted by me in past, I ask for
 > >> apology and take my words back. If you are hurt by my words beg for

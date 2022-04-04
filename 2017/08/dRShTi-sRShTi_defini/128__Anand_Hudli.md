@@ -99,7 +99,7 @@ On Tue, Aug 15, 2017 at 8:57 AM, Anand Hudli <anandhudli at hotmail.com> wrote:
 >> > api dRshyatvAdihetunA eva teShAM mithyAtvasiddheriti.
 >> >
 >>
->> >Anandji, ​Why can't dRshyatva as a hetu be within DSV here?​
+>> >Anandji, Why can't dRshyatva as a hetu be within DSV here?
 >>
 >> Perhaps my message was not clear, but I didn't mean to say dRshyatva
 >> cannot be used as a hetu within DSV. It is purely because the six entities

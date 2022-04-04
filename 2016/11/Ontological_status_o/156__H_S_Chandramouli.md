@@ -23,7 +23,7 @@ Then what I had mentioned in my earlier post namely
 quote  << As you have yourself clarified, avidya having Brahman as locus is
 to be understood as avidya being the adhyasta and Brahman as adhishthAna,
 one being
-mithya​ ​(​ unreal​)​ and the other real. >> unquote
+mithya ( unreal) and the other real. >> unquote
 
 
 

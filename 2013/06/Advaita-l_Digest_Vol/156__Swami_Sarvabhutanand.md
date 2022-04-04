@@ -109,7 +109,7 @@ ajit.gargeshwari at gmail.com> wrote:
 > >
 > > May I request Scholars to point out where my above analysis is going
 > wrong
-> > Thanks​
+> > Thanks
 > >
 > > Regards
 > > Ajit Gargeshwari

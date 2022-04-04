@@ -14,7 +14,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > This was the controversial work and benefit of doubt was ascribed to this
 > work.
 > I had a glance (cursory though..) and perplexed to see some tantric
-> mantras (मन्मथ तन्त्र​)
+> mantras (मन्मथ तन्त्र)
 > and thought how could a great advaitin whose mind used to roam in the
 > lofty heights of vedanta
 > could compile such mantras !

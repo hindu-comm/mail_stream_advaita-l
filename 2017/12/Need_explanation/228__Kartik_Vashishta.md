@@ -157,7 +157,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >
 > Hope this helps.
 >
-> ​gurupAdukAbhyAm
+> gurupAdukAbhyAm
 > ,
 > --Praveen R. Bhat
 > /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

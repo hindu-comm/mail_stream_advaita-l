@@ -20,6 +20,6 @@ On Thu, Oct 12, 2017 at 11:11 AM, Sujal Upadhyay <sujal.u at gmail.com> wrote:
 > is plenty of material available for purchase. we live in material world in
 > material-centered society. Some work needs to be done.
 >
-> ​<content clipped>​
+> <content clipped>
 >
 >

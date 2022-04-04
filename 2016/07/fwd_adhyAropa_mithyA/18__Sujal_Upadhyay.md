@@ -35,8 +35,8 @@ Please remember, samsAra is in mind.
 
 OM
 
-​Sujal
-​
+Sujal
+
 
 On Mon, Jul 4, 2016 at 9:36 PM, Ravi Kiran <ravikiranm108 at gmail.com> wrote:
 

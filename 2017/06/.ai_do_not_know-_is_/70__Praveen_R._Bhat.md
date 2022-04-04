@@ -7,9 +7,9 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/0
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/045427.html)
 
 Sorry for the oversight, "by the using avichArin, mandadhI, etc
-​in verses 9.20-21" should read as "
+in verses 9.20-21" should read as "
 by using the words avichArin, mandadhI, etc,
-​in verses 9.20-21".
+in verses 9.20-21".
 
 
 Kind rgds,
@@ -22,10 +22,10 @@ wrote:
 
 >
 > True, mark the words "nearest to the goal", which is not the same as the
-> goal. ​
+> goal. 
 > Not as the direct cause for aparokShajnAna, but Panchadashi 9th chapter
-> ​mentions dhyAna as the secondary means when one cannot do vichAra by the
+> mentions dhyAna as the secondary means when one cannot do vichAra by the
 > using avichArin, mandadhI, etc
-> ​in verses 9.20-21.
+> in verses 9.20-21.
 >
 >

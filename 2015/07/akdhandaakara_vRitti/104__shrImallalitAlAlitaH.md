@@ -21,7 +21,7 @@ k_prasad_h at yahoo.co.in> wrote:
 > in the case of other anEka-AkAra-vRttis.
 >
 
-​This ridiculous idea has been refuted. You need to read definition of
+This ridiculous idea has been refuted. You need to read definition of
 AkAra.
 And you need to remove ghaTa, etc. from the place of object of such GYAna.
 And then you are just saying that brahmaGYAna reveals brahma, to which I
@@ -45,7 +45,7 @@ Thanks.
 It would be better if someone could present his idea vividly and then ask
 precise question. I'm tight on schedule.
 
-Nothing was read even once after writing. You may expect errors in writing.​
+Nothing was read even once after writing. You may expect errors in writing.
 
 
 

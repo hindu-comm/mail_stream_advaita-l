@@ -22,10 +22,10 @@ Hamsah Soham
 On Thu, Oct 19, 2017 at 12:04 AM, Praveen R. Bhat via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 
-> ​Namaste Subbuji,
+> Namaste Subbuji,
 >
 > Thanks for this video link; its a very rare pleasure to see HH speak on
-> Vedanta in a public forum.​
+> Vedanta in a public forum.
 >
 > Kind rgds,
 > --Praveen R. Bhat

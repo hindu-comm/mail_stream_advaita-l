@@ -19,7 +19,7 @@ wrote:
 >>
 >>
 
-​If you're saying both vichAra and upAsanA are possible, we're both saying
+If you're saying both vichAra and upAsanA are possible, we're both saying
 the same thing. In fact, nirgunopAsana is only without manana. After
 manana, it is nididhyAsana.
 
@@ -27,4 +27,4 @@ Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

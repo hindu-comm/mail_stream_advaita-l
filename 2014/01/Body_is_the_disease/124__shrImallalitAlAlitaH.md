@@ -14,7 +14,7 @@ On 21 January 2014 17:36, Srinath Vedagarbha <svedagarbha at gmail.com> wrote:
 > not in opponent's siddhAnta.
 >
 
-​There are two ways to see your stand:
+There are two ways to see your stand:
 1. vAda is not possible if something is not accepted true by both opponents
 2. Even if vAda starts, the person who doesn't accept anything true can't
 prove anything
@@ -55,9 +55,9 @@ I hope other members have enough knowledge to explain and refute views I've
 refuted.
 
 !! mahAdeva !!
-​
 
-​
+
+
 
 
 

@@ -42,7 +42,7 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 > उक्ताखण्डार्थता यद्वा तत्प्रातिपदिकार्थता ॥
 >
 
-​As many people may not know meaning of this shlokaH, so they don't even
+As many people may not know meaning of this shlokaH, so they don't even
 feel that this is not about अखण्डार्थता of वृत्तिः. So, if I leave this as
 it is, and not post this writing, even then I'll not face any problem.
 But, let me post what I want to share for persons, who have read these
@@ -51,7 +51,7 @@ Others may get more confused by this or may be benefited.
 
 The above shloka doesn't appear to talk about akhaNDAkAravRtti. So, read:
 The above sentence talks about अखण्डार्थता of  गिरां = the quality of (few)
-sentences​ to generate knowledge = vRtti which has akhaNDa AkAra (shape of
+sentences to generate knowledge = vRtti which has akhaNDa AkAra (shape of
 akhaNDa/or ability to reveal akhaNDa).
 Here one should note, that even प्रकृष्टप्रकाशश्चन्द्रः and सोयम् these
 sentences are अखण्डार्थक and hence generate अखण्डार्थवृत्तिः(because

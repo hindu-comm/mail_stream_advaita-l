@@ -26,15 +26,15 @@ On Wed, 5/24/17, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
  Date: Wednesday, May 24, 2017, 4:03 PM
 
  Namaste
- Kalyanji,​
+ Kalyanji,
  On Wed, May 24, 2017 at
  9:14 PM, Kalyan <kalyan_kg at yahoo.com>
  wrote:
  Because the Mahabharata does not give scope for such an
  interpretation. The central theme of Mbh is that when dharma
  declines, Ishwara himself descends to earth to restore
- order. ​​M.Bh. is not
- the only source to know who Ishvara is.​​
+ order. M.Bh. is not
+ the only source to know who Ishvara is.
  In Mbh, this Ishwara is
  Krishna. Shankara also gives a similar summary in his intro
  to gita bhashya.
@@ -47,14 +47,14 @@ On Wed, 5/24/17, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
  moksha giver for them.
 
 
- ​Note
- below​
+ Note
+ below
  //On a related
 
  matter, I do not know as
  to why those who call themselves as
 
- Vedantins​,​ following Advaita
+ Vedantins, following Advaita
  Vedanta take to a non-Vedanta
 
  source as having more authority in their
@@ -65,15 +65,15 @@ On Wed, 5/24/17, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
 
  Not sure what you are trying to say here.
  If
- that "giver of moksha" ​being Vishnu as some
+ that "giver of moksha" being Vishnu as some
  deity is established from non-Upanishad source, then it
  cannot be called as Vedanta doctrine.
- ​gurupAdukAbhyAm,
+ gurupAdukAbhyAm,
  --Praveen R. Bhat
  /*येनेदं
  सर्वं विजानाति,तं केन
  विजानीयात्।Through what
  should one know That owing to which all this is known!
  [Br.Up. 4.5.15] */
- ​
+ 
 

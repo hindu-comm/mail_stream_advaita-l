@@ -11,7 +11,7 @@ Pranams,
 Thank you Sri Kartik ji for the link. I will read this article in free time.
 
 Hari OM
-​Sujal​
+Sujal
 
 
 
@@ -36,5 +36,5 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > and wrote out an article on the subject: http://www.advaita-vedanta.
 > org/articles/Shiva.pdf
 >
-> ​<content clipped>
+> <content clipped>
 >

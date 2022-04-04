@@ -7,7 +7,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/045785.html)
 
 Namaste Subbuji,
-​
+
 On Tue, Jul 4, 2017 at 4:33 PM, V Subrahmanian via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 >
@@ -31,7 +31,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > duality.]*
 
 
-​True, this is one of the best ​places of Bhashya where the vRtti is said
+True, this is one of the best places of Bhashya where the vRtti is said
 to be like a छिदिक्रिया which removes the false notion after which the
 self-evident आत्मा shines on its own merits, which is how we say that there
 is no फलव्याप्ति needed for ब्रह्मज्ञान। Yet, my question is about the
@@ -53,7 +53,7 @@ define it.
 > traditional commentaries, other works of say, Chitsukha, etc.
 >
 
-​Undoubtedly, all अनुभव will include all ज्ञान, barring स्मृति, then, but I
+Undoubtedly, all अनुभव will include all ज्ञान, barring स्मृति, then, but I
 am not worried of अतिव्याप्ति since ज्ञान itself has that, including
 स्मृति. We differentiate them contextually as व्यावहारिक, etc. My goal is
 only to show that अनुभव need not be seen as a wrong word, as I can equally
@@ -64,4 +64,4 @@ gurupAdukAbhyAm,
 
 
 
-​​
+

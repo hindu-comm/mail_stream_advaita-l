@@ -10,7 +10,7 @@ praNAms
 Hare Krishna
 
 
-Also, in स्वाध्याय ब्राह्मण (द्वितीय प्रपाठकं) of तै०आरण्यक​ vide 15th anuvAka, there is a rik that says: The words 'न अश्लीलं कीर्तयेत्' implies that one should not point out & discuss the bad deeds of vedic scholars & acharyas.  "तस्मात् ब्राह्मणेभ्यो वेदविद्भ्यो दिवे दिवे नमस्कुर्यान्नाश्लीलं कीर्तयेत्"
+Also, in स्वाध्याय ब्राह्मण (द्वितीय प्रपाठकं) of तै०आरण्यक vide 15th anuvAka, there is a rik that says: The words 'न अश्लीलं कीर्तयेत्' implies that one should not point out & discuss the bad deeds of vedic scholars & acharyas.  "तस्मात् ब्राह्मणेभ्यो वेदविद्भ्यो दिवे दिवे नमस्कुर्यान्नाश्लीलं कीर्तयेत्"
 
 >  We chant this mantra during the brAhmaNa namaskAra along with bhAgadaivenaM praNayati, brAhmaNa Arusheya uddharet. brAhmaNovai sarvA devatAH..etc.  
 

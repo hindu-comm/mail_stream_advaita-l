@@ -16,7 +16,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > Sri vAdirAja's question is if the pramANa viShaya is
 > > vyAvahArikam, it is by definition bAdhyam upon brahma jnAna.
 >
-> ​Upon brahmajnAna, except for vastu, everything is bAdhya. Ergo, Vadiraja's
+> Upon brahmajnAna, except for vastu, everything is bAdhya. Ergo, Vadiraja's
 > questioning prAmANya is invalid after jnAnotpatti. Its valid only in
 > vyavahArakAla. Thence...
 >

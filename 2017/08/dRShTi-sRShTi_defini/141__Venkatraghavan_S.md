@@ -75,7 +75,7 @@ subbu
 > > On Tue, Aug 15, 2017 at 7:16 PM, Anand Hudli via Advaita-l <
 > > advaita-l at lists.advaita-vedanta.org> wrote:
 > >
-> > > ​​
+> > > 
 > > >
 > > > सर्वलोकादिसृष्टिश्च तत्तद्दृष्टिव्यक्तिम् अभिप्रेत्य, यदा यत् पश्यति,
 > > > तत्समकालं तत् सृजति इत्यत्र तात्पर्यात्। Due to the usage
@@ -86,9 +86,9 @@ subbu
 > > >
 > > > Sorry for the late reply.
 > >
-> > ​Not at all, I just repeated the question since it was one question to
+> > Not at all, I just repeated the question since it was one question to
 > you
-> > in a long mail ​to Chandramouliji, so it was likely missed. Thanks for
+> > in a long mail to Chandramouliji, so it was likely missed. Thanks for
 > your
 > > response.
 > >
@@ -102,7 +102,7 @@ subbu
 > takes
 > > > place contemporaneously.
 > > >
-> > ​Although, I too interpreted दृष्टिव्व्यक्ति as कर्मधारय translating to
+> > Although, I too interpreted दृष्टिव्व्यक्ति as कर्मधारय translating to
 > > "individual sights", but I wondered if it could be made द्वन्द्व by
 > someone
 > > to somehow accommodate Bhamatikara's NJV (although to do so strictly it
@@ -114,7 +114,7 @@ subbu
 > > > part free from NJV or EJV, although it is better to assume EJV, as it
 > > > naturally leads into EJV in the next section.
 > >
-> > ​I had particularly not seen the context in which the AS discussion takes
+> > I had particularly not seen the context in which the AS discussion takes
 > > place and made सङ्गति connections, sorry! But I did see that EJV follows
 > > this section.
 > >
@@ -124,9 +124,9 @@ subbu
 > > for
 > > > the purpose of creation.
 > >
-> > Thanks, ​I'd said this very thing to my Acharyaji in one discussion on
+> > Thanks, I'd said this very thing to my Acharyaji in one discussion on
 > > Bhamatikara's DSV version that I don't need NJV at all since EJV is
-> > लाघवम्।​ He seemed to agree. Yet, I don't think I landed this wonderful
+> > लाघवम्। He seemed to agree. Yet, I don't think I landed this wonderful
 > > thing of अविद्याश्रय with EJV the way you do below.
 > >
 > > Further, it may also imply each jIva is the locus
@@ -134,14 +134,14 @@ subbu
 > > vivaraNa
 > > > in maintaining that Brahman is the locus of avidyA.
 > > >
-> > > ​This also ties in what I remember Chandramouliji mentioning recently
+> > > This also ties in what I remember Chandramouliji mentioning recently
 > as
 > > per another book wherein the author says Vivarana is EJV, while Bhamati
 > is
-> > NJV.​ I was wondering as to how that conclusion was arrived at. Now it
+> > NJV. I was wondering as to how that conclusion was arrived at. Now it
 > > perfectly syncs in. Thanks much; this is very helpful.
 > >
-> > ​gurupAdukAbhyAm
+> > gurupAdukAbhyAm
 > > ,
 > > --Praveen R. Bhat
 > > /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

@@ -67,7 +67,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > lalitaalaalitah at lalitaalaalitah.com> wrote:
 >
 > >
-> > ​No difference. You just went for sUtra-s, while I mentioned
+> > No difference. You just went for sUtra-s, while I mentioned
 > adhikaraNa-s.
 > >
 >
@@ -78,7 +78,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > But, it will be better if you could present your present understanding of
 > > three adhikaraNa-s and the problems you are facing.
 > > Then I will be able to help you understand the parts which are tricky or
-> > unfamiliar.​
+> > unfamiliar.
 > >
 >
 > Here is what I understand:

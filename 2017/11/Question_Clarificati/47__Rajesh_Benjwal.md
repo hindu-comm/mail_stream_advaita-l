@@ -24,7 +24,7 @@ rama.balasubramanian at gmail.com> wrote:
 > advaita-l at lists.advaita-vedanta.org> wrote:
 >
 >> Namaste
->> ​
+>> 
 >> Sarmaji,
 >>
 >>

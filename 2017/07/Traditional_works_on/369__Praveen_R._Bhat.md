@@ -64,7 +64,7 @@ path though imperfect than the path of another well-made".
 
 Thank you.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

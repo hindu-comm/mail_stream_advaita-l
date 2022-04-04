@@ -14,7 +14,7 @@ wrote:
 > Reg  << Bhamatikara
 >
 > Vachaspati Mishra accepts DSV with NJV not EJV. That is not to say that he
-> ​is against DSV. Someone who has Bhamati reference for this may kindly
+> is against DSV. Someone who has Bhamati reference for this may kindly
 > quote the same, since I haven't studied Bhamati text proper.>>,
 >
 >
@@ -23,7 +23,7 @@ wrote:
 > for. Prof Suryanarayana Shastri, in his introduction to Bhamati, observes
 > as follows.  Quote
 >
-> ​...​
+> ...
 >
 >
 
@@ -33,7 +33,7 @@ wrote:
 > Looks like Bhamati resorts to SDV and not DSV.
 >
 >
-​Thanks for your quotations, but it is not what I am looking for. You are
+Thanks for your quotations, but it is not what I am looking for. You are
 proving that Bhamati uses SDV, which I have no doubts about. I am looking
 at a quotation where Bhamati agrees that DSV is possible but with NJV, not
 with EJV. I asked my Acharyaji who confirmed this, but he couldn't quote as
@@ -43,4 +43,4 @@ Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

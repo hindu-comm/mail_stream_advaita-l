@@ -12,7 +12,7 @@ It is important to note that, though Nirvikalpa Samadi ultimately leads to
 > Jnana, Nirvikalpa Samadi as such cannot be equated with Jnana.
 >
 
-​This may start yet another discussion :)
+This may start yet another discussion :)
 
 Namaste
 
@@ -184,7 +184,7 @@ On Tue, Oct 29, 2013 at 7:07 PM, Nithin Sridhar <sridhar.nithin at gmail.com>wro
 > > > >
 > > > >
 > > > > Maybe Upanishad would mean - to stay connected to Guru via internet
-> > ;)​​
+> > ;)
 > > > >
 > > > >
 > > > > OM

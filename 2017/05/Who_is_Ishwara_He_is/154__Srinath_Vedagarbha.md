@@ -24,8 +24,8 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > in advaita? It beats me how such an Atman, wallowing in ignorance, can be
 > > described as param jyoti.
 > >
-> ​If the Atman is nirguNa nirvishesha, how can he have the attribute of
-> ignorance?​
+> If the Atman is nirguNa nirvishesha, how can he have the attribute of
+> ignorance?
 >
 
 

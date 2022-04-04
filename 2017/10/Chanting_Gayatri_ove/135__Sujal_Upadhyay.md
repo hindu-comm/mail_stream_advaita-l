@@ -50,7 +50,7 @@ advaita-l at lists.advaita-vedanta.org>:
 > what to speak of in
 > waking state...
 >
-> The yati who holds the दण्ड​ has to stick to satya & dharma
+> The yati who holds the दण्ड has to stick to satya & dharma
 >
 > यति दण्डमहिमा says:
 >

@@ -65,7 +65,7 @@ hold that '(as) clay alone' is real >>,
 
 
 kAryam only when considered  independent of kArana( bereft of upAdAna
-kArana ) ​
+kArana ) 
 
 is avastu. Why put “as” within bracket. kArya is real as kArana alone.
 Where is the question of vivarta here? You have also not clarified on the

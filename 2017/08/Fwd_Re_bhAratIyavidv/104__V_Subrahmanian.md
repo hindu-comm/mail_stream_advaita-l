@@ -28,7 +28,7 @@ Prof VN Jha's work will be helpful.
 *Title*: Dictionary of Nyaya Terms; Sanskrit- English
 *Author*: Prof V. N. Jha
 *Publisher*: Centre of Advanced Study in Sanskrit, Pune
-*Year*: 2010​
+*Year*: 2010
 
 For the understanding of the technical terms of Navya-Nyaya in Hindi, Prof
 Baliram Shukla's work will be more useful.

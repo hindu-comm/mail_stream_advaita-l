@@ -105,7 +105,7 @@ For example, in discussing drishyatva hetu for mithyAtva, vivaraNAchArya
 > this, the Tikas explain that it is bAdhita-adhyAsa. Similarly, the world
 > also continues with the bAdhita-adhyAsa, it need not get destroyed. Else
 > prArabdha also should go and jnAni's body should fall off.
-> ​
+> 
 >
 > > We don't encounter that, so the jIvAs must be many. If jIvAs are many, is
 > > avidyA one or many?
@@ -144,14 +144,14 @@ For example, in discussing drishyatva hetu for mithyAtva, vivaraNAchArya
 > verse 3.1.
 >
 >
-> ​
-> ​gurupAdukAbhyAm
+> 
+> gurupAdukAbhyAm
 > ,
 > --Praveen R. Bhat
 > /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 > That owing to which all this is known! [Br.Up. 4.5.15] */
 >
-> ​
+> 
 > _______________________________________________
 > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
 > http://blog.gmane.org/gmane.culture.religion.advaita

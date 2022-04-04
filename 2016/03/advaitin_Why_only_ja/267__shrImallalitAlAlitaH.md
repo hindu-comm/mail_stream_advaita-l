@@ -17,7 +17,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >  illogical.
 >
 
-​I have some difficulty in accepting this. If logic is what he preferred,
+I have some difficulty in accepting this. If logic is what he preferred,
 there should be refutation of other AchArya-s on the basis of that, not on
 the basis of 'being said by bhAShyakAra or not'.
 But, I'll not comment on it further. That will deviate us from core subject,
@@ -29,7 +29,7 @@ Actually, I've read his explanations of bhAShyam and can only appreciate
 how clearly he understood bhAShyam at difficult places.
 I respect him very much.
 Bringing him is based on his love for bhAShyam only as Agama pramANA!!
-​
+
 
 
 

@@ -136,7 +136,7 @@ On Feb 27, 2014 11:39 AM, "Sujal Upadhyay" <sujal.u at gmail.com> wrote:
 > > > in
 > > > > Yog VAsisTa too.
 > > > >
-> > > > ​SrI VidyAraNya svAmI has also cited Amrit Bindu Upanishad 1 and 18
+> > > > SrI VidyAraNya svAmI has also cited Amrit Bindu Upanishad 1 and 18
 > in
 > > > > PanchdaSI 1.4.45-46.
 > > > >
@@ -170,11 +170,11 @@ On Feb 27, 2014 11:39 AM, "Sujal Upadhyay" <sujal.u at gmail.com> wrote:
 > > > > Pt. RAmAvatAra vidyAbhAskara)
 > > > >
 > > > >
-> > > > ​Hari ​
+> > > > Hari 
 > > > > OM
 > > > >
 > > > > Sujal
-> > > > ​​
+> > > > 
 > > > > _______________________________________________
 > > > > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
 > > > > http://blog.gmane.org/gmane.culture.religion.advaita

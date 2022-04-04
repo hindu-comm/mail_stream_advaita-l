@@ -8,7 +8,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2019-June/0
 
 Namaste,
 
-लक्षणया वृत्त्या "आयुर्वैघृतं" इति मन्त्रे आयुः एव​ घृतम्। तद्वत् ज्ञानमेव मोक्षः ॥
+लक्षणया वृत्त्या "आयुर्वैघृतं" इति मन्त्रे आयुः एव घृतम्। तद्वत् ज्ञानमेव मोक्षः ॥
 
 Scholars have multiplied the technical terms to add more confusion to the advaita-siddhanta ! 
 

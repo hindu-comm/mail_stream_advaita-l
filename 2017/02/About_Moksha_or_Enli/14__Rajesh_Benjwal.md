@@ -9,33 +9,33 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Februa
 Namaste Kripaji,
 
 If we go with
-​
-​
+
+
 Bhag
-​a​
+a
 v
-​A​
+A
 n Bhasy
-​a​
+a
 k
-​A​
+A
 raa and tikAk
-​A​
+A
 ra then this problem of animal geting moskha does not come as they do not
 define p
-​A​
+A
 payoni here as animals.
 
 
-​​
+
 Bhag
-​a​
+a
 v
-​A​
+A
 n Bhasy
-​a​
+a
 k
-​A​
+A
 ra says, ,मां हि यस्मात् पार्थ व्यपाश्रित्य माम् आश्रयत्वेन गृहीत्वा येऽपि
 स्युः भवेयुःपापयोनयः पापा योनिः येषां ते पापयोनयः पापजन्मानः। के ते इति? आह
 -- स्त्रियः वैश्याः तथा शूद्राः तेऽपि यान्ति गच्छन्ति परां प्रकृष्टां
@@ -56,22 +56,22 @@ bhagvad bhajanam,
 
 
 So he sa
-​ys​
+ys
 that it is durlabham, so there can be apavAdam.
 
 
 About the animals can get moksha or not? We can put in category of
 apavAdam. There is a rare possibity that some time a human can born with
 such a prArabdha which need
-​s​
+s
 more than one janma to
-​​
+
 exhaust. So if he
-​/she​
+/she
 get
-​s​
+s
 brahma jnAnam, still he
-​/she​
+/she
 may reborn again. I forgot the maximum span of lfie in such case but I
 think it can be many hundred years. So in that case you get the videhamukti
 in you last birth.
@@ -89,12 +89,12 @@ Any you are correct about Sri Abhinava Gupt ji commentry.
 
 
 I am not sure how tradition explains गजेन्द्रमोक्ष
-​ by extended prArabdha or ?
+ by extended prArabdha or ?
 
 
-​My two cents
+My two cents
 
-Thanks​
+Thanks
 
 On Thu, Feb 2, 2017 at 7:26 PM, Kripa Shankar via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:

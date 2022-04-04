@@ -12,7 +12,7 @@ Namaste Praveen Ji,
 
 Reg  << Bhamatikara
 Vachaspati Mishra accepts DSV with NJV not EJV. That is not to say that he
-​is against DSV. Someone who has Bhamati reference for this may kindly
+is against DSV. Someone who has Bhamati reference for this may kindly
 quote the same, since I haven't studied Bhamati text proper.>>,
 
 

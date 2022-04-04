@@ -21,9 +21,9 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > work could be post-Shankara.
 >
 
-​This 'not quoting' is not a correct reason to decide that anything is not
+This 'not quoting' is not a correct reason to decide that anything is not
 old.
-On that basis most of the texts will become post-shankara.​
+On that basis most of the texts will become post-shankara.
 
 
 

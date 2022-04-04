@@ -9,7 +9,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Novemb
 Reg  << 2) names and forms, which are as though conjured by ignorance, are
 the
 seeds of the world, and are part of Ishvara.
-​>>,
+>>,
 
 Perhaps  " which are as though conjured by ignorance " should read as "
 which are conjured by ignorance " and  "are part of Ishvara" should read
@@ -23,19 +23,19 @@ Regards
 > Ishvarasya
 > AtmabhUta (ie they are part of him), and later say sarvajna: Ishvara:
 > tAbhyAm anya: (ie he is different from them)?
-> ​ >>,
+>  >>,
 >
 > The important word
 > इव
-> ​ (
+>  (
 >  iva
-> ​)​
-> ​appears to be
+> )
+> appears to be
 >  misssing from
-> ​t​
+> t
 > he translation.
-> ​I think t
-> his leads to the question mark.​
+> I think t
+> his leads to the question mark.
 >
 > Regards
 >

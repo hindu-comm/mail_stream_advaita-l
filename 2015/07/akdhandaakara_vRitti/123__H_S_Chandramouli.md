@@ -131,23 +131,23 @@ wrote:
 >>  Frankly
 >>  for tuula avidya at least it makes absolutely no sense to
 >>  me, if there is knowledge of an object without an
->>  attribute.​
+>>  attribute.
 >>  It should, because it is accepted that any
 >>  vishiShTa-GYAna expects it's cause before it, which are
->>  niShprakAraka-GYAna-s of visheShya and visheShana.​
+>>  niShprakAraka-GYAna-s of visheShya and visheShana.
 >>
 >>   Pure
->>  existence is imperceptible​I
+>>  existence is imperceptibleI
 >>  hope you don't mean that it can't be uncovered. The
 >>  uncovering is called perception and it is well accepted for
 >>  brahman too, otherwise how could anyone become
->>  brahmaGYa.​  and
+>>  brahmaGYa.  and
 >>  advaita does not subscribe to indeterminate perception
 >>  unlike Nyaaya or vishishtaadvaita
->>  does.​Wow!!
+>>  does.Wow!!
 >>  If niShprakAraka-GYAna is not accepted by advaitin-s then
 >>  why did naiyAyika-s, dvaitin-s objected it and advaitin-s
->>  supported it?​  I think
+>>  supported it?  I think
 >>  Anandaji had discussed this aspect as I read before in his
 >>  mail.
 >>
@@ -161,9 +161,9 @@ wrote:
 >>  true for all objective knowledge. There is no akhada aspect
 >>  here since attributes are differentiable.
 >>
->>  ​You
+>>  You
 >>  are going one level up. Please, stay on vyavahAra and talk
->>  about ghaTa-paTa-GYAna.​
+>>  about ghaTa-paTa-GYAna.
 >>
 >>
 >>  If akhada is undifferentiated objective knowledge, there is
@@ -182,14 +182,14 @@ wrote:
 >>
 >>  I need more explanation in order to understand what exactly
 >>  it stands for. me tograsp.
->>  ​I'm
+>>  I'm
 >>  lost here. I don't understand what you are talking of. I
 >>  need more clear version to refute or support.
 >>  I'll
 >>  again remind you that you have to talk on vyAvahArika-level
 >>  and count even brahmaGYAna as vyAvahArika.
 >>
->>  ​
+>>  
 >>
 >>
 >>  श्रीमल्ललितालालितः

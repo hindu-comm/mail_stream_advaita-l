@@ -17,9 +17,9 @@ Reg  <<Three examples that Chandogya  gives are ….. >>,
 Why only three. The same Chandogya has given another three examples in
 which the vAchArambhanam statement is repeated. These three also are by
 Uddalaka only and in the same context of  *
-​ ​
+ 
 by knowing one thing one can know everything
-​ ​
+ 
 *. In fact the second set of three examples I have given are practically
 just in continuation to the first three you had cited.
 

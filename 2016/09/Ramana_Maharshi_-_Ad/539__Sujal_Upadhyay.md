@@ -6,7 +6,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2016-Septem
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2016-September/042733.html)
 
-​​
+
 praNAms Sri श्रीमल्ललितालालितः ji,
 
 How do you know that I hate varNAshrama dharma? Personal opinion without
@@ -29,7 +29,7 @@ is it a spiritual journey? a sAdhaka blames only himself / herself, not
 others. When one is firm about his/her opinion, but still says, I am open,
 is it not contradiction?
 
-​**So, a discussion must not depend on what you do. It must be based on
+**So, a discussion must not depend on what you do. It must be based on
 knowledge.
 
 Agreed, but not agreed. How do you gain knowledge without practicing and
@@ -101,5 +101,5 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > shraddhA in vidhi-niShedha and then try to follow them according to our
 > eligibility and likings. These factors are common for any area of
 > unforced-natural-learning.
-> ​<content Clipped>
+> <content Clipped>
 >

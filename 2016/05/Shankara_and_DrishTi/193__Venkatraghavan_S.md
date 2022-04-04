@@ -22,16 +22,16 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > own world, either we have to accept that there will be multiple creations
 >
 
-​No need to try hard to justify it. If you are able to justify
+No need to try hard to justify it. If you are able to justify
 dRRiShTisRRiShTi for ekajIva by using svapna-nyAya; you are free to use the
 same for aneka-jIva.
 It is accepted that there are nAnA-prapa~Ncha. The usage 'what i see is
 being seen by you' is illusion again.
 
-Rest of your post doesn't need attention at this point.​
+Rest of your post doesn't need attention at this point.
 
-​How vAchaspati reaches at nAnAjIva, is other point. We may head to
-bhAmaati for that.​
+How vAchaspati reaches at nAnAjIva, is other point. We may head to
+bhAmaati for that.
 
 
 

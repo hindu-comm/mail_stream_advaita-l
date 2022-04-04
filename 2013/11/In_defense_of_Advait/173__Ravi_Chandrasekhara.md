@@ -62,7 +62,7 @@ On Nov 21, 2013, at 22:33, Nithin Sridhar <sridhar.nithin at gmail.com> wrote:
 >>> 
 >>> P.Y.S. by Swami Prabhavananda of Ramakrishna Ashram, Page 90
 >>> 
->>> ​<Content Clipped>​
+>>> <Content Clipped>
 >> _______________________________________________
 >> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
 >> http://blog.gmane.org/gmane.culture.religion.advaita

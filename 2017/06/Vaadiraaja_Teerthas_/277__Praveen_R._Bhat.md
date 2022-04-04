@@ -23,5 +23,5 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > mahAvAkya has an apekshA for avidyA, but that avidyA is not as a doSha that
 > affects the tAttvikatva of its viShaya.
 >
-> ​This is amazing! :) Thanks, that's a good close for my day.
-​
+> This is amazing! :) Thanks, that's a good close for my day.
+

@@ -23,10 +23,10 @@ Sri Guru Padaravindarpana MastuKameswara
   On Thursday, 1 March 2018 8:18 AM, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
 
 
- ​Namaste Kameswararao Mahodaya,
+ Namaste Kameswararao Mahodaya,
 I am not sure if you meant the text tattvabodha or bodha of the advaitatattva. You have been on this list for long and keep quoting quite a few texts, including the subject line here itself (Siddhantaleshasangraha), so I am going to assume the latter. Its best to approach a gurukulam/ sAmpradAyika teacher in person for advice suiting you. As for books in English, I used to prefer Sw. Gambhiranandaji's translations of bhAShya before I learnt vyAkaraNa. There are lot of works online that you can study or using recordings based on the language you prefer. Else let know the list members what exactly are you looking for online and one of us will hopefully be able to get you exactly what you seek.
 In the unlikely case that you meant the former, among other things, I am teaching tattvabodha online, but it includes Sanskrit basics right now for beginners. Please email me off the list if interested, lets not flood this list. I may kindly be excused if this seems like an advertisement!
-​gurupAdukAbhyAm,
+gurupAdukAbhyAm,
 --Praveen R. Bhat
 /*येनेदं सर्वं विजानाति,तं केन विजानीयात्।Through what should one know That owing to which all this is known! [Br.Up. 4.5.15] */
 

@@ -37,12 +37,12 @@ tadvidvAniti vedAntaDiNDimaH||
 In his commentary, Sri SSS clearly states as follows  ( Translation mine )
 << Brahman which is of the nature of SatchidAnandarUpa,
 nityashudhamuktasvarUpa is the only satya
-​ ;
+ ;
   because its AtmasvarUpa is never changing. Jagat which is
 nAmarUpAtmaka,consisting of numerous kartru-bhoktrus, displaying kriya
 phalAs dictated  by time and space, experienced through pramanAs like
 pratyaksha etc is mithya
-​;
+;
 because it is always changing.  >> .
 
 

@@ -17,7 +17,7 @@ knowledgeable in Sanskrit. I need to confirm with him again.
 
 
 Reg  << Kindly tell me the shloka words if possible, I would like to check
-what context you are referring to ​for these translations. I haven't found
+what context you are referring to for these translations. I haven't found
 the bhashya under 13.31 or even the entire 13th chapter.>>,
 
 
@@ -39,7 +39,7 @@ is the case here also.
 
 
 
-Reg  << I don't think I understand the ​dispute. In any case, I was only
+Reg  << I don't think I understand the dispute. In any case, I was only
 answering the questions you directed to me. >>,
 
 

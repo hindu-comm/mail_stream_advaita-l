@@ -15,11 +15,11 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > of making advaita texts searchable?
 >
 
-​We will prefer to put our edition separate.
+We will prefer to put our edition separate.
 Going under someone's roof kills diversity and individuality.
-​maTha editions have some different readings and TippaNa-s. I wish to keep
+maTha editions have some different readings and TippaNa-s. I wish to keep
 them.
-​
+
 
 >
 > >Typed work will be put online, no doubt. But, for that we will need some
@@ -32,7 +32,7 @@ them.
 > have some contacts there, if you are interested.
 >
 
-​I wrote to Sringeri for technical help.
+I wrote to Sringeri for technical help.
 Have not received reply. Although, it is only a few days since I wrote.
 
 Any help is appreciated.
@@ -44,7 +44,7 @@ Having multiple options is good.
 We have not yet reached any decision. We are finding more options, good
 ones, reasonable ones.
 So, please introduce any person you which you think competent.
-​
+
 
 
 >

@@ -37,7 +37,7 @@ wrote:
 >> he is still Brahman only.
 >>
 >
-> ​Thanks for highlighting an important point​. This is unfortunately lost
+> Thanks for highlighting an important point. This is unfortunately lost
 > on many who take the literal interpretation of sarvaM brahma; that is
 > without bAdhasAmAnAdhikaraNyam! The orthodox Vedanta process is to
 > necessarily know the jaganmithyAtvam before sarvaM brahma, else there is a

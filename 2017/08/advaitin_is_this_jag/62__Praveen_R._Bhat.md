@@ -13,17 +13,17 @@ lost representation for very good reasons. The reason for this presentation
 is also included as necessary. This is my last effort for unbiased readers
 even if not taken up for sensible discussion/ debate by those really
 interested in vAda, but vitaNDa.
-​
+
 On Wed, Aug 9, 2017 at 6:01 AM, putran M putranm4 at gmail.com [advaitin] <
 advaitin at yahoogroups.com> wrot
-​e​
+e
 
 
 > At least as per the quoted verse, the imagination in question is
 > projection or manifestation of what is *already in His Mind. *The
 > implication is that the ishvara-jiva-jagat triad is anaadi.
 >
-> ​​
+> 
 I see there are some ridiculous assumptions, most likely purposeful, made
 in the current discussion thread [also]. Therein, there are many a
 dismissal of things unsaid by anyone, perhaps stated in the refuter's own

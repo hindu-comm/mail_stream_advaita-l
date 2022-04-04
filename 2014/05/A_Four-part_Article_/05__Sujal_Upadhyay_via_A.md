@@ -18,7 +18,7 @@ a sincere worship,. the mind will continue to remain unsteady. An unsteady
 mind
 cannot grasp the infinite attributeless Absolute. The need for meditation on
 God with form was thus stressed.
-​​
+
 Madhusudana Saraswati, the famous all-knowing
 author of *Advaita Siddhi,* has said:
 
@@ -37,25 +37,25 @@ kAlindIpulinodare kimapi yannIlam maho dhAvati ||
 Krisna,
 who wanders about the banks of the river, Kaalindi.’
 
-​I think these are verses of Gita chapter 15 commentary. Acharya has not
+I think these are verses of Gita chapter 15 commentary. Acharya has not
 said anything wrong, but I would be grateful to you if you could add in
 bracket that these verses are from madhusudan saraswati's gita commentary.
 
 Or simply write,
 
-​
-​
+
+
  Madhusudana Saraswati, the famous all-knowing
 author of *Advaita Siddhi,*
-​[in his gudhartha dipika, a commentary on bhagavad gita], ​
+[in his gudhartha dipika, a commentary on bhagavad gita], 
 has said:
 
-​*words inside square bracket mine​
+*words inside square bracket mine
 
-​this will make things more clear that
+this will make things more clear that
 
 1. Madhusudan Saraswati;s most famous work is advaita siddhi
-2. Below verses are from his gita commentary​
+2. Below verses are from his gita commentary
 
 Hari OM
 

@@ -36,10 +36,10 @@ On Fri, 1/15/16, Rajesh Benjwal via Advaita-l <advaita-l at lists.advaita-vedant
 
 
  >>>
- ​
+ 
  kuntimaddi sadananda
- ​ji
- said​
+ ji
+ said
 
  *>>>>*First answer is - a jnaani
  does not sleep since he has realized his

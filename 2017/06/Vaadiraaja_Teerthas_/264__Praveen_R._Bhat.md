@@ -16,7 +16,7 @@ wrote:
 > is a discussion that is somewhat similar to this. There madhusUdana
 > sarasvati svAminah says:
 >
-​No argument there, my response was restricted to pramANatva, tattvikatva​
+No argument there, my response was restricted to pramANatva, tattvikatva
 is a different matter. And as you said in the first response of yours to
 Vadiraja's argument, after jnAnottpatti, there is no pramANatva status even
 for abhedashruti.

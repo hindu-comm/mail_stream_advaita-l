@@ -18,16 +18,16 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > sati sattvena pratItyarham chidbhinnam - that which appears as existing, is
 > different from pure consciousness, and is non sublated by anything other
 > than the real knowledge of brahman.
-> ​
+> 
 >
 >
 It seems that this could as well apply to prAtibhAsika-sattA, what is the
-definition given of prAtibhAsika-sattA​ to differentiate it? If it be said
+definition given of prAtibhAsika-sattA to differentiate it? If it be said
 that vyAvahArika sublates it, then so does prAtibhAsika sublate
 vyAvahArika. The dream world and waking world, both, sublate each other in
 their own sattAs. This is how Karikakara collapses both as a single sattA.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

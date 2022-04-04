@@ -16,8 +16,8 @@ On Sunday, September 8, 2013, श्रीमल्ललितालालि�
 > rajaramvenk at gmail.com <javascript:;>
 > > wrote:
 >
-> > ​>​
-> > ​I can't understand what do you want to express by 'particular form is
+> > >
+> > I can't understand what do you want to express by 'particular form is
 > > > eternal as knowledge of Ishvara'. Do you mean that forms and
 > > Ishvara-GYAna
 > > > are similar or same !!??? That's untenable.
@@ -27,14 +27,14 @@ On Sunday, September 8, 2013, श्रीमल्ललितालालि�
 > > sense. It is eternal as a collection forms with an associated name.
 > >
 >
-> ​Let me examine this post here :
+> Let me examine this post here :
 > Let us take the second sentence-
 > What does it mean ?
 > jAti is eternal - is understood. It's oath part.
 > The part of sentence starting from 'as a...' is either cause or explanation
 > of eternity?
 > If first, then just formation of a cluster with a name associated can not
-> be the cause of eternity of jAti.​ How could formation of cluster justify
+> be the cause of eternity of jAti. How could formation of cluster justify
 > that ?
 > If other, the first part of sentence would go upto the word 'collection'.
 > Then the first part will be: jAti is eternal as a collection. Now where
@@ -44,11 +44,11 @@ On Sunday, September 8, 2013, श्रीमल्ललितालालि�
 > > of similarities between them is called a pot.
 >
 >
-> ​A collection of forms is not called 'a pot'. It is called 'collection of
+> A collection of forms is not called 'a pot'. It is called 'collection of
 > pots'.
 > And, if I accept the sentence as it is, then what will be the name for
 > individual pot.
-> ​
+> 
 >
 >
 
@@ -59,14 +59,14 @@ On Sunday, September 8, 2013, श्रीमल्ललितालालि�
 > > form is eternal.
 >
 >
-> ​I hope in your uses 'ideal pot' means jAti. But, what does 'instances of
+> I hope in your uses 'ideal pot' means jAti. But, what does 'instances of
 > ideal' means?
 > If 'a place of revelation', then only your use of words can be justified.
 > Anyway, existence of individual pot is temporary - is my motive. And,
 > similar to that the form of kR^iShNa.
 > And, as not many kR^iShNa-s are seen, so there is no possibility of
 > kR^iShNa-jAti too.
-> ​
+> 
 >
 > RV: I'm explaining two cases where a pot is eternal. In one case, there is
 an ideal pot and other pots are made similar to that. In the second case,
@@ -82,14 +82,14 @@ member also. The jAti is eternal is the argument.
 > > Thus a new jAti is a modification of an existing jAti only.
 > >
 >
-> ​Wrong.
+> Wrong.
 > In first part you were talking about individuals, and hence you must
 > conclude about same in the second sentence.
 > Anyway, you are against your own stand because you are propounding that
 > jAti can be modified. That means jAti is not eternal, isn't it.
 > So, you started for eternity of individual forms and went to negate
 > eternity of jAti itself !!
-> ​
+> 
 
 RV: I'm not negating eternality of jAti but saying the opposite. An
 apparently new jAti is nothing but modification of existing ones.
@@ -102,11 +102,11 @@ apparently new jAti is nothing but modification of existing ones.
 > > forms are eternal.
 >
 >
-> ​I can not sense any sense here.
+> I can not sense any sense here.
 > Ishvara can not know dead ones as living ones. That will make him
 > hallucinated. So, individual names and forms of past things and people are
 > not eternal in this way too.
-> ​
+> 
 
 RV:  We can only say that Ishwara knows every thing through the power of
 maya. He will not know a dead man as alive but know all that a dead man
@@ -131,7 +131,7 @@ did. His name and form are eternal as His knowledge.
 > > (*S*ve. Up. VI, l2).--
 > >
 >
-> ​OK. You mean satkAryavAda here.
+> OK. You mean satkAryavAda here.
 > So, just because everything is existing in the form of it's cause or it's
 > own form, you hold that it is eternal. In this sense,  devadatta's dead
 > grandfather is also alive and hence he must start serving him directly with
@@ -156,9 +156,9 @@ the difference.
 > > > > that He has the same form.
 > > > >
 > > >
-> > > ​It is also not very clear.​
+> > > It is also not very clear.
 > > >
-> > > ​Anyway, no name is eternal, as it is mithyA according to advaitin-s.
+> > > Anyway, no name is eternal, as it is mithyA according to advaitin-s.
 > If
 > > > you mean that A-pralayam, then it may be true. But, your intentions
 > > appear
@@ -168,23 +168,23 @@ the difference.
 > > names and forms.
 >
 >
-> ​By reading your words 'as long as Ishvara exists', it appears that Ishvara
+> By reading your words 'as long as Ishvara exists', it appears that Ishvara
 > is limited by time and hence not eternal. Now, where is the case of
 > eternity of anything created by him.
 
-​
+
 >
 >
 > > Yes, a nirguna brahma jnAni can negate all names and forms
 > > along with Ishwara.
 >
 >
-> ​OK. Only neglect, but can not kill. So, it appears here that Ishvara is
+> OK. Only neglect, but can not kill. So, it appears here that Ishvara is
 > eternal.
 > You are confused as you are saying one thing in one part of post and
 > opposite in other part.
 > Be consistent.
-> ​
+> 
 
 RV:  No inconsistency. As long as Ishwara exists is used in the sense He is
 eternal.
@@ -202,7 +202,7 @@ eternal.
 > > disillusionment about eternality of bhakti in advaita.
 > >
 >
-> ​So, ultimately you mean that there is no possibility of advaitic-mukti,
+> So, ultimately you mean that there is no possibility of advaitic-mukti,
 > because without sarva-mukti there can not be real liberation. And, hence
 > Ishvara and everything he knows becomes eternal.
 > This appears essence of your logic.
@@ -212,7 +212,7 @@ eternal.
 > negating your experience of being jIva and superimposing jIvAbhAsatva on
 > it. This is second level of adhyAsa.
 > I must say that for such people, eka-jIva-vAda was not taught.
-> ​
+> 
 
 RV: Let me be the mukhya jiva. Even then, I know that cycle of creation is
 eternal.
@@ -224,17 +224,17 @@ eternal.
 > > > it.
 > > > >
 > > >
-> > > ​What if shruti says something opposed to yukti and other pramANa-s. He
+> > > What if shruti says something opposed to yukti and other pramANa-s. He
 > > > seems to ignore this fact.
-> > > ​
+> > > 
 > > >
 > > RV: You are the one who is ignoring the purva mimamsa rule that on unseen
 > > matters, sabda alone is pramana.
 >
 >
-> ​We are talking about form of kR^iShNa, which is by no means adR^iShTa.
+> We are talking about form of kR^iShNa, which is by no means adR^iShTa.
 > Even his mother saw him nude, without reading scriptures.
-> ​
+> 
 
 RV: We know of Krishna only through scriptures. For this who saw Him during
 avatara, He was known through  direct perception. If we see Him now, it
@@ -251,7 +251,7 @@ sastras.
 > didn't do anything with them, no boons, no words....because it is not said
 > by shAstra that viShNu says those words, and of course dhruva must not have
 > read something like that !!
-> ​
+> 
 >
 > RV: No one said such interaction is not possible. Those who interact know
 through direct perception. Others though sabda pramana only - shrui or
@@ -262,12 +262,12 @@ smrti.
 > > Narasimha etc.
 >
 >
-> ​Utterly ignoring facts of birth of rAma and kR^iShNa just to prove your
+> Utterly ignoring facts of birth of rAma and kR^iShNa just to prove your
 > stance correct.
 
 RV: What is not proven?
 
-> ​
+> 
 > _______________________________________________
 > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
 > http://blog.gmane.org/gmane.culture.religion.advaita

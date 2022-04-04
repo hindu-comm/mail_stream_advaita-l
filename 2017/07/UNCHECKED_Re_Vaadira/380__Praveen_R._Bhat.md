@@ -15,11 +15,11 @@ Vadiraja has shown misunderstanding or his skills in misrepresenting and
 using kapaTa by means of presenting filthy examples to dismiss by shock yet
 again!
 
-​That jIva is considered jaDa in EJV the first mistake​, its all downhill
+That jIva is considered jaDa in EJV the first mistake, its all downhill
 from there.
 
-​The "utility of waking people and objects" argument to prove its reality
-is dismissed in Mandukya Karika's vaitathyaprakaraNa​ by saying that there
+The "utility of waking people and objects" argument to prove its reality
+is dismissed in Mandukya Karika's vaitathyaprakaraNa by saying that there
 is vaishamya in dvaitin's comparison in waking vs dream examples.
 
 The argument of using EJV example that show mithyAtva of waking by
@@ -36,7 +36,7 @@ note, interestingly, those Dvaitins who accuse AV to be Vijnanavada could
 themselves fit into Vaibhashikas and Sautrantikas as they too are
 bAhyArthasatyavAdins. :)
 
-​gurupAdukAbhyAa
+gurupAdukAbhyAa
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

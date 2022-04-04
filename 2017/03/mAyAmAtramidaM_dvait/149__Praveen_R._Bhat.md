@@ -13,12 +13,12 @@ Its an interesting explanation nonetheless of Karika 1.17. Looks like
 प्रकर्षेण is elaborated as to what is it. Now, since, they take Karika as
 Shruti, I am just curious as to what they do with 2.17 and 2.18:
 
-​अनिश्चिता यथा रज्जुरन्धकारे विकल्पिता ।
+अनिश्चिता यथा रज्जुरन्धकारे विकल्पिता ।
 सर्पधारादिभिर्भावैस्तद्वदात्मा विकल्पितः ॥ १७ ॥
 
 निश्चितायां यथा रज्ज्वां विकल्पो विनिवर्तते ।
 रज्जुरेवेति चाद्वैतं तद्वदात्मविनिश्चयः ॥ १८ ॥
-​
+
 Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

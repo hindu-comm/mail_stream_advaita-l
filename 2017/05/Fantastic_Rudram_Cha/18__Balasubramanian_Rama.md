@@ -68,7 +68,7 @@ dvnsarma at gmail.com> wrote:
 >> On Mon, May 1, 2017 at 12:06 AM D.V.N.Sarma డి.వి.ఎన్.శర్మ <
 >> dvnsarma at gmail.com> wrote:
 >>
->>> ​There will be slight variations in the pathantarams of different
+>>> There will be slight variations in the pathantarams of different
 >>> regions.
 >>> I think this is the version of Andhra. The very fact so many people are
 >>> reciting it in unison means

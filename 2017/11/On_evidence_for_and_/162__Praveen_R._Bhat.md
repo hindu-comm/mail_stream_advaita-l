@@ -7,7 +7,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Novemb
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-November/047616.html)
 
 Namaste Raghavji,
-​​
+
 
 On Mon, Nov 13, 2017 at 4:56 PM, Raghav Kumar Dwivedula via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
@@ -15,17 +15,17 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > On 13-Nov-2017 4:52 PM, "Raghav Kumar Dwivedula" <raghavkumar00 at gmail.com>
 > wrote:
 >
-> ​
+> 
 > I am also not too sure the time scales are merely an arthavAda for
-> ​ ​
+>  
 > inculcating vairagya. I am trying to take itihAsa (iti ha aasa - thus it
-> ​
+> 
 > happened ) as having atleast some historical basis. Sri Kanchi Periyava for
-> ​
+> 
 > one took them quite literally and seriously.
 
 
-​As ​you and others rightly said that many Vedantins have no interest in
+As you and others rightly said that many Vedantins have no interest in
 yuga dates, etc, which may be taken as mere stories or related to anAtma
 and thereby landing on the moral of the stories instead. However,
 traditionalists such as Kanchi Paramacharya have no pressure to agree to
@@ -51,4 +51,4 @@ opposition from moderners.
 Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
-That owing to which all this is known! [Br.Up. 4.5.15] */​
+That owing to which all this is known! [Br.Up. 4.5.15] */

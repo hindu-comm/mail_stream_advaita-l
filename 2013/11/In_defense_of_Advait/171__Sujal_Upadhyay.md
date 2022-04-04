@@ -34,7 +34,7 @@ On Thu, Nov 21, 2013 at 10:14 PM, Sujal Upadhyay <sujal.u at gmail.com> wrote:
 >
 > P.Y.S. by Swami Prabhavananda of Ramakrishna Ashram, Page 90
 >
-> ​<Content Clipped>​
+> <Content Clipped>
 >
 >
 

@@ -33,7 +33,7 @@ in the shape of Srivatsa, She is the power of Yoga.
 
 
 > There is a mention of the abode of Yoga Shakti to be the
-> दक्षिणवक्षस्थल​ of Bhagavan in the form of "srIvatsa"
+> दक्षिणवक्षस्थल of Bhagavan in the form of "srIvatsa"
 >
 > इच्छाशक्तिस्त्रिविधा प्रलयावस्थायां विश्रमणार्थं भगवतो दक्षिणवक्षःस्थले
 > श्रीवत्साकृतिर्भूत्वा विश्राम्यतीति सा योगशक्तिः

@@ -34,7 +34,7 @@ Swamiji explains in details the innermost secrets of Sapthasathi and it's
 upAsana rahasya.
 
 The e-book can be downloaded from below link.  It is "मधुकैटभ वध एवं
-दुर्गासप्तशती सार​".  Wonderful concepts have been discovered
+दुर्गासप्तशती सार".  Wonderful concepts have been discovered
 
 http://dakshinamurtimathaprakashan.org/Book.aspx
 

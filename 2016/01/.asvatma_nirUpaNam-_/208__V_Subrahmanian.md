@@ -16,14 +16,14 @@ vs
 On Sat, Jan 30, 2016 at 9:05 PM, श्रीमल्ललितालालितः <
 lalitaalaalitah at lalitaalaalitah.com> wrote:
 
-> ​I'll suggest you to shun the idea of Photostat. Go for camera-capture. A
+> I'll suggest you to shun the idea of Photostat. Go for camera-capture. A
 > DSLR will be best option.
 > Keep book flat on surface, in proper lit place. Hold camera parallel to
 > it(do not incline it towards yourself to see it.).
 > Take snaps.
 > Edit.
 > Share
-> Done.​
+> Done.
 >
 >
 >

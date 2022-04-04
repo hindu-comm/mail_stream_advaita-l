@@ -43,7 +43,7 @@ http://jmp.sh/bUxFGEr
 >> to
 >>
 >>
->> ​<content clipped>
+>> <content clipped>
 >>
 >
 

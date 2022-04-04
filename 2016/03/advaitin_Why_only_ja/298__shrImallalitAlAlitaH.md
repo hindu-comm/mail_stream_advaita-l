@@ -13,7 +13,7 @@ wrote:
 > svarUpAdhyAsa from saMsargAdhyAsa.
 
 
-​Don't worry.
+Don't worry.
 I was not being critical.
 I just found that only examples are not enough, so I tried to put them as
 famous definitions.

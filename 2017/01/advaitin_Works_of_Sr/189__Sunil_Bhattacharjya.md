@@ -51,7 +51,7 @@ On Tue, 1/10/17, A K Kaul jyotirved at gmail.com [advaitin] <advaitin at yahoogr
 
        Shri Sunil Bhattacharjyaji,Jai Shri Ram!Many thanks for your response listing my
  "beliefs". It has given me a chance to clarify
- them one by one!​SKB://​I am
+ them one by one!SKB://I am
  enjoying your argumentsAKK:// Glad to note that!SKB://you believe that the the
  Indians did not know about the rashis and that knowledge
  came to India from outside.

@@ -19,7 +19,7 @@ On Sun, Mar 17, 2013 at 11:02 AM, Naresh Cuntoor <nareshpc at gmail.com> wrote:
 
 Here I meant that contradiction between meanings of constituent words
 exist. I don't know what was meant by K Sadananda.
-​​
+
 
 > One could think of other examples like vandhyaaputraH - andha-dRuShTiH
 > (sight of the blind), mUkavachanam (i.e., mUkasya vachanam - speech of a
@@ -37,7 +37,7 @@ But, for those who want to know my point here is it again:
 vandhyAputraH means putrahInAyAH putraH as you tried to point later. But,
 as putrahInA means a woman and putraH means son, so there is no repetition
 either useful or useless. This much regarding difference of visheShya part.
-Talking of visheShNAMshsa, putrahInA means ​​putrAbhAvaH and this is
+Talking of visheShNAMshsa, putrahInA means putrAbhAvaH and this is
 certainly not the meaning of word putraH.
 So, I don't see any repetition.
 However, what you conceive as repetition comes only after we add another
@@ -61,7 +61,7 @@ For a contradiction, you would need a set of statements along the following
 >
 
 There is a contradiction in meanings of constituents of samasta-pada.
-​​
+
 
 > It is tautological to say that "blind people cannot see" or "vandhyaa does
 > not have a putra" or equivalently "son of a vandhyaa does not exist".
@@ -79,14 +79,14 @@ To add, वन्ध्यासुतोऽलीकः sentence is also correc
 repetition, because it is telling that vandhyAsutaH is not pAramArthika,
 vyAvahArika and prAtibhAsika.
 
-​​
+
 
 > Yes, vandhyaaputraH is a word. Surely, it is the same as putrahInAputraH
 > who does not exist because of the first part of the word.
 >
 
 Solved it already.
-​​
+
 
 >  anyone.
 > > It is actually prAtibhAsika.
@@ -96,5 +96,5 @@ Solved it already.
 >
 
 That's not a problem.
-​​
+
 

@@ -101,4 +101,4 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > and there cannot be any real inert entities since consciousness is infinite
 > – prajnaanam brahma.
 >
-> ​<content clpipped>​
+> <content clpipped>

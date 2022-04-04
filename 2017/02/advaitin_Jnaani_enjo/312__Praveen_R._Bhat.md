@@ -6,7 +6,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Februa
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-February/044587.html)
 
-​Namaste Sadaji,
+Namaste Sadaji,
 
 On Wed, Feb 22, 2017 at 12:10 PM, kuntimaddi sadananda
 kuntimaddisada at yahoo.com [advaitin] <advaitin at yahoogroups.com> wrote:
@@ -37,21 +37,21 @@ experience his svarUpAnanda to the fullest, effortlessly being in oneself,
 which is figuratively said as happiness of everyone, since all happiness is
 really brahmAnanda alone.
 
-​
+
 > Now the question is - at the local body level there is suffering too. The
 > above sloka should also involve the sufferings of all the people - sva
 > dehavat.
 >
 > What happens to the sum total of all sufferings?
-> ​​
+> 
 >
 
-​​So too, all the sufferings, whether relating to his body or bodies of all
+So too, all the sufferings, whether relating to his body or bodies of all
 living beings, do not keep the jnAni away from enjoying svarUpAnanda as
 pratibimbAnda, as he just a sAkShi of both bhogya sukha as well as duHkha,
 completely asanghaH.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

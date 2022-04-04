@@ -25,16 +25,16 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >
 > > Great and thanks.
 > >
-> ​Thanks. Also thanks to Subbuji, who suggested that I gather these together
+> Thanks. Also thanks to Subbuji, who suggested that I gather these together
 > in a post.
-> ​
+> 
 >
 > > I remember Goudapada kaarika or somewhere, the opposite is also referred
 > -
 > > snake-rope. where one mistakes it as rope where it is really a snake!
 > >
 >
-> ​The Karikas 2.17 and 2.18 talk of rope seen as snake; the other way around
+> The Karikas 2.17 and 2.18 talk of rope seen as snake; the other way around
 > may be referred somewhere else. I remember Pujya Swami Dayanandaji used to
 > give the example of snake seen as a rope being more dangerous, as a joke
 > though, as one may pick it up! :)

@@ -21,7 +21,7 @@ On Fri, Feb 22, 2013 at 12:18 AM, Ajit Krishnan <ajit.krishnan at gmail.com>wrot
 > verse form, and does little more than give the simple meaning of the names.
 >
 
-​Whatever the importance of this commentary is, is another thing.
+Whatever the importance of this commentary is, is another thing.
 I just found that khadyota was recently, i.e. in 1991, published by prAchya
 prakAshana of vArANasI. All the books published by them are available
 through chaukhambha.

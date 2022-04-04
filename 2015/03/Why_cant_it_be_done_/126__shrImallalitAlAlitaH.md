@@ -16,18 +16,18 @@ On Mon, Mar 30, 2015 at 12:40 PM, Srivathsa Rao <vathsa108 at gmail.com> wrote:
 > want to unite brahmins
 >
 
-​Then don't talk about destroying sects and making a homogenous one.
+Then don't talk about destroying sects and making a homogenous one.
 
-​
+
 
 
 > ....In brahmins there are three sects...smarthas ,madhvas and sri
 > vaishnavas...I want to bring all of them under single platform......
 >
 
-​Really, I'm sorry to see that you could see only this difference in only
+Really, I'm sorry to see that you could see only this difference in only
 brAhmaNa-s.
-​
+
 
 
 >
@@ -36,7 +36,7 @@ brAhmaNa-s.
 >
 
 
-​What type of brAhmaNa-s you mean? Just born as brAhmaNa-s and not studying
+What type of brAhmaNa-s you mean? Just born as brAhmaNa-s and not studying
 veda-s, etc.?
 That's not type of brAhmaNa-s which is base of sanAtana-dharma.
 
@@ -47,7 +47,7 @@ Those who are following veda-s, dharama, etc. well know that they have
 common ground called veda-s. That's enough for them to unite.
 How they explain that same veda, doesn't matter- for all are Astika-s.
 
-​
+
 
 
 >
@@ -55,8 +55,8 @@ How they explain that same veda, doesn't matter- for all are Astika-s.
 > there is need to bring them under single platform..
 >
 
-​Sure, for that just kill their beloved philosophy and thinking power.
-​
+Sure, for that just kill their beloved philosophy and thinking power.
+
 
 
 > As unity among different sects will be always not as good as unity among
@@ -64,10 +64,10 @@ How they explain that same veda, doesn't matter- for all are Astika-s.
 > unity...
 >
 
-​As, homogenous society is constrained, it will be non-creative, stagnant.
+As, homogenous society is constrained, it will be non-creative, stagnant.
 BTW, you can't control other men. Just see how your son doesn't follow your
 every word just because he has power to think, i.e. he is sentient.
-​
+
 
 
 >
@@ -79,9 +79,9 @@ every word just because he has power to think, i.e. he is sentient.
 > brahmin ,it is good let it happen...this type of jealous will die ...if
 > there is single dharma among brahmins
 >
-​
+
 These are not philosophical issues.
-​
+
 
 
 >
@@ -92,7 +92,7 @@ These are not philosophical issues.
 > childish....
 >
 
-​You are talking childish.
+You are talking childish.
 These religions(I don't know how they turned to religion from
 philosophies), look childish to you!!?? Go read even a single treatise of
 their great AchArya-s and learn to appreciate their thinking capability.
@@ -101,7 +101,7 @@ they imagined and refuted.
 These childish talks can come from only that person who, due to lack of
 study and ability of critical analysis, clings to the first thing which
 comes in his hand. This is the case of most neo-vedAntin-s.
-​
+
 
 
 >
@@ -109,36 +109,36 @@ comes in his hand. This is the case of most neo-vedAntin-s.
 > vedas are considered as apourusheya...
 >
 
-​Just talk more and reveal how ignorant are you of shAstra-s and sankR^ita
+Just talk more and reveal how ignorant are you of shAstra-s and sankR^ita
 technical terms!!
-​
+
 
 
 > that is why vedas and its hidden meanings has to be learnt from good
 > lineage of guru paramapara.....
 >
 
-​As if rAmAnuja-s, madhva-s were without any lineage.
+As if rAmAnuja-s, madhva-s were without any lineage.
 What about sha~Nkara in similar view.
-​
+
 
 
 >
 > This athman's concept is beyond this bhudhi as said by upanishads only
 >
 
-​So, even your advaita, which is just play of buddhi, can't grasp AtmA,
+So, even your advaita, which is just play of buddhi, can't grasp AtmA,
 isn't it?
-​
+
 
 
 > ...so ,we have to learn it from a proper guruparampara only not from some
 > intellectual brilliant...
 >
 
-​Now, it is revealing that you and likes hate intellect and hence
+Now, it is revealing that you and likes hate intellect and hence
 philosophical arguments and any logic!!
-​
+
 
 
 > which will be mostly wrong..as we can easily see in dvaita and
@@ -147,28 +147,28 @@ philosophical arguments and any logic!!
 > Shakara's advaita has a lineage from goudapadacharya who was a advaithi,
 >
 
-​What before gauDAchArya?
-​
+What before gauDAchArya?
+
 
 
 > but dvaita was not there before madhva,his teacher achutha preksha was
 > aadvaithi...similarly ramauja's guru was aadvaithi......
 >
 
-​His teacher may be advaitI, but they were intellectuals and hence they
+His teacher may be advaitI, but they were intellectuals and hence they
 came up with new logic. What's problem in it? Why should their be any
 paramparA of logic? Why shouldn't new and right thing be accepted ?
 Don't think like Islamist.
-​
+
 
 
 >
 > Always old is gold.....
 >
 
-​Yes, even if old is rotten!!?? Why not?
+Yes, even if old is rotten!!?? Why not?
 
-​
+
 
 
 >

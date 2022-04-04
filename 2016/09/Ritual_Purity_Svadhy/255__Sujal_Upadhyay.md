@@ -76,6 +76,6 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >>
 >> However my commute to work is a good two hours in total on the train.
 >>
->> ​<content clipped>
+>> <content clipped>
 >>
 >

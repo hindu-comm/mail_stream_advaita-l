@@ -17,7 +17,7 @@ On Fri, Dec 6, 2013 at 8:49 PM, Venkatesh Murthy <vmurthy36 at gmail.com>wrote:
 > against Krishna's teachings in the Gita.
 >
 
-​Actually, the way others are explaining kR^iShna, is not logical. so we
+Actually, the way others are explaining kR^iShna, is not logical. so we
 were explaining other way.
 We support logic more that kR^iShNa !! Illogical kR^iShNa may be useful for
 believers, but for those who have some thinking power can't be influenced
@@ -33,15 +33,15 @@ kAma, etc.
 Whatever kR^iShNa says in 5th chapter are for jIvanmukta.
 
 To know differences of GYAnI and jIvanmukta search archives.
- ​
+ 
 
 
 > In the fifth chapter shlokas below Krishna  has very clearly given the
 > picture of Jivanmukta.
 
-​
+
 Correct, 'of jIvanmukta', not 'of mere GYAnI'.
-​
+
 
 
 > He must have controlled anger and desire. He is
@@ -51,32 +51,32 @@ Correct, 'of jIvanmukta', not 'of mere GYAnI'.
 
 > He goes to Brahma Nirvana.
 
-​
+
 This can not be known by us. So, this is not laxaNa in the manner we know.
-​
+
 
 
 > He becomes
 > liberated.
 
 
-​This applies to GYAnI with rAga, etc. too.
-​
-​Actually, as the jIvanmukta *becomes *liberated is said, so it is clear
+This applies to GYAnI with rAga, etc. too.
+
+Actually, as the jIvanmukta *becomes *liberated is said, so it is clear
 that some type of bondage is also accepted. Now, it is your duty to find
 that.
 
 On the other hand, we accept that GYAnI has no bondage of avidyA and
 janma-maraNa even if he is in body and has rAga, etc.(i.e. bondage of rAga,
 etc.).
-​
+
 
 
 > But members here are saying the Jivanmukta can have desires and
 > anger and greed and other bad qualities.
 
 
-​Baseless accusation.
+Baseless accusation.
 Don't put your misunderstanding on us.
 We just said that GYAnI may have greed, as had yAGYavalkya.
 jIvanmukta-s of non-ultimate level also have rAga, etc.
@@ -132,28 +132,28 @@ destroyed. That is, such a person who is enjoying sukha and duHkha, is
 accepted as GYAnI even when his 'I'm brahman' notion is not present.
 This(GYAna) is not jIvan-mukti-vrata, but the reality.
 
-​
+
 
 
 > We can conveniently say they are
 > all Prarabdha and he can enjoy Jivanmukti.
 
 
-​N​
-​o, GYAnI can't enjoy ultimate-jIvanmukti in presence of an iota of rAga,
+N
+o, GYAnI can't enjoy ultimate-jIvanmukti in presence of an iota of rAga,
 etc. He needs to suppress them.
-​
- ​
+
+ 
 
 > shak{}notiihaiva yaH soDhuM praak{}shariiravimokshaNaat.h .
 > kaamakrodhodbhavaM vegaM sa yuk{}taH sa sukhii naraH .. 5\.23..
 >
 
-​If this control of force of kAma-krodha is ultimate, then no person can
+If this control of force of kAma-krodha is ultimate, then no person can
 become sukhI and yukta, as we have seen even great person committing sins.
 If this is of some lower level, even we are not devoid of that.
 So, the control meant here is in middle somewhere.
-​
+
 
 
 > yo.antaHsukho.antaraaraamastathaantarjyotireva yaH .
@@ -163,7 +163,7 @@ So, the control meant here is in middle somewhere.
 > chhinnadvaidhaa yataatmaanaH sarvabhuutahite rataaH .. 5\.25..
 >
 
-​xINakalmaShAH is said here, not 'naShTa-kalmaShAH'. So, these R^iShi-s
+xINakalmaShAH is said here, not 'naShTa-kalmaShAH'. So, these R^iShi-s
 have kalmaSha, is to be accepted. And if they are jIvanmukta for you, why
 not me and others.
 Now, the thing 'sarvabhUtahite ratAH'. First of all it is not possible.
@@ -173,9 +173,9 @@ Even if it was somehow accepted, is this a rule that jIvanmukta should
 follow ? If yes, then he is not yet free. And, if he is doing because of
 karuNA and love, then he also has rAga, etc. So, why should we consider him
 jIvanmukta ?
-​
 
-​
+
+
 
 
 > sparshaankR^itvaa bahirbaahyaa.nshchakshushchaivaantare bhruvoH .
@@ -185,10 +185,10 @@ jIvanmukta ?
 > vigatech{}chhaabhayakrodho yaH sadaa muk{}ta eva saH .. 5\.28..
 >
 
-​Now, this dispels the  'sahaja-samAdhi-paxa' presented by someone. Here it
+Now, this dispels the  'sahaja-samAdhi-paxa' presented by someone. Here it
 is said that dhyAna is needed.
 Again for you, see that the lack of ichchhA-bhaya-krodha can be supported
 for a specific time(in samAdhi and suShupti) in such GYAnI-yogI. This
 suppression is jIvanmukti and the GYAnI-yogI is another name of jIvanmukta.
-while GYAnI supported by us was not essentially yogI.​
+while GYAnI supported by us was not essentially yogI.
 

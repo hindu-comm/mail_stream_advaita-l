@@ -17,14 +17,14 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Novemb
 >
 >
 >
-> ​T
+> T
 > he discussion is indeed getting  curious.The four verses cited (16 and 18
 > to 20
-> ​
+> 
 > are
-> ​
+> 
 > from BUBV) are the same as the ones
-> ​cited
+> cited
 >  by me !!!! Only I have cited only verses 18 and 19. And I have not cited
 > the commentary of Sri Ananda Giri. But we have arrived at entirely opposite
 > conclusions !!!! I have based my understanding of  the verses on the
@@ -37,9 +37,9 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Novemb
 >
 >
 > I have nothing more to add.
-> ​
+> 
 > I think we just have to agree to disagree
-> .​
+> .
 >
 >
 >

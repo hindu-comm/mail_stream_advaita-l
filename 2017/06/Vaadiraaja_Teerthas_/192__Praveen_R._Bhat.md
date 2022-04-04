@@ -11,7 +11,7 @@ wrote:
 
 > What is anubhava siddha is you as a physical body (upaadi) is limited.
 >>>
->> ​Physical body is seen, but wrongly taking oneself to be the physical
+>> Physical body is seen, but wrongly taking oneself to be the physical
 >> body is naisargika. The physical body not being conscious is also known.
 >> One's being conscious is also known by anubhava.
 >>
@@ -20,7 +20,7 @@ wrote:
 > One being conscious of himself does not establishes existence of a tatva
 > which perists after death. You need gIta/shruti for that.
 >
-True, but I did not talk of anything after death. ​I just said that the
+True, but I did not talk of anything after death. I just said that the
 uttamapuruSha, who is later revealed by Shruti to be Purushottama, is known
 to all. Just as a prince lost in a tribe thinks himself to be a tribal and
 revealed later to be the prince, is known to him. Whether he knew himself
@@ -38,13 +38,13 @@ the wrong locus.
 > siddha.
 >
 As I said do not get into science. One's brain is not anubhavasiddha. :)
-​
+
 
 
 > Without shruti you are not even aware there is such thing as atma/jiva
 >>> which is persist after death of your physical body.
 >>>
->> ​No, Atma is anubhavasiddha, but the wrong understanding is corrected by
+>> No, Atma is anubhavasiddha, but the wrong understanding is corrected by
 >> Shruti. A meditator or a vivekin anywhere around the world can get this
 >> experience of being totally separate from the body, etc, without being told
 >> by Shruti so.
@@ -54,7 +54,7 @@ As I said do not get into science. One's brain is not anubhavasiddha. :)
 > labeling self-awareness as you are expedience is same as 'Atman' as
 > explained in shruti.
 >
-If ​self-awareness known as self-awareness is ​not Atma, then Shruti can
+If self-awareness known as self-awareness is not Atma, then Shruti can
 give nothing other than some parokShajnAna like your brain being talked
 about by science.
 
@@ -70,7 +70,7 @@ Atma since I know not of myself to be sukhasvarUpa, etc. In fact, we say
 that had Atma not been known, there would be no problem and if Atma would
 be fully known, there would be no problem. Only if Atma is known partially,
 meaning incorrectly, is a problem. So we disagree with this interpretation
-given by Madhvacharya and instead say that Atma is known ​but not fully, it
+given by Madhvacharya and instead say that Atma is known but not fully, it
 is known wrongly.
 
 More over, this jIva does undergo change (vIkara) in waking, dream and
@@ -78,12 +78,12 @@ More over, this jIva does undergo change (vIkara) in waking, dream and
 > is in opposition of Upanishad's assertion of avikari nature of aatma. Thus
 > `aatma' means Brahman only.
 >
-​Such thinking that Atma undergoes change itself goes against all Shrutis,
+Such thinking that Atma undergoes change itself goes against all Shrutis,
 eg, nAntaHprajnaH na bahiShprajnaH.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

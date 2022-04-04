@@ -9,7 +9,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-August
 Shri Praveenji,
 >>
 It seems that this could as well apply to prAtibhAsika-sattA, what is the
-definition given of prAtibhAsika-sattA​ to differentiate it? If it be said
+definition given of prAtibhAsika-sattA to differentiate it? If it be said
 that vyAvahArika sublates it, then so does prAtibhAsika sublate
 vyAvahArika. The dream world and waking world, both, sublate each other in
 their own sattAs. This is how Karikakara collapses both as a single sattA.

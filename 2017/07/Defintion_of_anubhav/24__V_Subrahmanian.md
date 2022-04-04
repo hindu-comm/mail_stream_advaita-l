@@ -24,12 +24,12 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 >
 > Thanks. :)
 >
-> ​Although this is used by both पक्षs to either accept or refute अनुभव,
+> Although this is used by both पक्षs to either accept or refute अनुभव,
 > there is some truth to both sides. Those  who refute it do so saying that
 > ब्रह्म is not an object of experience, but Bhashyakara has said that ब्रह्म
 > is not an object of knowledge either, in Kena under प्रतिबोधविधितं मतम् and
 > Taittiriya in ज्ञानलक्षण under सत्यं ज्ञानमनन्तं ब्रह्म। Advaitins who
-> accept so do not take​ ब्रह्म as an object but ब्रह्मज्ञान = ब्रह्मानुभव as
+> accept so do not take ब्रह्म as an object but ब्रह्मज्ञान = ब्रह्मानुभव as
 > an आनन्दवृत्ति। The आनन्द is प्रतिबिम्बित but due to विषयरहितस्वरूप।
 >
 
@@ -56,9 +56,9 @@ subbu
 > is with the word अनुभव। My intention is only to show that the sword cuts
 > both ways. :)
 >
-> ​gurupAdukAbhyAm
+> gurupAdukAbhyAm
 > ,
 > --Praveen R. Bhat
 > /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
-> That owing to which all this is known! [Br.Up. 4.5.15] */​
+> That owing to which all this is known! [Br.Up. 4.5.15] */
 >

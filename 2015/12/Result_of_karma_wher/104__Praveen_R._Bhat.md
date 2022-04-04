@@ -18,9 +18,9 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 >
 >    - All karmas given as vidhis in the Shruti have a result,
 >
-> ​​First you will have to correct your wording, which will come out from
+> First you will have to correct your wording, which will come out from
 > understanding of correct usage. I'll correct the first part of sentence as:
-> All karma-s prescribed by vidhivAkya-s​.
+> All karma-s prescribed by vidhivAkya-s.
 > Why?
 > Because karma is not same as vidhi.
 >
@@ -62,7 +62,7 @@ vidhis.
 That the phala is imagined is something I didn't not know.
 
 
-> ​
+> 
 >
 >>
 >>    -
@@ -85,7 +85,7 @@ imagined elsewhere too, then it would be arthApatti.
 > veda-s, which are in the form of vAkya-s. So, they will make the vidhivAkya
 > complete by anuSha~Nga of fala-vAchaka-pada from elsewhere. They are not
 > going to imagine a result directly. Why ? Because the imagination of
-> artha(result)​ is not going to make the sentence complete. You can complete
+> artha(result) is not going to make the sentence complete. You can complete
 > a sentence with word(shabda), not with artha(result).
 >
 
@@ -118,9 +118,9 @@ Now, I understand the method a little better.
 >>    - If the result is not found to be connected elsewhere, it is
 >>    svargaH, by ekavAkyatA, since it (happiness) is desired by all.
 >>
->> ​I can't understand this sentence.
+>> I can't understand this sentence.
 > I will prefer:
-> If the result (= word reminding result) is not found​ in present
+> If the result (= word reminding result) is not found in present
 > vidhi-vAkya, then it is svarga(the word svarga).
 >
 
@@ -146,7 +146,7 @@ Okay.
 >>    - Although this is discussed in the context of kAmyakarma, the same
 >>    applies to nityanaimittika karma also.
 >>
->> ​Not true from point of view of mImAmsaka-s.
+>> Not true from point of view of mImAmsaka-s.
 > vishvajidadhikaraNa-nyAya applies to kAmya-s.
 >
 
@@ -176,7 +176,7 @@ Okay, so avoiding pApa itself becomes the motivation for nityakarma.
 >> correct) that whether the inference is correct in relation to nityakarma
 >> too.
 >>
-> ​No, since even without imagination of any other result vidhi-vAkya is
+> No, since even without imagination of any other result vidhi-vAkya is
 > enough to generate pravRtti just because the nimitta is available....
 >
 ...
@@ -185,7 +185,7 @@ Okay, so avoiding pApa itself becomes the motivation for nityakarma.
 >
 > And, other cause of not imagining result is that there are vAkya-s (धर्मेण
 > पापमपनुदति) which clearly says that pApa-xaya is result of
-> nitya-naimittika-karma.​
+> nitya-naimittika-karma.
 > We have कर्मणा पितृलोकः shruti too.
 > And, यज्ञेन विविदिषन्ति ।
 > And तपसा कल्मषं हन्ति ।
@@ -197,8 +197,8 @@ Okay, so avoiding pApa itself becomes the motivation for nityakarma.
 >> The next question is what is the Vedanta view w.r.t. this.
 >>
 >
-> ​vedAnta also says same that pApa-xaya, etc. are results of
-> nitya-naimittika-karma.​
+> vedAnta also says same that pApa-xaya, etc. are results of
+> nitya-naimittika-karma.
 > If I find/remember any shruti/nyAya, I'll write it later.
 > Till then this post should not be kept as draft. So, pressing send button
 > now.

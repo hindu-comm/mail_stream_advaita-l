@@ -113,7 +113,7 @@ On Tue, Oct 29, 2013 at 6:07 PM, Nithin Sridhar <sridhar.nithin at gmail.com>wro
 > > > PS: even this forum is helping mumukshus in keep going forward.
 > >
 > >
-> > Maybe Upanishad would mean - to stay connected to Guru via internet ;)​​
+> > Maybe Upanishad would mean - to stay connected to Guru via internet ;)
 > >
 > >
 > > OM

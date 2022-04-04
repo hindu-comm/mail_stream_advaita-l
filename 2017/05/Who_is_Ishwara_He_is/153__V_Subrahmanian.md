@@ -27,21 +27,21 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > in advaita? It beats me how such an Atman, wallowing in ignorance, can be
 > > described as param jyoti.
 > >
-> ​If the Atman is nirguNa nirvishesha, how can he have the attribute of
-> ignorance?​
+> If the Atman is nirguNa nirvishesha, how can he have the attribute of
+> ignorance?
 >
 > Interestingly, Krishna uses the word Ishvara in BG 15.8
-> ​
-> ​
+> 
+> 
 > शरीरं यदवाप्नोति यच्चाप्युत्क्रामतीश्वरः । गृहीत्वैतानि संयाति
 > वायुर्गन्धानिवाशयात् ॥
-> ​​
+> 
 >
 > f
-> ​or​
+> or
 > one who attains another body, having departed from one! I wonder who this
 > Ishvara is for you
-> ​ and why.​
+>  and why.
 >
 >
 > Later in your mails, you go on to assert that you asked a simple question,
@@ -57,7 +57,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > Kind rgds,
 > --Praveen R. Bhat
 > /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
-> That owing to which all this is known! [Br.Up. 4.5.15] */​
+> That owing to which all this is known! [Br.Up. 4.5.15] */
 > _______________________________________________
 > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
 > http://blog.gmane.org/gmane.culture.religion.advaita

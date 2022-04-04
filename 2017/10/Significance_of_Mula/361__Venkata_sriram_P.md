@@ -41,8 +41,8 @@ On Fri, 27/10/17, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
  अत्र
  अभावविलक्षणत्वमात्रं
  विवक्षितम्
- Thanks; ​I think
- this ​was also mentioned by Anandji in one part of Advaita
+ Thanks; I think
+ this was also mentioned by Anandji in one part of Advaita
  Siddhi.
  A scholar while supporting the above view says that if bhAva
  rUpa of ajnAna is accepted as an
@@ -56,7 +56,7 @@ On Fri, 27/10/17, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
  Yes, this is why
  some people take the other extreme of abhAvarUpa.
  Instead,by bhAvarUpa, only mithyAtva is meant, not
- pAramArthikasatyatva.​ In any case, mAyA/ avidyA is
+ pAramArthikasatyatva. In any case, mAyA/ avidyA is
  kAryAnumeyA.
  So, the meaning of 'ajnAna' as 'bhAva-rupa'
  implies acceptance of it's presence just like presence
@@ -64,9 +64,9 @@ On Fri, 27/10/17, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
 
  shasha in chandra.
 
- ​True, that is
+ True, that is
  why instead of asserting bhAvarUpAvidyA, it is said
- yat​kiMchidbhAvarUpAvidyA.
+ yatkiMchidbhAvarUpAvidyA.
  gurupAdukAbhyAm,--Praveen R.
  Bhat
  /*येनेदं
@@ -74,4 +74,4 @@ On Fri, 27/10/17, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
  विजानीयात्।Through what
  should one know That owing to which all this is known!
  [Br.Up. 4.5.15]
- */​
+ */

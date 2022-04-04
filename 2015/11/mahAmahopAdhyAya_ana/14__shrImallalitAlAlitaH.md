@@ -15,8 +15,8 @@ kuntimaddisada at yahoo.com> wrote:
 > English?
 >
 
-​No, I don't have knowledge about translation literature in general.
-​
+No, I don't have knowledge about translation literature in general.
+
 
 
 >
@@ -24,8 +24,8 @@ kuntimaddisada at yahoo.com> wrote:
 > ShatadhuushaNI.
 >
 
-​Yes, he wrote that voluminous work.
-It is available in print.​
+Yes, he wrote that voluminous work.
+It is available in print.
 
 
 >

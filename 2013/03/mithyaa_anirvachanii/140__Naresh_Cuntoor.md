@@ -20,7 +20,7 @@ similarly in equating andha with puruSha without any qualification
 
 
 > either useful or useless. This much regarding difference of visheShya part.
-> Talking of visheShNAMshsa, putrahInA means ​​putrAbhAvaH and this is
+> Talking of visheShNAMshsa, putrahInA means putrAbhAvaH and this is
 > certainly not the meaning of word putraH.
 > So, I don't see any repetition.
 >

@@ -31,4 +31,4 @@ Dakshinamurthy stotra as [यः साक्षात्] कुरुते �
 Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
-That owing to which all this is known! [Br.Up. 4.5.15] */​
+That owing to which all this is known! [Br.Up. 4.5.15] */

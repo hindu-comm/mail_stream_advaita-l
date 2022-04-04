@@ -64,7 +64,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > vartanta'
 > > > means guNa-s act among themselves.
 > > >
-> > > ​Om​
+> > > Om
 > > >
 > > >
 > > > On Fri, Aug 5, 2016 at 8:20 AM, Ravi Kiran via Advaita-l <

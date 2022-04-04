@@ -28,18 +28,18 @@ wrote:
 > format.)
 >
 
-​I'm in India and can read Bengali Script.
+I'm in India and can read Bengali Script.
 I may type the book.
 I've sent my address to Niranjan in a separate mail.
-​
+
 
 
 > It has long been my ambition to publish some of the classics of our
 > shastras and this seems like it could be a good project.
 
 
-​I hope you wish to print the book.
+I hope you wish to print the book.
 BTW, sharing the book through digital edition will be easy and will not
 need investment of money.
-​
+
 

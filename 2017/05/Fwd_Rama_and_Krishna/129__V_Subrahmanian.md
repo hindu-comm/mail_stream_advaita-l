@@ -13,9 +13,9 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >
 >
 >
-> > Vaishnavaites do not believe Shiva can give moksha.​
+> > Vaishnavaites do not believe Shiva can give moksha.
 >
-> ​They are a few steps ahead of dvaitins in this area perhaps, since
+> They are a few steps ahead of dvaitins in this area perhaps, since
 > Purandara Dasa prays to Shiva for a tailadhAravat manas in harI, which is
 > hopefully the means to their mokSha.
 >

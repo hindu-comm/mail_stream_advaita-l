@@ -22,5 +22,5 @@ dvnsarma at gmail.com> wrote:
 > Vedabahyas?
 >
 
-​I also have a question:
-Do we read answers when it reaches inbox?​
+I also have a question:
+Do we read answers when it reaches inbox?

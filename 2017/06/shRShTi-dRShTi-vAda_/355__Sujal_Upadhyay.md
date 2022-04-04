@@ -94,7 +94,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > magical-power. They are projected by that माया, अविद्या of the self; they
 > do not exist in reality, this is the meaning.
 >
-> ​gurupAdukAbhyAm
+> gurupAdukAbhyAm
 > ,
 > --Praveen R. Bhat
 > /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

@@ -6,20 +6,20 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2013-Decemb
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2013-December/035918.html)
 
-​​
-​I forgot to reply this mail.
+
+I forgot to reply this mail.
 After seeing chandramauli's post, I revisited it. Now, I wish to write a
-reply.​
+reply.
 
 On Thu, Dec 5, 2013 at 10:33 AM, <rajaramvenk at gmail.com> wrote:
 
 > What is the sampradaya view on a jnAni (during practice
 
-​
+
 During practice of means of *GYAna*, one can not be called *GYAnI*. So, it
 will be better to change the word to *jiGYAsu *in this case.
 Now, the question will be about *sAmpradAyika *view about dwelling (of
-mind) of *jiGYAsu *on *dharma *and *loka-xema*(*loka-sa~Ngraha*??)​.
+mind) of *jiGYAsu *on *dharma *and *loka-xema*(*loka-sa~Ngraha*??).
 
 *jiGYAsA *is of two types : one which is superficial as is in arts, and
 another which is intense as of a hungered person in food. The second is
@@ -97,7 +97,7 @@ determined first. I'll be waiting for that.
 and after realisation) controlling the mind so that it dwells on the path
 > of dharma and loka kshema?
 
-​
+
 As a *sannyAsI-GYAnI* has followed *dharma *always to generate *jiGYAsA *and
 *GYAna*, hence he continues to follow the same due to *saMskAra*-s -
 is the *sAmpradAyika

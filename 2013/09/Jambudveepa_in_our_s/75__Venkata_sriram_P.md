@@ -9,7 +9,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2013-Septem
 Namaste,
 
 ////
-Therefore they are not there in the Brahmanda​
+Therefore they are not there in the Brahmanda
 //
 
 No. They are verily there in brahmANDa so long as vyavahAra is there.  vishwaM bhUtaM bhuvanaM "chitraM bahudhA jAtaM" is the shruti vAkya.

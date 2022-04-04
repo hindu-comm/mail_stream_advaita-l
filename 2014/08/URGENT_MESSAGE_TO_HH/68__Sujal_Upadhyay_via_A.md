@@ -31,5 +31,5 @@ I got this e-mail from well wishers of Sanatana Dharma.
 > to
 >
 >
-> ​<content clipped>
+> <content clipped>
 >

@@ -6,7 +6,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Decemb
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-December/047910.html)
 
-​​​​
+
 Namaste,
 
 *Similarly satyam jnanam anantam anandam are lakshanas of Brahman. Brahman

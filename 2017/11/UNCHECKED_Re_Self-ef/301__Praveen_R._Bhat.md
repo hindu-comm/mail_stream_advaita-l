@@ -53,7 +53,7 @@ unrighteous action, desiring to lead that person below the mortal worlds",
 "One who controls the self staying inside oneself", and [Shruti] of these
 type.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

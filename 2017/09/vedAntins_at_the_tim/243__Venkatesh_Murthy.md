@@ -57,7 +57,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > wrote:
 >
 > > I don't understand why reply to every syllable.
-> > ​
+> > 
 > > And thereby instead of addressing the point, you digress a lot.
 > >
 > You have got it topsy turvy, since addressing the point is addressing each
@@ -70,22 +70,22 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > This is consistent in all your responses.
 > >
 >
-> ​Talk about the pot calling the kettle black!​ Responding to personal
+> Talk about the pot calling the kettle black! Responding to personal
 > comments can only be with personal comments.
 >
 >
 > > Anyways, I have learnt not to expect anything worthwhile from any kind of
 > > discussion on this forum.
 > >
-> ​​Yea, that seems quite alright: blame the whole forum! In any case, to
-> learn one should ask questions, not make sweeping statements.​
+> Yea, that seems quite alright: blame the whole forum! In any case, to
+> learn one should ask questions, not make sweeping statements.
 >
 >
 > > Goodbye.
 > >
 > I had made a generic address not being interested to discuss with those
 > with whom discussion is not possible, until you made a personal attack to
-> draw my attention. ​Sure, goodbye.
+> draw my attention. Sure, goodbye.
 > _______________________________________________
 > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
 > http://blog.gmane.org/gmane.culture.religion.advaita

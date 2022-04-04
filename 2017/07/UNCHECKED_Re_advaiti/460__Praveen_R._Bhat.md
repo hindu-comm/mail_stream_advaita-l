@@ -30,7 +30,7 @@ wrote:
 >> My understanding is that the microindividual referred to here is  साक्षी
 >> /  प्रत्यगात्मन् (sAkShI / pratyagAtman ),  the Innermost Self. That is
 >> how the microindividual is talked of as the macro/cosmic Ishvara.
->> ​​
+>> 
 >>
 >>
 >>

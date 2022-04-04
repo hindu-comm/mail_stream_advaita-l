@@ -18,7 +18,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > "I know no other path (to Immortality) besides this!"
 >
 
-​I think you meant prathamapurusha not uttamapurusha so: "there exists no
+I think you meant prathamapurusha not uttamapurusha so: "there exists no
 other path to immortality besides this".
 
 Namaste all,
@@ -40,9 +40,9 @@ This helps preserve the chAndasa sandhis well. Moreover, many who learn in
 vedapAThashAlA move out before learning meanings as that is the last taught
 and may take around 15-20 years! And yet, no one doubts that their chanting
 and karmas effectuate proper results.
-​
-​
-​
+
+
+
 Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

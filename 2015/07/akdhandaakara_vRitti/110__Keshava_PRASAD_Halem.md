@@ -8,7 +8,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2015-July/0
 
 namastE.praNaams toश्रीमल्ललितालालितः
 Why an 'object' disappears if-&-when all its adjectives/attributes/viSEShaNas (known/knowable/unknown/unknowable/etc) are removed?Because, an object is nothing but its set-of-adjectives/attributes/viSEShaNas !So then what remains?Not that nothing remains.There does remain some ONE thing - and that is brahma-vastu.The object was never there - it was only a superposition/adhyAsa(?). The process (thought-experiment) of 'removal' of all the adjectives/attributes/viSEShaNas was not really removal.That removal process was a sort of uncovering process; to go beyond all those superpositions and reveal the real brahma-vastu that is the base/adhiShTAna(?) of all seemingly real objects in vyAvahArika world.
-This model (if one wishes to call it so) does not mean that akhanDAkAra[niShprakAraka]vRtti is not possible as you feared!Let me quote your words here -BTW​, if there is no possible akhaNDAkAra-GYAnam in this world(apart from brahmaGYAnam), then the objection of dvaitin-s would be there could be only sakhaNDa-GYAna of brahman, as only such GYAna rises from shabda and hence brahman is saguNa. I hope to avoid this only, we used the soyam, etc.
+This model (if one wishes to call it so) does not mean that akhanDAkAra[niShprakAraka]vRtti is not possible as you feared!Let me quote your words here -BTW, if there is no possible akhaNDAkAra-GYAnam in this world(apart from brahmaGYAnam), then the objection of dvaitin-s would be there could be only sakhaNDa-GYAna of brahman, as only such GYAna rises from shabda and hence brahman is saguNa. I hope to avoid this only, we used the soyam, etc.
 No. that is not so! What i say is this -The only [one singularly unique] "akhanDa-AkAra-vRtti" is "brahma-AkAra-vRtti";The only [one singularly unique] "akhanDa-vastu"     is "brahma-vastu".A/any sakhanDa-AkAra-vRtti cannot reveal the "akhanDa-vastu" that is "brahma-vastu".Sabda as a means of knowledge works - because brahma-vastu is the only [one singularly unique] self-effulgent-one - what Sabda does is - not really revealing - but only removing the pratibandhakas that otherwise (as-though)cover it; like the clearing of clouds leading to revealing the sun that has been always there - that is, the dOShas
 Keshava PRASAD HalemanemOkShakaamaarthadharmahjanmanaa jaayatE jantuḥ | samskaaraat hi bhavEt dvijaḥ || vEda-paaThaat bhavEt vipra | brahma jnaanaat hi braahmaNah || 
 
@@ -46,29 +46,29 @@ On Sun, Jul 5, 2015 at 5:40 PM, Keshava PRASAD Halemane <k_prasad_h at yahoo.co.
 
 A knowledge of the ghaTa arises from the ghaTAkAra-vRtti as usually understood.
 
-​Wrong sentence written because of lack of understanding.
+Wrong sentence written because of lack of understanding.
 vRtti is GYAnam, it doesn't give rise to some other GYAnam.
 To be precise, you may add vRttyupahitachaitanyam is GYAnam.
-​
+
 What will be that knowledge of the same ghaTa arising from an akhanDAkAra-vRtti associated with it?
 
 Wrong sentence as previous one.
 So, it should be 'how do you express ghaTa-viShayaka-akhaNDAkAra-vRtti'?
 The best answer is, it can't be expressed.
 But, if you need to understand anyhow then consider it as GYAna of ghaTa without mentioning ghaTatvam as it's dharma.
-​
+
 Will it be the same knowledge, or different?
 
-​akhaNDAkAravRtti or niShprakAraka-vRtti is different from saprakAraka or sakhaNDa one, otherwise why should we use different words for them.
-​
+akhaNDAkAravRtti or niShprakAraka-vRtti is different from saprakAraka or sakhaNDa one, otherwise why should we use different words for them.
+
 I guess that it will be different because of the fact that the ghaTAkAra-vRtti is different from the akhanDAkAra-vRtti associated with it.If different, how different will be those two from one another?
 
-​The difference will be in the way they reveal ghaTa. One will reveal only ghaTa and other will reveal it with it's quality/ties.
-​
+The difference will be in the way they reveal ghaTa. One will reveal only ghaTa and other will reveal it with it's quality/ties.
+
 "ghaTAkAra-vRtti-janya-jnAna of the ghaTa" -and- "akhanDAkAra-vRtti-janya-jnAna of the ghaTa". 
 
-​First learn to use words correctly.
-I'm saying this because just a few days ago I corrected someone here. I thought he will correct this after learning!!​
+First learn to use words correctly.
+I'm saying this because just a few days ago I corrected someone here. I thought he will correct this after learning!!
 
 
 श्रीमल्ललितालालितः

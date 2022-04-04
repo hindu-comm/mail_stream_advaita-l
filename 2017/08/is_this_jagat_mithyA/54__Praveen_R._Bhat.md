@@ -20,7 +20,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > Swamiji's statement is different from the Sruti mantras?Kindly enlighten me.
 >
 
-​If Swamiji meant that statement as bAdhasAmAnAdhikaraNyam (bAdhyAyAM/
+If Swamiji meant that statement as bAdhasAmAnAdhikaraNyam (bAdhyAyAM/
 bAdhena sAmAdhikaraNyam), then it is the same. If not, its different. And
 since SSS followers themselves seem to have different interpretations,
 there is scope for benefit of doubt. Interestingly, for those who say that
@@ -31,4 +31,4 @@ Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

@@ -56,7 +56,7 @@ long. (Until the hunger of self-ignorance is removed by the food of
 self-knowledge)
 
 Om
-​​
+
 Pranams,
 
 Restrictions apply to yogic kriyA-s. We were advised not to mediitate in

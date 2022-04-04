@@ -30,7 +30,7 @@ taught in SDV/NJV is for the benefit of the jIvas. Here, however, it is
 clear that the सृष्टिकर्ता himself is the फलभोक्ता also, thereby meaning
 EJV.
 
-​I do not know anyone who really teaches DSV in the sampradAya as a main
+I do not know anyone who really teaches DSV in the sampradAya as a main
 prakriyA, at least not publicly, including the first two you have listed.
 Many just mention it in passing. So I wouldn't be surprised if no one talks
 of this stotra as a DSV/EJV. Now, to be sure, do they specifically say that

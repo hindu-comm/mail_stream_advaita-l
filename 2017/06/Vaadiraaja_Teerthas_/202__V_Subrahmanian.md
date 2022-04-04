@@ -34,7 +34,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > Thus
 > > vedas have no further utility *as vedas* to the mukta.
 > >
-> ​
+> 
 > But then this clearly indicated that Gyana is indeed the means to Mukti.
 > Because it is at Mukti that you don't get any new gyana from veda. So till
 > you are at mukti, you get/need to get gyana from veda. So it is indeed the
@@ -61,7 +61,7 @@ if it does not have potness, ceases to be a pot.
 > > brahman remains.
 > >
 >
-> ​bond with the Brahman remains, what is the nature of that bond?
+> bond with the Brahman remains, what is the nature of that bond?
 > When everything else has gone away, what is there between Jeeva and Brahma?
 > Will Jeeva worship Brahma? In what way? Jeeva will bow? "bowing" is not
 > defined since there is no bond with the body! Jeeva will do kainkarya? no,

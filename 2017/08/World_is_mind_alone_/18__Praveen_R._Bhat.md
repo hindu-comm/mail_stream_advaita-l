@@ -17,7 +17,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > my explanation is acceptable.
 >
 
-​Moreover, *only* if the sRShTi is kalpitA, vivarta-upAdAna is possible.​
+Moreover, *only* if the sRShTi is kalpitA, vivarta-upAdAna is possible.
 This is said by Bhagavan Bhashyakara so as सङ्गति to Mandukya Karika 3.23:
 विद्यते सृष्टिप्रतिपादिका श्रुतिः ; सा त्वन्यपरा, ‘उपायः सोऽवतारय’ (मा. का.
 ३-१५) इत्यवोचाम ।
@@ -38,11 +38,11 @@ due the strength of Shruti conforming to non-duality; this is the idea.
 Having raised a doubt so: "due to following mere statements/ illustrative
 statements of *false creation*, how can there be their tenability?",
 [Bhashyakara] says: that Shruti of creation is only committed to something
-else [=NOT committed to creation, but non-duality].​
+else [=NOT committed to creation, but non-duality].
 
 gurupAdukAbhyAm,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
 
-​
+

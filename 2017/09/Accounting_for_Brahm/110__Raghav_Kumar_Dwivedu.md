@@ -27,47 +27,47 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 
 > Namaste Raghavji, Chandramouliji,
 >
-> ​Combining responses to both of your mails ​here (and including another
+> Combining responses to both of your mails here (and including another
 > that just came up).
 >
-> ​
+> 
 > On Sun, Sep 10, 2017 at 5:33 PM, Raghav Kumar Dwivedula via Advaita-l <
 > advaita-l at lists.advaita-vedanta.org> wrote:
-> ​​
+> 
 >
 >
-> > ​
-> > ​
+> > 
+> > 
 > > 1. Is it jahAjahallakShaNa vRtti or is it jahadajahallakShaNa vRtti?
-> > ​ ​
-> > ​
-> > ​
+> >  
+> > 
+> > 
 > > Perhaps both usages are right?
 >
-> ​IMO, only 2nd usage is right. There is no Paninian rule I can see to drop
-> dakAra of first pada jahAd.​
+> IMO, only 2nd usage is right. There is no Paninian rule I can see to drop
+> dakAra of first pada jahAd.
 >
 >
 > (Some years back a swami was given the name mahadAtmAnanda but when a
-> > ​
+> > 
 > > scholar pointed out that it was grammatically incorrect it was corrected
 > to
-> > ​
+> > 
 > > mahAtmAnanda. In other words mahat + AtmA = mahAtmA , not mahadAtmA.
 > Thats
-> > ​
+> > 
 > > why I got the doubt.
-> > ​ ​
+> >  
 > > I have seen swami shuddhabodhanandaji using the term jahAjahallakShaNa
 >
-> ​This is different. If I recall right, being masculine, mahat gets a nakAra
+> This is different. If I recall right, being masculine, mahat gets a nakAra
 > from an Agama, becomes mahant, takes a upadhAdIrghatvam, becomes mahAnt and
 > then t undergoes lopa, and later napopaH prAtipadikAntasya would drop
 > nakAra also, thereby leaving mahA which combines with Atman as mahAtman.
 > This declines as mahAtmA later.
 >
 >
-> > ​
+> > 
 > > You had written that sarvaM brahma implies bAdhAyam sAmAnAdhikaraNyam
 > > between the 2 words.
 > >
@@ -77,14 +77,14 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > But how does this gel with the idea that aikya sAmA..  obtains only in
 > > cases like brAhmaNaH dvijottamaH etc.
 > >
-> ​I don't understand the "only" part and why it doesn't gel.
+> I don't understand the "only" part and why it doesn't gel.
 >
 >
 > > Another  query related to the same issue - I understand samAnAdhikaraNyam
 > > as being a relationship between words. And  on the other hand lakShaNA
 > > vRtti kicks in at the level of sentence analysis and understanding.
 >
-> ​You're right.​
+> You're right.
 >
 >
 >
@@ -92,7 +92,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > assume that the padArtha-s (word meanings)  have to be ascertained first
 > > before deciding whether or not to use lakShaNA .
 > >
-> ​I meant that ahaM in the sentence needs lakShaNA only based on what is the
+> I meant that ahaM in the sentence needs lakShaNA only based on what is the
 > meaning of the word ahaM taken. You may not need lakShaNA at all, which is
 > why I gave all possible options I could.
 >
@@ -109,7 +109,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > being taken as nirguNam brahma. ( DSV?)
 > >
 > As stated earlier many combinations are possible based on what is ahaM and
-> what ​is brahma, jIva and brahma are upahita or not. Finally, the 4th
+> what is brahma, jIva and brahma are upahita or not. Finally, the 4th
 > sAmAnAdhikaraNya rule has to apply, so at whichever side there is upAdhi in
 > the equation, that should be removed by jahatii lakShaNa. If it is on both
 > sides, it should be removed by jahadajahallakShaNA/ bhAgatyAgalakShaNA. I
@@ -120,7 +120,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > brahma shabda being understood as saguNam brahma, to arrive at the same
 > > GYAnam . (SDV ?)
 > >
-> ​If you use bAdhasAmAnAdhikaraNyam, you will remove brahma to yield "aham
+> If you use bAdhasAmAnAdhikaraNyam, you will remove brahma to yield "aham
 > nAsmi, brahmaiva asti", or ahaM to yield "brahma nAsti ahameva asmi", both
 > erroneous.
 >
@@ -153,7 +153,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >
 > gurupAdukAbhyAm,
 > --Praveen R. Bhat
-> ​
+> 
 >
 > /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 > That owing to which all this is known! [Br.Up. 4.5.15] */

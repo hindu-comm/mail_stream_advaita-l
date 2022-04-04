@@ -33,7 +33,7 @@ barren woman doesn't have a son' or repetition of any kind.
 
 The relation of 'son' with the 'woman' which is denoted by word 'of' is
 opposed to barrenness of woman. Hence, there is contradiction.
-​​
+
 
 > > The idea of 'asat' 'objects' was conceived with a view to have examples
 > for
@@ -49,7 +49,7 @@ opposed to barrenness of woman. Hence, there is contradiction.
 
 Why go that much ? Just think of a child not yet born. That is not called
 alIka though.
-​​
+
 
 > (Mad
 > scientists designing a shashaviShaaNa or kUrmaroma,
@@ -62,7 +62,7 @@ include horn. So, as soon as an animal gets horns by experiments will be
 categoriged as something else, but not as rabbit. See name 'liger', which
 denotes an animal developed by crossing of tiger and lion. The change of
 qualities is followed by change of name !!
-​​
+
 
 >  a kavi popularizing
 > megha as gaganakusuma, and so on).
@@ -70,7 +70,7 @@ qualities is followed by change of name !!
 
 Those who say that gaganakusuma is alIka don't mean cloud by it. So, this
 is not going to be considered.
-​​
+
 
 > (b) The proverbial snake which has
 > vyaavahaarika sattva turns out to be asat, and is therefore designated
@@ -95,7 +95,7 @@ vedAntin-s never say that whatever they don't know is mithyA. They consider
 it aGYAta and in cases paroxa.
 
 The anirvachanIyatva or mithyAtva of world means sattvena =
-pAramArthikatvena ​​asattvena = alIkatvena cha nirvachanAbhAvaH. We try to
+pAramArthikatvena asattvena = alIkatvena cha nirvachanAbhAvaH. We try to
 prove the world as pAramArthika or alIka, but fail; so we call it mithyA.
 This is a pAribhAShika word only.
 

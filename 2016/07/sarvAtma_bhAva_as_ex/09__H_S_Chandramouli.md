@@ -34,12 +34,12 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2016-July/0
 >>
 >>
 >>
->> Reg your observation << ​So, if the person was meditating on brahma
+>> Reg your observation << So, if the person was meditating on brahma
 >> before GYAna, he will start to meditate on something else after GYAna!?
 >>
 >> Do you have any clear idea of what you have understood??
 >>
->> ​If yes, please tell that. Such ambiguous claims are not useful. >>,
+>> If yes, please tell that. Such ambiguous claims are not useful. >>,
 >>
 >>
 >>

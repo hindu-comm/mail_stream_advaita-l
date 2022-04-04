@@ -6,14 +6,14 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Octobe
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-October/047170.html)
 
-​namaste,
+namaste,
 
 Kindly, if you have time and inclination, download this (1000 page) book
 for free:
 https://www.himalayanacademy.com/view/dancing-with-siva
 
 thsi is from the Himalayan Academy, a shaiva siddhantha Hindu monastry in
-Hawaii, USA.  The author of the book was Satguru Sivaya Subramuniyaswami​.
+Hawaii, USA.  The author of the book was Satguru Sivaya Subramuniyaswami.
 
 He was from the  shaiva siddhantha sampradaya from Sri Lanka who moved to
 Hawaii.  In this order, monks of all ethnic backgrounds can be ordained and
@@ -30,4 +30,4 @@ philosophical foundations of this order but this book gives a nice,
 comprehensive view of various darshanas associated with worship of Lord
 Shiva (that accept shruthi-pradhaana).
 
-​..gopal gopinath​
+..gopal gopinath

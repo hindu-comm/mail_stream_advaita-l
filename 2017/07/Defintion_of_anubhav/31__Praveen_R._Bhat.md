@@ -16,8 +16,8 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > and anubhava with reference to Brahman:
 >
 
-​Undoubtedly so; thats why I questioned as to why some object to the use of
-the word anubhava based on English translation of it.​
+Undoubtedly so; thats why I questioned as to why some object to the use of
+the word anubhava based on English translation of it.
 
 
 > In the Taittiriya Bhashya, for the term 'jnanam' occurring in the mantra
@@ -39,7 +39,7 @@ since the verb-root has an expectancy of an object! Although Bhashyakara
 doesn't specifically tell the Purvapakshin that he is right, yet the
 agreement is in his statement that it is not really ज्ञप्ति also but
 लक्ष्यार्थ meaning चित् consciousness only.
-​
+
 
 > Br.up:
 >
@@ -49,7 +49,7 @@ agreement is in his statement that it is not really ज्ञप्ति also b
 > परिसमाप्तश्च शास्त्रार्थः ॥
 >
 
-​Thanks, a similar one was quoted by Sreenivasa ji.
+Thanks, a similar one was quoted by Sreenivasa ji.
 
 >
 > And the above can be collapsed into a comment by Shankara to the Mandukya
@@ -58,7 +58,7 @@ agreement is in his statement that it is not really ज्ञप्ति also b
 > सर्वश्चासौ ज्ञश्च सर्वज्ञः, तद्भावः सर्वज्ञता
 >
 
-​True.​
+True.
 
 Having said that, Praveen ji, your profile statement:
 >
@@ -68,14 +68,14 @@ Having said that, Praveen ji, your profile statement:
 > itself is a definition of sorts for 'anubhava'.
 >
 >
-​:) Yes, but I you see why I would have liked a technical one to refute the
-difference between the two words.​
+:) Yes, but I you see why I would have liked a technical one to refute the
+difference between the two words.
 
-​gurupAdukAbhyAm
-​
-​
+gurupAdukAbhyAm
+
+
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

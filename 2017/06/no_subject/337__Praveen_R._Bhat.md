@@ -18,7 +18,7 @@ wrote:
 > did not mention mAyA or avidyA. They are just my question.
 >
 
-​I'm assuming that your reference to what Shastriji says was about the crux
+I'm assuming that your reference to what Shastriji says was about the crux
 of Kena being that chaitanya itself gets the upAdhi name. Even if we take
 it that way, we can't say chaitanya itself gets the name Maya/ avidyA and
 hence such phrases cannot be used for them.
@@ -28,7 +28,7 @@ hence such phrases cannot be used for them.
 >> is the cause of srishti, (cannot give references readily for this), does it
 >> not mean the same way?
 >>
-> In the same way as ​shrotrasya shrotram? I do not think so. You may be
+> In the same way as shrotrasya shrotram? I do not think so. You may be
 able to do so only with the first part of Shastriji's explanation in that "Any
 upAdhi is active due to its association with Chaitanyam alone" but not and
 Chaitanyam gets the name of the upAdhi itself in that context." since
@@ -42,9 +42,9 @@ the cause of the world, it is with chaitanya as adhiShTAna, but when jIva
 is talked of as the cause of the world, it is with mAya/ avidyA as upAdhi;
 the exact other way around, since jIvobrahmaiva nAparaH.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

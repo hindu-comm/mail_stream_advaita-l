@@ -72,7 +72,7 @@ Vidyasankar
 > >> to
 > >>
 > >>
-> >> ​<content clipped>
+> >> <content clipped>
 > >>
 > >
 > 

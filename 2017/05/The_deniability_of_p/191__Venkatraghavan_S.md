@@ -36,6 +36,6 @@ wrote:
 >> Namaste Praveenji,
 >> Certainly. It is based on classes in Tamil conducted Sri Krishnamurthy
 >> Sastrigal, Sri Mani Dravid Sastrigal and Sri Goda Venkateswara Sastrigal.
->> ​​
+>> 
 >>
 >>

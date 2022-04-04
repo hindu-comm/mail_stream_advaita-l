@@ -21,7 +21,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > Shankara has said in the bhashya on the topics Praveen ji has touched upon.
 >
 
-​Thanks to Subbuji for bringing this up. I was not willing to elaborately
+Thanks to Subbuji for bringing this up. I was not willing to elaborately
 detail this out (1) due to lack of time and (2) since my assumption was
 that people who are bringing up other chapters of Brahma sutra bhAShyas, as
 if they know them in and out, surely know tattu samanvayAt very well!

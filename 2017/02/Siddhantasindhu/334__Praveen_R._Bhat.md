@@ -24,7 +24,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >
 > With best regards,
 > Niranjan Saha
-> ​
+> 
 >  SCAN01.pdf
 >
 >

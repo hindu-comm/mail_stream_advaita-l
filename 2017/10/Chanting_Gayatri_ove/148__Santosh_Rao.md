@@ -38,7 +38,7 @@ will
 > is plenty of material available for purchase. we live in material world in
 > material-centered society. Some work needs to be done.
 >
-> ​<content clipped>​
+> <content clipped>
 >
 >
 _______________________________________________

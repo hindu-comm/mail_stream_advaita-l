@@ -14,17 +14,17 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > not the charama knowledge.
 >
 
-​Yes, because charama means last. And, jIvanmukta is actually having
+Yes, because charama means last. And, jIvanmukta is actually having
 visions of dvaita, although as mithyA and he is practicing brahmAbhAyAsa to
 maintain his vRtti brahmAkAra.
-​
+
 
 
 > Then it means he does not have Akhandakara
 > Vrtti?
 >
 
-​He has. Let me copy-paste from previous post if you failed to grasp import
+He has. Let me copy-paste from previous post if you failed to grasp import
 of parts:
 1.
 Now, the akhaNDAkAratva or niShprakAratva of vRttiH.
@@ -41,16 +41,16 @@ synonyms in our system.
 Also, note that such vRtti is not only brahmAkArA. When one replies to
 question 'which is moon' as 'prakRShTaprakAshaH chandraH', the sentence
 generates akhaNDAkAravRtti; because the question was not about quality.
-​
+
 
 
 > How can he say his Ignorance is destroyed?
 >
 
-​Because, he has brahmAkArA vRtti.
+Because, he has brahmAkArA vRtti.
 Although, those who accept jIvanmukti, should accept that jIvanmukta has
-avidyAlesha too. In this sense, his ignoran​
-​ce can be said to exist. But, the avidyA in his case can't cause bondage,
+avidyAlesha too. In this sense, his ignoran
+ce can be said to exist. But, the avidyA in his case can't cause bondage,
 is also accepted. It only causes bhoga of sukha-duHkha.
 If people have patience, let me bring it to their notice that bhoga of
 sukha-duHkha means that they should be visioned as related to 'I',
@@ -62,19 +62,19 @@ enjoined for GYAnI/vidvat-sannyAsI.
 
 So, in a sense he has aGYAna, although non-binding. From some other point
 of view, he is not aGYAnI, because he knows his identity.
-​
+
 
 
 > If some person has
 > Akhandakara Vrtti he will immediately die and get Videha Mukti?
 >
 
-​No. ghaTAkArA akhaNDavRtti can't cause your death, and so brahmAkAravRtti.
+No. ghaTAkArA akhaNDavRtti can't cause your death, and so brahmAkAravRtti.
 
 I can see that you are not entertaining my idea of akhaNDAkAravRtti,
 probably because you didn't read, probably because you couldn't understand.
 So, you are talking as if akhaNDAkAravRtti is a vRtti, mental modification,
-which ones born stays​ for your life-time. Get rid of such ridiculous idea.
+which ones born stays for your life-time. Get rid of such ridiculous idea.
 By the nature, vRtti is dvi-xaNa-sthAyI(or tri). And, it is just because of
 ignorance of meaning of technical terms and neglecting study of other
 shAstra-s that such ignorance becomes rock-hard.

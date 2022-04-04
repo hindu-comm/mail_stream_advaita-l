@@ -26,7 +26,7 @@ www.avast.com
 On Sun, Sep 10, 2017 at 7:53 PM, H S Chandramouli <hschandramouli at gmail.com>
 wrote:
 
-> ​Namaste Praveen Ji,
+> Namaste Praveen Ji,
 >>
 >
 >
@@ -72,7 +72,7 @@ wrote:
 >> This is bAdhAyAM  sAmAnAdhikaraNyaM ( as per Sri SSS ).
 >>
 >>
->> Regards​
+>> Regards
 >>
 >>
 >

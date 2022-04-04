@@ -32,8 +32,8 @@ wrote:
 >> That is the view of Advaitins.  The fall of this jnani's physical body
 >> alone will end the prarabdha bhoga.
 >>
->> ​Yes. Nor am I disputing it. But in my understanding, such "bhoga" in
->> respect of jnanis includes ​"happening" without being "aware" of the same.
+>> Yes. Nor am I disputing it. But in my understanding, such "bhoga" in
+>> respect of jnanis includes "happening" without being "aware" of the same.
 >> Such is the case in respect of Jivanmuktas.
 >>
 >

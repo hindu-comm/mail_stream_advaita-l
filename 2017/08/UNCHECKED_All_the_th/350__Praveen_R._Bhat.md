@@ -17,8 +17,8 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > and punya.
 >
 
-​Could you please quote as to where is this prescribed? If it is indeed
-prescribed, it is not for ​what is committed in dream, but for the saMskAra
+Could you please quote as to where is this prescribed? If it is indeed
+prescribed, it is not for what is committed in dream, but for the saMskAra
 which manifested in the dream. In dream, there is no puNyapApa earned, but
 only spent.
 
@@ -29,4 +29,4 @@ Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

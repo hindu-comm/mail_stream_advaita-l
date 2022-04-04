@@ -53,7 +53,7 @@ family tradition, to put on horizontal mark on their forehead and to wear
 on their neck a necklace prepared from Rudraksha beads shall not give up
 wearing them, even after becoming My followers.*
 
-​*47. All shall realize (know) that Narayan and the Mahesh are one, for as
+*47. All shall realize (know) that Narayan and the Mahesh are one, for as
 Brahman they have been described as one in the Vedas.*
 
 59. Shastras proclaim these Bhaktas as Nirguna (i.e. completely free from

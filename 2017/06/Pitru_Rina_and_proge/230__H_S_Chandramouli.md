@@ -6,8 +6,8 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/0
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/045601.html)
 
-​You could check Mundaka 3-2-9. Not sure if this satisfies your query. It
-does not speak of any specific number of generations.​
+You could check Mundaka 3-2-9. Not sure if this satisfies your query. It
+does not speak of any specific number of generations.
 
 Regards
 

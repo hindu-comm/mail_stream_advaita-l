@@ -6,9 +6,9 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Februa
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-February/044583.html)
 
-​Namaste.
+Namaste.
 
 I dont think we should mixup issues. His view on mUlAvidya has nothing to
-do with his view on jagatmithyAtva.​
+do with his view on jagatmithyAtva.
 
 Regards

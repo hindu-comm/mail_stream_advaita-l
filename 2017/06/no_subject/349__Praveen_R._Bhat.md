@@ -6,12 +6,12 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/0
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/045674.html)
 
-​Namaste Chandramouliji,
+Namaste Chandramouliji,
 
 I'm not disagreeing with you. I just stated my discomfort at taking brahman
 itself is in the form of Maya. I'd expressed it to my Vedanta teachers also
 that for technical reasons, I have discomfort in strictly accepting both:
-i) brahman as the cause ​for Maya and also
+i) brahman as the cause for Maya and also
 ii) Maya as "superimposed" upon Brahman.
 
 I'd drafted a question to the list towards the end of April to that effect,
@@ -30,10 +30,10 @@ fire is the cause of burning others through its burning power, but not the
 cause for its burning-power, brahman is the cause for the world, but not
 the cause for its burning power.
 
-​Thank you.​
+Thank you.
 
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
@@ -91,4 +91,4 @@ On Sun, Jun 25, 2017 at 12:51 PM, H S Chandramouli <hschandramouli at gmail.com
 >
 >
 >
-​
+

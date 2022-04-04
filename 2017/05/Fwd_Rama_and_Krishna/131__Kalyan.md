@@ -8,7 +8,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-May/04
 
 Namaste Sri Praveenji
 
-//Well, thats interesting. You objected to Rama and Krishna being called as a jIva ​by some quotations.//
+//Well, thats interesting. You objected to Rama and Krishna being called as a jIva by some quotations.//
 
 Because the Mahabharata does not give scope for such an interpretation. The central theme of Mbh is that when dharma declines, Ishwara himself descends to earth to restore order. In Mbh, this Ishwara is Krishna. Shankara also gives a similar summary in his intro to gita bhashya.
 
@@ -17,7 +17,7 @@ Because the Mahabharata does not give scope for such an interpretation. The cent
 
 The Mahabharata does not give scope for Shiva is jIva interpretation either. Having said that, Shiva's role in the central story of Mbh is minor.
 
-//​​They are a few
+//They are a few
  steps ahead of dvaitins in this area perhaps, since
  Purandara Dasa prays to Shiva for a tailadhAravat manas in
  harI, which is hopefully the means to their
@@ -53,11 +53,11 @@ On Wed, 5/24/17, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
  Vishnu vs Shiva debate but I am confident of one thing.
  Well, thats
  interesting. You objected to Rama and Krishna being called
- as a jIva ​by some quotations. Unless you agree that Shiva
+ as a jIva by some quotations. Unless you agree that Shiva
  being called as a jIva by anyone is equally objectionable,
  you partially believe in the
  debate.Vaishnavaites do not
- believe Shiva can give moksha.​​They are a few
+ believe Shiva can give moksha.They are a few
  steps ahead of dvaitins in this area perhaps, since
  Purandara Dasa prays to Shiva for a tailadhAravat manas in
  harI, which is hopefully the means to their
@@ -66,8 +66,8 @@ On Wed, 5/24/17, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
  doctrinal reasons alone.
 
 
- ​That very
- doctrine has been proven to be wrong by ​Appayya Dikshita
+ That very
+ doctrine has been proven to be wrong by Appayya Dikshita
  saying that the reasons for which Shiva is set aside as a
  jIva applied to Rama or Krishna also.
  On a related
@@ -75,7 +75,7 @@ On Wed, 5/24/17, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
  Vedantins following, Advaita Vedanta take to a non-Vedanta
  source as having more authority in their
  doctrine.
- ​gurupAdukAbhyAm,
+ gurupAdukAbhyAm,
  --Praveen R.
  Bhat
  /*येनेदं
@@ -83,4 +83,4 @@ On Wed, 5/24/17, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
  विजानीयात्।Through what
  should one know That owing to which all this is known!
  [Br.Up. 4.5.15] */
- ​
+ 

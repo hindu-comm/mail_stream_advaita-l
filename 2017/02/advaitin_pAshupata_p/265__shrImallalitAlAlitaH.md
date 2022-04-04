@@ -15,15 +15,15 @@ dvnsarma at gmail.com> wrote:
 >
 > There are two types of people : vedAdhikArI and others.
 > Now, if the quoted purANa says that they are for delusion of some
-> ​(​
+> (
 > to take them to a-vaidika-mArga
-> ​)​
+> )
 > , then it is obvious that it is talking about vedAdhikArI-s and not others.
 > This tantra-nindA is only for vedAdhikArI-s, so that they don't go on that
 > path.
 >
 
-​I accept that the sentences were not well formed. I'm sorry.
+I accept that the sentences were not well formed. I'm sorry.
 Please, read the quoted text now. It may reveal it's meaning now.
 
 
@@ -35,15 +35,15 @@ Please, read the quoted text now. It may reveal it's meaning now.
 > Tantras are created for the protection and delusion of Vedabahyas.
 >
 
-​(Your?) translation is wrong.
+(Your?) translation is wrong.
 Read it as - Tantra-s are for protection of veda-bAhya-s and for delusion
 of pApI-s.
-​
+
 
 > What is the delusion that tantras are supposed to be causing to the
 > Vedabahyas?
 >
 
-​Wrong question based on wrong understanding which comes from wrong
+Wrong question based on wrong understanding which comes from wrong
 translation.
-​
+

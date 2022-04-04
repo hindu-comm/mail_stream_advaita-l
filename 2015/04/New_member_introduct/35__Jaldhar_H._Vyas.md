@@ -8,7 +8,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2015-April/
 
 On Mon, 6 Apr 2015, Sivakumar,Kollam wrote:
 
-> We have to be many times​ careful as the christian Church has proclaimed
+> We have to be many times careful as the christian Church has proclaimed
 > till
 > 2020 the period to Christianize India!
 >

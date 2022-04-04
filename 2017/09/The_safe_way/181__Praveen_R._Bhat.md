@@ -37,7 +37,7 @@ interest is in mokSha and I'm not a fool to think that neither Bhamatikara
 nor Vivaranakara were muktas and further think that somehow I will get
 mukti!
 
-​Best wishes on your pursuit any which way you desire to further.
+Best wishes on your pursuit any which way you desire to further.
 
-asmadAchAryaparyantebhyaH gurupAdukebhyaH​,
+asmadAchAryaparyantebhyaH gurupAdukebhyaH,
 --praveen

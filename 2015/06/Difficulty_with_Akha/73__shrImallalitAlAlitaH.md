@@ -19,7 +19,7 @@ On Thu, Jun 18, 2015 at 9:38 AM, Bhaskar YR <bhaskar.yr at in.abb.com> wrote:
 > clarification.
 
 
-​
+
 
 I'll not like to say anything about your use of those words of
 different/one type of knowlede.
@@ -34,7 +34,7 @@ So, the samyag-gyAna is vRttyupahita-chaitanyam. vRttiH again should be
 brahmAkArA, otherwise it can't dispel aGYAnam of brahman. This is seen in
 case of ghaTa-GYAnam and ghaTAgyAnam.
 The akAraH of vRttiH is defined as the yogyatA(capacity/ability?) of
-vRttiH, either paroxa or aparoxa, to ​dispel the aGYAna(which obstruct the
+vRttiH, either paroxa or aparoxa, to dispel the aGYAna(which obstruct the
 vyavahAra of pot, etc. as existing, shining, etc.);
 or, it is the तत्सन्निकृष्टकरणजन्यत्वं (don't know enough English to
 translate, sorry!) present in vRttiH.
@@ -61,7 +61,7 @@ way for prArabdha, i.e. if you accept jIvanmukti; then the knowledge of
 brahman present in jIvanmukta is not charama. charama means final, after
 which there is no appearance if duality, not even as mithyA or one with you.
 
-​You may not find this term in bhAShyam. It may have surfaced after facing
+You may not find this term in bhAShyam. It may have surfaced after facing
 objections from others/or vedAntins themselves.
 It is not essential that bhAShyam could always be supported by repeating
 terms used by bhAShyakAra only.
@@ -69,7 +69,7 @@ terms used by bhAShyakAra only.
 B: how 'akhanda' can have the 'AkAra' that too with 'vrutti' rUpa??  Or is
 it symbolically used to denote the sama darshana of the samyak jnAni??
 
-L: akhaNDa is not brahman here ​as you appear to imply. akhaNDAkAra of
+L: akhaNDa is not brahman here as you appear to imply. akhaNDAkAra of
 vRtti means that it doesn't illuminate any adjective or relation. It just
 dispels ignorance of / illuminates one thing, either brahman or pot without
 revealing it's qualties and relations.

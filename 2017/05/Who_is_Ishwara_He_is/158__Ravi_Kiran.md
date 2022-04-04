@@ -29,8 +29,8 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > be
 > > > described as param jyoti.
 > > >
-> > ​If the Atman is nirguNa nirvishesha, how can he have the attribute of
-> > ignorance?​
+> > If the Atman is nirguNa nirvishesha, how can he have the attribute of
+> > ignorance?
 > >
 >
 >

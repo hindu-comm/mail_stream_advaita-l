@@ -29,19 +29,19 @@ experience of the happening) the prarabdha karma phala while it occurs, is
 it
 due to the continuous atmaikatva jnAna vRtti's taking place ( based on his
 will ) without mind entering into nirvikalpa samAdhi state ?
-​ >>,
+ >>,
 
-Yes. But why use two terms " ​
+Yes. But why use two terms " 
 continuous atmaikatva jnAna vRtti's taking place
-​ " ​
-​ and  ​"
+ " 
+ and  "
 without mind entering into nirvikalpa samAdhi state
-​ ". Just the first will do. I normally avoid using the term ​"
+ ". Just the first will do. I normally avoid using the term "
 nirvikalpa samAdhi
-​ " since it is too easily confused with the yogic state bearing the same
-name. ​
+ " since it is too easily confused with the yogic state bearing the same
+name. 
 
-​Regards​
+Regards
 
 
 

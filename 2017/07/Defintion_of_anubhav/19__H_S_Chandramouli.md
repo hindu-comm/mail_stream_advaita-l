@@ -11,7 +11,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 >
 >
 >
-> Reg  << ​I do not have the book with me readily, but that चकार tells me
+> Reg  << I do not have the book with me readily, but that चकार tells me
 > that its not a definition. Its also not a definition due to the reason
 > mentioned in my first post that only suffixes used are different between
 > अनुभव and अनुभूति, so its like a dictionary meaning. The qualifiers used

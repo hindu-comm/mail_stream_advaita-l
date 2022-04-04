@@ -23,7 +23,7 @@ to acquire siddhis.
 पुनस्त्व-न्निर्बन्धा दखिल-पुरुषार्थैक घटना-
 स्वतन्त्रं ते तन्त्रं क्षितितल मवातीतर-दिदम् ॥ 31 ॥
 
-However, as you observed, when the objective is उद्धरण​ of those outside the vedic-fold,
+However, as you observed, when the objective is उद्धरण of those outside the vedic-fold,
 a more respected explanation needs to be provided which has already been done by 
 Subbu-ji.  
 

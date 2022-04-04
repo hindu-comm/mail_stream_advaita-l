@@ -37,6 +37,6 @@ wrote:
 > shAstras in this life, then पारिशेष्यात् he must have studied in the
 > earlier life/ lives.
 >
-​That appears good.
+That appears good.
 The problem regarding ramaNa's case is already mentioned by you. So, I
-don't need to comment any more.​
+don't need to comment any more.

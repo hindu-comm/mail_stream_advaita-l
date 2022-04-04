@@ -13,7 +13,7 @@ and asking us to give more credence to the maharshi vAkya as against shAstra??
 
 //
 
-My is opinion is that of Bhavabhuti's statement vide उत्तररामचरित​ as:
+My is opinion is that of Bhavabhuti's statement vide उत्तररामचरित as:
 
 लौकिकानां हि साधूनां अर्थं वाक् अनुवर्तते ।
 ऋषीणां पुनराद्यानां वाचं अर्थोऽनुधावती ॥

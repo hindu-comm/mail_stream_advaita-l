@@ -10,7 +10,7 @@ On Thu, Jun 22, 2017 at 2:58 PM, Praveen R. Bhat via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 
 > Namaste Venkateshji,
-> ​
+> 
 > On Thu, Jun 22, 2017 at 1:58 PM, Venkatesh Murthy via Advaita-l <
 > advaita-l at lists.advaita-vedanta.org> wrote:
 > >
@@ -33,7 +33,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > Dvaitis want to see Abheda.
 > >
 >
-> ​That is not true. We say that the Shruti has एक​वाक्यता in that all the
+> That is not true. We say that the Shruti has एकवाक्यता in that all the
 > sentences of the Shruti have commitment in revealing oneness. Some
 > directly, being महावाक्यs and some indirectly, क्रमेण, being अवान्तरवाक्यs.
 > So this understanding/ argument of Vadiraja is also incorrect.
@@ -92,4 +92,4 @@ karma and jnana kānḍa-s.
 vs
 
 
- ​
+ 

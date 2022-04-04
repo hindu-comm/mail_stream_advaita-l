@@ -15,7 +15,7 @@ http://ennapadambhagavati.blogspot.in/2010/02/sanskrit-scholar-par-excellence-29
 <http://www.lalitaalaalitah.com>
 
 On Tue, Nov 3, 2015 at 11:58 AM, श्रीमल्ललितालालितः
-​ ​
+ 
 wrote:
 
 > I found this write up about mahAmahopAdhyAya anantakR^iShNa shAstrI (

@@ -17,8 +17,8 @@ On Sun, Jul 5, 2015 at 6:32 PM, Sanju Nath <sanjivendra at gmail.com> wrote:
 > have made more sense than the answers given.
 
 
-​You better write to me only, then I will try to understand you and then
-tell what I know.​
+You better write to me only, then I will try to understand you and then
+tell what I know.
 
 
 

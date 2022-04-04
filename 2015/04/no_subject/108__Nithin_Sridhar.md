@@ -19,7 +19,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > The following is the information about the Summer School - 2015. There
 > will be the textual study of the Vakyapadiyam along with lectures other
 > aspects of the Indian Philosophical traditions pertaining to the topic of
-> The Word and The World.​
+> The Word and The World.
 >
 > Chinmaya International Foundation (CIF) in Kerala and Manipal University
 > (MU) are jointly organizing a two-week international Summer School this

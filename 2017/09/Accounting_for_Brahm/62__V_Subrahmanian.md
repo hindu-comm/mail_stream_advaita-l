@@ -23,7 +23,7 @@ let
 > he is still Brahman only.
 >
 
-​Thanks for highlighting an important point​. This is unfortunately lost on
+Thanks for highlighting an important point. This is unfortunately lost on
 many who take the literal interpretation of sarvaM brahma; that is without
 bAdhasAmAnAdhikaraNyam!
 

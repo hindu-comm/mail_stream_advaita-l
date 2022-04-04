@@ -26,7 +26,7 @@ consistently, revisit SDV approach, thereby thinking of your subjectivity
 of not understanding DSV and kindly do not present it as an objective
 conclusion. :) Thank you and best wishes.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

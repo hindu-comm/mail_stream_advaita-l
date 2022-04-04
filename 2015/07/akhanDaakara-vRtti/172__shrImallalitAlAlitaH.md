@@ -13,7 +13,7 @@ k_prasad_h at yahoo.co.in> wrote:
 > argument.
 >
 
-​You are talking as if arguments are without any aim or are themselves
+You are talking as if arguments are without any aim or are themselves
 impotent.
 That's not the case.
 This is same as if one was engaged in argument whole life to prove his
@@ -23,7 +23,7 @@ I've seen many people like that.
 I think you wasted too much of my time.
 
 Anyway, those who are of such exalted mental state, should not engage in
-arguments and definitely not question anything.​
+arguments and definitely not question anything.
 
 
 

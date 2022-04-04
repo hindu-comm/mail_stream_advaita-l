@@ -22,14 +22,14 @@ wrote:
 > No No. I have not considered three sattAs for any of the two versions of
 > DSV you have listed.
 >
-​Okay... however...
+Okay... however...
 
 I have no doubt pointed out, in this thread itself, that three sattAs are
 > being admitted by Sri MS during the course of his arguments, which has been
 > refuted  by Sri Anand Ji. I have left it at that.
 >
-​... this gave my earlier impression. For what its worth, I didn't see MS
-admitting three sattAs.​ I'm not sure how you landed that conclusion.
+... this gave my earlier impression. For what its worth, I didn't see MS
+admitting three sattAs. I'm not sure how you landed that conclusion.
 
 
 > I am not even sure which of the above two DSV versions Sri MS is
@@ -46,7 +46,7 @@ need additional tools. There is more lAghavam (Occam's razor) there.
 > creation, other than seeing itself, which is the second sattA? Is seeing
 > itself considered as the second sattA and called prAtibhAsika?
 >
-​Yes, just as dream in SDV. sattA just means a reality, whether satyasya
+Yes, just as dream in SDV. sattA just means a reality, whether satyasya
 satya pAramArthika or apparent reality prAtibhAsika. However, you are
 moving a little ahead of DSV, which is truly the goal. Its good thinking
 that if dRShTi alone is sRShTi, then where is the sRShTi?! That lands one

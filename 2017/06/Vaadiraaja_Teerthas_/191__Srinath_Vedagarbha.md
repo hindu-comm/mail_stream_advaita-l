@@ -13,7 +13,7 @@ wrote:
 >>
 >> What is anubhava siddha is you as a physical body (upaadi) is limited.
 >>
-> ​Physical body is seen, but wrongly taking oneself to be the physical body
+> Physical body is seen, but wrongly taking oneself to be the physical body
 > is naisargika. The physical body not being conscious is also known. One's
 > being conscious is also known by anubhava.
 >
@@ -35,7 +35,7 @@ siddha.
 >> Without shruti you are not even aware there is such thing as atma/jiva
 >> which is persist after death of your physical body.
 >>
-> ​No, Atma is anubhavasiddha, but the wrong understanding is corrected by
+> No, Atma is anubhavasiddha, but the wrong understanding is corrected by
 > Shruti. A meditator or a vivekin anywhere around the world can get this
 > experience of being totally separate from the body, etc, without being told
 > by Shruti so.

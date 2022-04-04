@@ -15,7 +15,7 @@ Nice Sujal-ji.  I was expecting this ...
 Mahasannidhanam never ever trespasses the dharma...never in dream then what to speak of in 
 waking state...
 
-The yati who holds the दण्ड​ has to stick to satya & dharma 
+The yati who holds the दण्ड has to stick to satya & dharma 
 
 यति दण्डमहिमा says:
 

@@ -13,7 +13,7 @@ dvnsarma at gmail.com> wrote:
 > protect vedabahyas and not to delude them.
 
 
-​This is correct.​
+This is correct.
 
 
 

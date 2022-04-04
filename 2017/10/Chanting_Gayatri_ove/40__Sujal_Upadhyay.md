@@ -34,7 +34,7 @@ Sringeri Swamigal's July 14th Anugraha Bhashanam Part 1
 https://youtu.be/IbytUkpNCmI
 
 Sringeri Swamigal's July 14th Anugraha Bhashanam Part
-​2​
+2
 
 https://youtu.be/RGUzVwheChA
 

@@ -21,7 +21,7 @@ On Wed, Dec 4, 2013 at 12:32 PM, <rajaramvenk at gmail.com> wrote:
 > to a new body to enjoy that?
 
 
-​Are mere desires root cause of rebirth ?
+Are mere desires root cause of rebirth ?
 Definitely no. There is no proof for that. avidyA is the root cause.
 Although, specific karma can hold body even if there is no avidyA, but they
 can't generate body on their own.

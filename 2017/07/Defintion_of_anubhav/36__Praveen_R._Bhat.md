@@ -8,7 +8,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 
 Namaste Sriramji,
 
-​
+
 On Tue, Jul 4, 2017 at 6:30 PM, Venkata sriram P via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 
@@ -23,15 +23,15 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > ....
 >
 >
-​That's a very interesting approach to defining अनुभूति with negation​s and
+That's a very interesting approach to defining अनुभूति with negations and
 using the पारिशेष्य न्याय to land on आत्मा itself as अनुभूति ! Thanks for
 the reference along with the book.
 
-​
-​
+
+
 Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
 
-​
+

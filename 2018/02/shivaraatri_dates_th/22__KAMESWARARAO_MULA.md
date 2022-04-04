@@ -15,7 +15,7 @@ regardsKameswara Rao
     On Thursday, 1 February 2018 12:12 PM, Rajesh Benjwal <rbenjwal at gmail.com> wrote:
 
 
- ​​​​Namaste,
+ Namaste,
 There is no such strict single rule that "Shivaratri tidhi come on Tryodashi along with chaturdasi." Narad Samhita says "अर्धरात्रियुता यत्र माघकृष्णचतुर्दशी । शिवरात्रिवतं तत्र सोऽश्वमेधफलं लभेत्।।" So it is midnight of MaghaKrishnaChaturdashias perNarad Samhita.ईशान संहितायाम्, "माघकृष्णचतुर्दश्यामादिदेवो महानिशि । शिवलिङ्गतयोद्भूत: कोटिसूर्यसमप्रभ:।। तत्कालव्यापिनि ग्राह्या शिवरात्रिव्रते तिथि:।" As per Ishana Samhita there should be Chaturdashiduring midnight. In Niranaya Sindhuit is mentioned that Chaturdashi should be pradoshavyapini and ardharatrivyapini and it should be reached the first ghati of the third praharafromardharatri.
 If it is trayodashi and before 4 ghati of sunset we get Chaturdashi then that is also recommended.
 So I think there are many more variables than only saying that"Shivaratritidhicome on Tryodashi along withchaturdasi."

@@ -28,7 +28,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > brahmAsmi) are not just the individual understanding of members, but
 > > statements by Swami Sureshvaracharya (Naishkarmya Siddhi), Swami Vasudeva
 > > Brahmendra Saraswati (Vichara Sagara
-> > ​)
+> > )
 > >  etc.
 > >
 > >

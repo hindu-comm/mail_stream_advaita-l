@@ -6,9 +6,9 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-May/04
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-May/045222.html)
 
-Namaste Venkatraghavanji. ​
+Namaste Venkatraghavanji. 
 
-Of course not, ​but I was thinking I would miss Mani Dravid Shastriji's
+Of course not, but I was thinking I would miss Mani Dravid Shastriji's
 presentation. Thats all. :)
 
 Thanks for links. However, if possible, I plan to study an intermediate

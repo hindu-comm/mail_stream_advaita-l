@@ -118,7 +118,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > effort involved. However, it is prAptasya prAptiH, gaining of the already
 > > gained, what you already are. Since there is no choice in knowing
 > something
-> > as is, one can't say that ​there is a process of choosing to become. Yet
+> > as is, one can't say that there is a process of choosing to become. Yet
 > > knowledge takes effort in terms of removing misunderstandings. So
 > > realisation is a process of removing the misconceptions of taking oneself
 > > as something one is not, including the thinking that one will become
@@ -129,7 +129,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > absolutes
 > > > would be a contradiction?
 > > >
-> > ​Yes, it verily means that.​ This absolute is not like my saying that "O,
+> > Yes, it verily means that. This absolute is not like my saying that "O,
 > > my friend is absolutely good", the absolute good there being relative/
 > > subjective. This absolute is the real sense of the word absolute. There
 > > cannot be anything outside of it.
@@ -138,11 +138,11 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > > can be only one absolute? How do we arrive at the conclusion that an
 > > > infinite set of finites spread across space cannot be divided?
 > > >
-> > ​No, appearances do not contradict the one. A rope can be seen as a
+> > No, appearances do not contradict the one. A rope can be seen as a
 > snake,
 > > a split in the [path, a stream of water and so on, but the rope always
 > > remains one even when perceived as many.
-> > ​​
+> > 
 > >
 > > > Putmān retas siñcati yoṣitāyām bahvīḥ prajāḥ puruṣāt samprasūtāḥ: In
 > this
@@ -174,14 +174,14 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > will
 > > not be absolute, as explained earlier.
 > >
-> > ​gurupAdukAbhyAm,
-> > ​
-> > ​
+> > gurupAdukAbhyAm,
+> > 
+> > 
 > > --Praveen R. Bhat
 > >  /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one
 > know
-> > ​ ​
-> > That owing to which all this is known! [Br.Up. 4.5.15] */​
+> >  
+> > That owing to which all this is known! [Br.Up. 4.5.15] */
 > > _______________________________________________
 > > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
 > > http://blog.gmane.org/gmane.culture.religion.advaita

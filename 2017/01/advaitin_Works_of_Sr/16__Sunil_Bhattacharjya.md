@@ -87,8 +87,8 @@ On Wed, 1/4/17, A K Kaul jyotirved at gmail.com [advaitin] <advaitin at yahoogro
  with comments like, "But if any one before Sri
  Ramanujacharya wrote the advaitic bhashya on the
  Bhagavadgita, thenthequestion as to why the 45 verses
- were omitted still​
- stands​​"​!They
+ were omitted still
+ stands"!They
  were "omitted" for the simple reason that the real
  Gita of the Mahabhaata has only 700
  shlokas!

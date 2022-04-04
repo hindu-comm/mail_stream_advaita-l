@@ -12,7 +12,7 @@ sunil_bhattacharjya at yahoo.com [advaitin] <advaitin at yahoogroups.com> wrote:
 > ShankarAcharyanavAvatara
 
 
-​Such word comes in commentary of dashashlokI called siddhAntabinduH. ​The
+Such word comes in commentary of dashashlokI called siddhAntabinduH. The
 sub commentary by gauDa brahmAnanda clearly says that it stands for shiva
 of whose shankarAchArya is new avatAra.
 I think people need to read some Sanskrit Grammar, if not that at least

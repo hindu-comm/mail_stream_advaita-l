@@ -6,7 +6,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2014-March/
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2014-March/036716.html)
 
-​​
+
 On Sun, Mar 2, 2014 at 11:40 PM, V Subrahmanian <v.subrahmanian at gmail.com>wrote:
 
 > In the first volume of the book 'srIdakShiNAmUrtistotram' the topic of
@@ -19,7 +19,7 @@ I just turned pages and found that he has tried to collect all views which
 can arise according to vedAntin-s.
 Views of *shrI-madhusUdana *and *sUta-saMhitA*, both are collected by the
 author.
-​
+
 
 
 >  kAla is मायात्मसंबन्धः that is, when there comes about a 'connection'
@@ -33,7 +33,7 @@ author.
 > ।...मायावदनादिरप्यसौ तदधीननिरूपणतया...
 >
 
-​As you provided some new resource, I checked *sUTa-saMhitA*. The
+As you provided some new resource, I checked *sUTa-saMhitA*. The
 commentary of 1.2.22 mentions :
 द्विविधो हि कालः परमः अपरमः च इति । शिवमायासम्बन्धरूपः परम इति वक्ष्यति हि
 उत्तरखण्डे -

@@ -21,12 +21,12 @@ speaker intended and hence can be wrong but how is it possible to have no
 understanding?
 
 > > > RV: I'm explaining two cases where a pot is eternal.
-​
+
 There can be no eternal pot.
 RV: Why? If the word pot is eternal, then the object indicated by it must
-also be eternal. ​
+also be eternal. 
 
-​See here, the 'is called a pot' portion can be directed to the subject
+See here, the 'is called a pot' portion can be directed to the subject
 'collection of objects' in your sentence. Now, how could a collection of
 objects, which are definitely not pot(otherwise you would have mentioned
 it), which shares certain characteristics(of whom ? pot or plant ?) be

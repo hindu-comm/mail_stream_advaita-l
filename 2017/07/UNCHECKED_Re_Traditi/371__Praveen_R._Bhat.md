@@ -8,7 +8,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 
 Namaste Subbuji,
 
-​Thanks for more references.
+Thanks for more references.
 
 I forgot to add one of the best works on DSV, which is the only other (than
 Yoga Vasishtha) work recommended by Ramana Maharshi: Tripurarahasya.
@@ -17,7 +17,7 @@ Of course, I also forgot to list Yoga Vasishtha itself!
 
 And Ashtavakra Gita can also be added to this list.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

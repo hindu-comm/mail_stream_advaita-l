@@ -10,16 +10,16 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2016-March/
 praNAms
 Hare Krishna
 
-​True svarUpa of Gold? Really?
+True svarUpa of Gold? Really?
 Do you want to say 'of ornament'?
 
 
 Ø     No, I mean ‘ornament’ only.  Thanks for the correction.
-​
+
 
 the socalled nAma rUpa is nothing but gold only i.e. satyameva.
 
-​Really.
+Really.
 I've not seen such  an expression from any serious student.
 
 
@@ -30,14 +30,14 @@ Are you really studying vedAnta for a few years?
 
 Ø     I don’t think this question is appropriate in the context of this discussion.  But, since you asked, yes, I am a student of vedAnta for the past few years, but not a fully devoted student / sAdhaka-s like your goodself and others.
 
-Who in this world says that nAma-rUpa (of ornament)​
+Who in this world says that nAma-rUpa (of ornament)
 
-​is one with gold?
+is one with gold?
 
 
 Ø    Nobody saying nAma & rUpa is one with gold but what we are saying is nAma rUpa (ornaments) donot exist apart from its kAraNa (gold).  Though we speak of the kArya-kAraNa ananyatvaM, it only means that the kArya is only a form of the cause (kAryaM is the ‘vishesha’ darshanaM of kAraNa clarifies shankara, but it’s opposite view does not apply.  i.e. the cause is not a form of the effect.  Again, kindly note I am not saying this, shankara clarifies this in sUtra bhAshya.
 
-​
+
 Shankara talks about 'bheda buddhi nivrutti' NOT bhedAkAra nivrutti.
 
 Really, so satchidAnandenra jI support this view? At least have a look at his works. He puts things very clearly.
@@ -52,21 +52,21 @@ As you are making proclamations, there is no need to put proof for supporting my
 Ø     I am sorry prabhuji, that might be your understanding.  I am not questioning it.  But as per my understanding a professional jeweler would look at ornaments from the gold point of view only.  nAma rUpa like ring, bracelet etc. hardly a matter of confusion to him as he is looking at the ‘gold’.
 
 I don't think you care about advaita-system.
-​
+
 
 Ø   Pardon me prabhuji, I am not responsible for your opinion.  You are welcome to have your own opinion on me prabhuji ☺
 
 Hence it has been clarified that the 'jagat' will not be vanquished by attaining the brahmavidyA.
 
-​Sure! That's why you need to read first adhikaraNam of brahmasUtra, if you could get the correct meaning without superimposing your pet theories on them.
+Sure! That's why you need to read first adhikaraNam of brahmasUtra, if you could get the correct meaning without superimposing your pet theories on them.
 
 
 Ø     Thanks for your suggestion prabhuji.
-​
+
 
 But the assumptions (like it is asarvaM, paricchinnaM, independent from its svarUpa etc.)  about jagat conceived by the one who endowed with avidyA are gone!!??  For that matter brahma vidyA svarUpa jnana does not create anything new nor destroy a thing in front.  It (jnana) can reveal the 'truth' behind jagat which is nothing but brahman.
 
-​Enough. I can't bear any more.
+Enough. I can't bear any more.
 
 
 Ø     Sorry if I troubled you prabhuji.

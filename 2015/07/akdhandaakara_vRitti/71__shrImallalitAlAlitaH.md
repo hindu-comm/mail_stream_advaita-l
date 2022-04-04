@@ -13,7 +13,7 @@ On Sun, Jul 5, 2015 at 3:19 PM, Venkatraghavan S <agnimile at gmail.com> wrote:
 > the first place?
 
 
-​If you read older posts where I talked about संसर्गासङ्गि.... shloka, and
+If you read older posts where I talked about संसर्गासङ्गि.... shloka, and
 posts related to that; then you will be able to understand how those two
 definitions are related. I've written at least 3 posts about that. If you
 are asking now, because only now you faced that problem; then what could I
@@ -35,7 +35,7 @@ If you remember my posts, then I've mentioned that if you could just get
 that there is some different view in shAstra-s, then that's enough for me.
 I expect that you will go through proper channel and study yourself, if you
 wish to know more and clear.
-​
+
 For Keshav,
 I've to say that I've read your posts and they are difficult to understand.
 In clear words, they are not close to my understanding. However, the anvaya

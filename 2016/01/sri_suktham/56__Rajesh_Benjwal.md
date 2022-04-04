@@ -6,7 +6,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2016-Januar
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2016-January/039991.html)
 
-​
+
  D.V.N.Sarmaji,
 
 I am not sure if this is also a meaning but usually it is used for
@@ -15,7 +15,7 @@ I am not sure if this is also a meaning but usually it is used for
 Thanks
 
 On Sat, Jan 9, 2016 at 12:56 PM,
-​​
+
 D.V.N.Sarma డి.వి.ఎన్.శర్మ <dvnsarma at gmail.com> wrote:
 
 > I think that the word khila has also the meaning 'lost'.

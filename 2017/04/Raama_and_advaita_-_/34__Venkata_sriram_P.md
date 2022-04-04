@@ -39,7 +39,7 @@ she forgot to add "asafoetida" (hing) in sambaar and asked whether she should
 serve it.  The question was in sanskrit (as in those days, people used to converse
 in that language !)
 
-सूपे रामठं परिवेषयामि वा ?  (राम​ठ = asafoetida)
+सूपे रामठं परिवेषयामि वा ?  (रामठ = asafoetida)
 
 The moment Ravana heard the name राम ; without even letting the Mandodari completing 
 the letter ठ, ran from the Kitchen and hid himself :))

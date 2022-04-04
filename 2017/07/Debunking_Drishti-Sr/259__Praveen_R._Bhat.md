@@ -27,7 +27,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > not willing to do so, he may subscribe to the view of Ishvara-sRShTi.
 >
 
-​Since Ishvara can be understood as collapsed into tvampada in DSV, in my
+Since Ishvara can be understood as collapsed into tvampada in DSV, in my
 opinion, it can also be said that in SDV, jIvas and jagat is merged into
 one Ishvara, while in DSV, jagat and Ishvara are merged into one jIva.
 These different approaches lead to the same goal, earlier or later.
@@ -39,10 +39,10 @@ These different approaches lead to the same goal, earlier or later.
 > madhusUdanasarasvatI, and several Sringeri lineage AchAryas were/are ardent
 > upAsakas of forms of Ishvara.
 >
-> ​For some reason, people superimpose​
+> For some reason, people superimpose
 
-​their misunderstanding on DSV and say there is no Ishvara, Maya, etc, in
-DSV. And many a time, there is a misunderstanding of ​Kshanika Vijnanavada
+their misunderstanding on DSV and say there is no Ishvara, Maya, etc, in
+DSV. And many a time, there is a misunderstanding of Kshanika Vijnanavada
 also whereby people end up comparing DSV with it. As you point out, DSV
 itself need not be one flavour. Everything that is possible in SDV
 vyavahAra is equally possible in DSV vyavahAra, although prAtibhAsika.
@@ -51,4 +51,4 @@ gurupAdukAbhyAm,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

@@ -11,7 +11,7 @@ Here is the pdf of Suddhantasindhu of Ramaraya Kavi.
 
 With best regards,
 Niranjan Saha
-​
+
 SCAN01.pdf
 
 

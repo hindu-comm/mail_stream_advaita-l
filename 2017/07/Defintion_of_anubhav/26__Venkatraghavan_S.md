@@ -20,7 +20,7 @@ wrote:
 True, but this is same as saying one cannot have अपरोक्षज्ञान of
 अत्यन्तासत्/ अत्यान्ताभाव। So the connotation of the word ज्ञान vs अनुभव
 doesn't change, although I do see that you are saying that it is a ज्ञान
-which is different from ​स्मृति।
+which is different from स्मृति।
 
 Yes, that is the extent of what I was trying to say. I am not too
 particular on insisting on either koTis - that there is a difference, or
@@ -36,7 +36,7 @@ Because the naiyyAyika by definition says asat cannot be the object of even
 > a nAsti shabda prayoga, he can get away with defining anubhava as smriti
 > bhinnam (i.e. it is yatArtha jnAna, ayatArtha jnAna, sushupti jnAna),
 >
-​Although we do not agree with Naiyayikas​ types of
+Although we do not agree with Naiyayikas types of
 प्रागुत्पत्त्याद्वयभावs, we also deny that अत्यान्तासत् can cause any शाब्द
 and वाक्यबोध on its own merits. Bhashyakara says in Ch. Up. 6th chapter
 that although there is no शाब्दबोध directly in a statement dealing with

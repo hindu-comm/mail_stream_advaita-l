@@ -22,9 +22,9 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > where it is significant that Ishvara creates by His sight.
 > >
 >
-> ​There was more than once such interpretation was seen on this list
+> There was more than once such interpretation was seen on this list
 > recently where the dRShTi of jIva is denied as sRShTi but that of Ishvara
-> is accepted. ​IMO, there is no issue for the DSV follower, be it of EJV/
+> is accepted. IMO, there is no issue for the DSV follower, be it of EJV/
 > NJV variant, since he lands a conclusion by posing a simple question: why
 > is that Ishvara sees a world, which is called as a creation, and I/ all see
 > the same thing?

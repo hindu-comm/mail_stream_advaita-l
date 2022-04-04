@@ -18,18 +18,18 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 >
 >
 >
-> Reg  << any tarka that lets one remain with ​the aikyajnAna as shown by
+> Reg  << any tarka that lets one remain with the aikyajnAna as shown by
 > Shruti is valid >>,
 >
 >
 >
-> But the whole problem is to “remain with ​the aikyajnAna as shown by
+> But the whole problem is to “remain with the aikyajnAna as shown by
 > Shruti “. How to achieve it is the question.
 >
 >
 >
-> Reg  << ​This question is resolved by Shruti-based tarka as "svapnavat
-> kalpitatvAt"​. To *the* DSV-follower (since there is only one in EJV), this
+> Reg  << This question is resolved by Shruti-based tarka as "svapnavat
+> kalpitatvAt". To *the* DSV-follower (since there is only one in EJV), this
 > tarka clicks the first time he understands it and all duality is
 > cognitively resolved; no other tarka is needed. >>,
 >
@@ -50,9 +50,9 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 > (svAnubhava), while the योगि (yogi) continues in the upAsana mArga. It is
 > at this stage that DSP is ideally suited for the योगि (yogi). He is
 > extremely
-> ​
+> 
 > suitable f
-> ​
+> 
 > or upAsanAs. The DSP is practically the same or approximates to
 > निर्गुणब्रह्म उपासन (nirguNabrahma upAsana).
 >

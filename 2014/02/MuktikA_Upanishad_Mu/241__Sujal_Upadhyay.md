@@ -78,7 +78,7 @@ sunil_bhattacharjya at yahoo.com> wrote:
 > PancadaSI in Hindi and have commented on it says that this verse occurs in
 > Yog VAsisTa too.
 >
-> ​SrI VidyAraNya svAmI has also cited Amrit Bindu Upanishad 1 and 18 in
+> SrI VidyAraNya svAmI has also cited Amrit Bindu Upanishad 1 and 18 in
 > PanchdaSI 1.4.45-46.
 >
 > P. 1.4.45 = Amrit. B. Up. 1
@@ -104,11 +104,11 @@ sunil_bhattacharjya at yahoo.com> wrote:
 > Pt. RAmAvatAra vidyAbhAskara)
 >
 >
-> ​Hari ​
+> Hari 
 > OM
 >
 > Sujal
-> ​​
+> 
 > _______________________________________________
 > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
 > http://blog.gmane.org/gmane.culture.religion.advaita

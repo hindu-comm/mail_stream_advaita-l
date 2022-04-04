@@ -41,7 +41,7 @@ Venkateswaran N E
 >> 
 >> Ask bhagavatpAda, and he says : यन्मायावशवर्ति विश्वमखिलं
 >> ब्रह्मादिदेवासुरा, यत्सत्त्वादमृषैव भाति सकलं रज्जौ यथाहेर्भ्रमः
->> Your version is not acceptable. ​
+>> Your version is not acceptable. 
 >> 
 >> 
 >> 

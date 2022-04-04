@@ -33,7 +33,7 @@ I hope you know that you were talking about vRtti revealing nature of it's
 subject, and such vRtti is called pramA.
 vRtti may be of two or three types - pramA, bhrama, ubhayavilaxaNa, should
 be noted.
-​
+
 
 
 >
@@ -45,13 +45,13 @@ be noted.
 > Therefore, is there a brahmAkAra vritti possible that is not akhaNDAkArA
 > also? So brahmAkAra vritti has to be liberating knowledge.
 >
-​yes, brahman is creator, brahman is jagat, brahman has existence or
+yes, brahman is creator, brahman is jagat, brahman has existence or
 knowledge of all or Ananda, etc. are such vRtti-s. Even pot exists - is
-such vRtti, because existence is brahman.​
+such vRtti, because existence is brahman.
 
-​These all vRtti-s are apramA, though.
+These all vRtti-s are apramA, though.
 So, if you would have used the term pramA instead of vRtti here, then my
-answer to your question would have been 'no'.​
+answer to your question would have been 'no'.
 
 Note that only brahmAkArAkhaNDavRtti is pramA(compared to other vRtti-s) in
 our system, because it has no bAdha.
@@ -76,18 +76,18 @@ examples in lengthy posts, to write more here for benefit of others.
 >> > not the charama knowledge.
 >> >
 >>
->> ​Yes, because charama means last. And, jIvanmukta is actually having
+>> Yes, because charama means last. And, jIvanmukta is actually having
 >> visions of dvaita, although as mithyA and he is practicing brahmAbhAyAsa
 >> to
 >> maintain his vRtti brahmAkAra.
->> ​
+>> 
 >>
 >>
 >> > Then it means he does not have Akhandakara
 >> > Vrtti?
 >> >
 >>
->> ​He has. Let me copy-paste from previous post if you failed to grasp
+>> He has. Let me copy-paste from previous post if you failed to grasp
 >> import
 >> of parts:
 >> 1.
@@ -105,16 +105,16 @@ examples in lengthy posts, to write more here for benefit of others.
 >> Also, note that such vRtti is not only brahmAkArA. When one replies to
 >> question 'which is moon' as 'prakRShTaprakAshaH chandraH', the sentence
 >> generates akhaNDAkAravRtti; because the question was not about quality.
->> ​
+>> 
 >>
 >>
 >> > How can he say his Ignorance is destroyed?
 >> >
 >>
->> ​Because, he has brahmAkArA vRtti.
+>> Because, he has brahmAkArA vRtti.
 >> Although, those who accept jIvanmukti, should accept that jIvanmukta has
->> avidyAlesha too. In this sense, his ignoran​
->> ​ce can be said to exist. But, the avidyA in his case can't cause bondage,
+>> avidyAlesha too. In this sense, his ignoran
+>> ce can be said to exist. But, the avidyA in his case can't cause bondage,
 >> is also accepted. It only causes bhoga of sukha-duHkha.
 >> If people have patience, let me bring it to their notice that bhoga of
 >> sukha-duHkha means that they should be visioned as related to 'I',
@@ -126,14 +126,14 @@ examples in lengthy posts, to write more here for benefit of others.
 >>
 >> So, in a sense he has aGYAna, although non-binding. From some other point
 >> of view, he is not aGYAnI, because he knows his identity.
->> ​
+>> 
 >>
 >>
 >> > If some person has
 >> > Akhandakara Vrtti he will immediately die and get Videha Mukti?
 >> >
 >>
->> ​No. ghaTAkArA akhaNDavRtti can't cause your death, and so
+>> No. ghaTAkArA akhaNDavRtti can't cause your death, and so
 >> brahmAkAravRtti.
 >>
 >> I can see that you are not entertaining my idea of akhaNDAkAravRtti,
@@ -141,7 +141,7 @@ examples in lengthy posts, to write more here for benefit of others.
 >> understand.
 >> So, you are talking as if akhaNDAkAravRtti is a vRtti, mental
 >> modification,
->> which ones born stays​ for your life-time. Get rid of such ridiculous
+>> which ones born stays for your life-time. Get rid of such ridiculous
 >> idea.
 >> By the nature, vRtti is dvi-xaNa-sthAyI(or tri). And, it is just because
 >> of

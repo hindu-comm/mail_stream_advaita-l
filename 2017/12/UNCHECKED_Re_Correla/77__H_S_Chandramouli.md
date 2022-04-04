@@ -97,13 +97,13 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Decemb
 > Is this what you are looking for.  You may like to refer to the Bhashya in
 > Sanskrit itself. I prefer the translation in kannada by Sri SSS wherein the
 > emphasis as between var
-> ​
+> 
 > N
 > nas/
-> ​
+> 
 > g
 > uNas
-> ​
+> 
 >
 > /duties
 >

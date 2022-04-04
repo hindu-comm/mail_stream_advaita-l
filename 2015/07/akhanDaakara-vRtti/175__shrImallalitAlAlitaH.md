@@ -23,7 +23,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > if-&-when one hasn't put due effort towards this basic self-discipline.
 >
 
-​Better start a separate thread for this subject. Don't cause deviation
+Better start a separate thread for this subject. Don't cause deviation
 here.
 
 I'm not against talking about these qualities. I'm against using
@@ -33,7 +33,7 @@ shut mouth of the person engaged in argument.
 This is more deceitful and sign of weakness of character/sign of not being
 emotionally strong/ sign of  not being able to learn, etc.
 The worst people are those who use emotion/sAdhanA-thing in an argument to
-see their opponent loose.​
+see their opponent loose.
 
 I've seen this in some other groups, where people throw to me link upon
 links and quotes upon quotes on how to improve myself and how to become

@@ -6,14 +6,14 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2016-Januar
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2016-January/040156.html)
 
-​I'll suggest you to shun the idea of Photostat. Go for camera-capture. A
+I'll suggest you to shun the idea of Photostat. Go for camera-capture. A
 DSLR will be best option.
 Keep book flat on surface, in proper lit place. Hold camera parallel to
 it(do not incline it towards yourself to see it.).
 Take snaps.
 Edit.
 Share
-Done.​
+Done.
 
 
 

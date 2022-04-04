@@ -20,7 +20,7 @@ vandhyaaputra example.
 >
 > The relation of 'son' with the 'woman' which is denoted by word 'of' is
 > opposed to barrenness of woman. Hence, there is contradiction.
-> ​​
+> 
 >
 
 One could think of other examples like vandhyaaputraH - andha-dRuShTiH

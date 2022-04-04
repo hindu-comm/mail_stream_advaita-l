@@ -17,8 +17,8 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 >>
 >>
 >
-> ​How could you justify this?
-> By differentiating meaning of knowledge and perception? Is it possible?​
+> How could you justify this?
+> By differentiating meaning of knowledge and perception? Is it possible?
 >
 >
 > Yes, can we say, if seeing a vastu is perception and knowing the vastu

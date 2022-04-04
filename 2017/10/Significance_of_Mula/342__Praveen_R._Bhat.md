@@ -17,7 +17,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > a Jiva. But some people quote Brihadaranyaka 4.10 Shankara bhashya to
 > support the view that Avidya resides in Brahman.
 >
-​​Although we have gone down this road before, I'll still mention
+Although we have gone down this road before, I'll still mention
 Naishkarmyasiddhikara's view that brahman's jIvatvam being due to avidyA,
 the kArya (jIva) cannot precede the kAraNa (avidyA), and therefore, jIva
 cannot be the locus of avidyA. If brahman is taken as the locus of avidyA,
@@ -28,9 +28,9 @@ not the same.
 
 > Another question, what is the status of Avidya in deep sleep state?
 >
-​It remains in bijAvasthA, seed-form in suShupti.​
+It remains in bijAvasthA, seed-form in suShupti.
 
 gurupAdukAbhyAm,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
-That owing to which all this is known! [Br.Up. 4.5.15] */​
+That owing to which all this is known! [Br.Up. 4.5.15] */

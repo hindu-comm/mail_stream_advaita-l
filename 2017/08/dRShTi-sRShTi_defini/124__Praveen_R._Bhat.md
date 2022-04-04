@@ -23,7 +23,7 @@ different from Maya in sampradAya) one brahman alone takes birth and dies.
 That (brahman) itself is jIva. There is individuality of the same in each
 body so "I am [this]".
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

@@ -97,6 +97,6 @@ On Tue, Sep 6, 2016 at 5:02 PM, Venkatraghavan S <agnimile at gmail.com> wrote:
 > describe Brahman, in order to stop the mind's tendency to objectify and
 > conceptualise! (नाहं मन्ये सुवेदेति,  etc.)
 >
-> ​<content clipped>​
+> <content clipped>
 >
 >

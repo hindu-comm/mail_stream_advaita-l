@@ -16,9 +16,9 @@ could refer me to? >>,
 
 
  I am not sure if
-​t​
-​
-​he following​
+t
+
+he following
 satisfactorily answers your doubt. Thought I would bring it to your notice
 anyway.
 

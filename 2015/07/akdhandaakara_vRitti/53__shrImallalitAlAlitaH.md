@@ -14,13 +14,13 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > Yogi has used it , as he appears to be the first to have used the term.
 >
 
-​Why stop with your limited vision? Let us go to shrI-chitsukhAchAryaH, who
+Why stop with your limited vision? Let us go to shrI-chitsukhAchAryaH, who
 in his tattvapradIpikA said this :
 संसर्गासङ्गिसम्यग्धीहेतुता या गिरामियम् ।
 उक्ताखण्डार्थता यद्वा तत्प्रातिपदिकार्थता ॥
 I've seen वेदान्तसारः , and I think sadAnanda only used this term, but has
 not defined it. Correct? Check commentaries, definitely in Sanskrit and
-those of credible authors, for the meaning.​
+those of credible authors, for the meaning.
 
 
 

@@ -47,37 +47,37 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >
 > Obviously yes. Even though pratiyOgi is non-existing, the bEdha is still
 > exist.
-> ​
+> 
 >
 
-​
-​
-​That seems to be a logic of convenience! Could you please explain then why
+
+
+That seems to be a logic of convenience! Could you please explain then why
 did you say
-​the following
+the following
 in your post on June 21st
-​ ...
+ ...
 
 
-> //Quoted "​Unless you know pratiyOgi,you cannot know the difference
+> //Quoted "Unless you know pratiyOgi,you cannot know the difference
 > between anuyOgi and pratiyOgi."
 
-​
+
 ...
 which is
-​the exact opposite
-​
-?​
-​
+the exact opposite
+
+?
 
 
-> ​
+
+> 
 > Why? This bEdha is self same nature of anuyOgi 'you'. By yourself
 
 being sat vastu yourself on your own, you stand 'differentiated' from all
 > other non existing entities.
 >
-​
+
 Among the two what is your real pakSha please?
 
 Kind rgds,

@@ -16,7 +16,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > upAsana fits within advaita vedAnta?
 >
 
-​I will ​share what I can (although I am not sure how much will be seen as
+I will share what I can (although I am not sure how much will be seen as
 *okay to be shared*) with the hope that it will not be confused with
 upAsanA leading to mokSha being refuted by Bhashyakara. Surely, upAsana
 cannot result in mokSha, but it can lead one there. In fact, as I remember,
@@ -39,7 +39,7 @@ practice is not compared with).
 > SrividyA hold that one would need to transition from SrividyA upAsana to
 > jnAna sAdhana for moksha?
 >
-​As a Vedantin, especially, as​ in vivaraNa, it may be said that it causes
+As a Vedantin, especially, as in vivaraNa, it may be said that it causes
 chittashuddhi of such an extent in its culmination that a slight tinge of
 knowledge of oneness from any source can result in mokSha. However, for a
 practitioner of upAsana, that itself is most likely to appear as leading to
@@ -61,8 +61,8 @@ jnAnasAdhana...
 > mokshA and upAsana itself is sufficient? Is the nature of mokshA different
 > in SrividyA and advaita?
 >
-​... SV itself is inclusive of the highest vidyA, also known as
-jnAnakunDalinI.​ The nature of mokSha is not different. It is
+... SV itself is inclusive of the highest vidyA, also known as
+jnAnakunDalinI. The nature of mokSha is not different. It is
 advaitakaivalyam. The Divine Mother Herself can be said to directly
 instruct the upAsaka, when ready beyond ajnA.
 
@@ -72,7 +72,7 @@ instruct the upAsaka, when ready beyond ajnA.
 > jnAna sAdhana? If so, how?
 >
 
-​I think this question​ also stands answered IMO with above.
+I think this question also stands answered IMO with above.
 
 Now, SV upAsanA itself is quite involved, with strict rules to follow with
 siddhis associated at each level/ mantra. The siddhi should be used to

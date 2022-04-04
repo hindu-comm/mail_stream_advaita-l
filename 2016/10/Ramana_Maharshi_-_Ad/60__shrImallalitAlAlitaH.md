@@ -21,7 +21,7 @@ wrote:
 > Shruti or not shruti?
 >
 
-​Search google, it will help.
+Search google, it will help.
 
 Moreover, if you don't present the supporting logic for both categories, no
-one is going to take the doubt seriously.​
+one is going to take the doubt seriously.

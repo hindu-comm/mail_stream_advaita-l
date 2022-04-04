@@ -8,9 +8,9 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2019-Januar
 
 Namaste,
 
-For we advaitins, it is immaterial whether Shiva is great or Vishnu is great; for us it is 'मायाशबल ब्रह्म​' ...
+For we advaitins, it is immaterial whether Shiva is great or Vishnu is great; for us it is 'मायाशबल ब्रह्म' ...
 
-Yes, for personal worship, one can consider मायाशबल ब्रह्म​ to be Rama, Krishna, Shiva, Vishnu, Devi etc. 
+Yes, for personal worship, one can consider मायाशबल ब्रह्म to be Rama, Krishna, Shiva, Vishnu, Devi etc. 
 and in due course of vedanta-chintana, one has to drop-off this अभिनिवेशः and transcend the 
 petty aspects ....
 

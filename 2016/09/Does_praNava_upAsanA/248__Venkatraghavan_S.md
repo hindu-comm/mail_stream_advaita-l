@@ -86,7 +86,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > Apara Brahman is attained through pranava upAsana while para Brahman is
 > attained through pranava jignAsa or vichAra.
 >
-> ​Hari ​
+> Hari 
 > OM
 > _______________________________________________
 > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/

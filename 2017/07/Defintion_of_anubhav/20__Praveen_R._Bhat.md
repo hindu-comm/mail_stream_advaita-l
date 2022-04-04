@@ -15,7 +15,7 @@ wrote:
 > I had intentionally written  “definition’ (within inverted comma), and not
 >> just definition which would have made it like a dictionary meaning.
 >>
-> ​Sure, but the intention for a clear definition is to either express
+> Sure, but the intention for a clear definition is to either express
 particular difference(s) between ज्ञान and अनुभव or to say both are the
 same.
 
@@ -24,7 +24,7 @@ same.
 >> mentioned, there is indeed no difference between ज्ञान, अनुभव or अनुभूति.
 >>
 >>
-> ​Agreed in the very first post.​
+> Agreed in the very first post.
 
 
 > Reg  << That's an interesting point, which I too subscribe too, but it
@@ -39,7 +39,7 @@ same.
 >> understood in the advaitic sense and not as in Yoga shastra sense.
 >> Regarding अनुभव I have clarified my understanding above.
 >>
-> ​IMO, Bhamati is advaitic sense. Although it is a slightly different
+> IMO, Bhamati is advaitic sense. Although it is a slightly different
 discussion, I would state that Advaitin's only issue with yoga is that it
 ends in duality, but the same word निरोध is used by Sw. Vidyaranya in
 Panchadashi chapter 9, replaced with the word वृत्तिशून्य in
@@ -64,7 +64,7 @@ Summarizing my understanding with specific reference to your query, the
 >> you are looking for.
 >>
 >
-​Surely so. However, please recall that I already​ mentioned that the
+Surely so. However, please recall that I already mentioned that the
 definition need not be limited to the context of Brahman. That is, it can
 be same for laukika usage, completely different or qualified with
 adjectives. What I intend to show is that one will indeed arrive at is that
@@ -74,10 +74,10 @@ to the context of Brahman.
 
 Thanks much.
 
-​
-​
+
+
 Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

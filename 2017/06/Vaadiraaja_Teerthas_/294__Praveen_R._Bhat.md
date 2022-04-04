@@ -21,7 +21,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > something.
 >
 
-​Wouldn't orthodox philosophies streamline such false memories as arising
+Wouldn't orthodox philosophies streamline such false memories as arising
 from a recollection of some earlier life event mixed with current, just
 like mixing an experienced event in this very life with another?
 
@@ -29,4 +29,4 @@ Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

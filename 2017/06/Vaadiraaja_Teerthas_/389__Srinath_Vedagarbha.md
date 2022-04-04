@@ -12,8 +12,8 @@ On Fri, Jun 30, 2017 at 12:15 PM, Praveen R. Bhat via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 
 >
-> ​​I particularly do not agree that अत्यन्तासत् object can part of a
-> comparison, but let me use उष्ट्रलगुडन्याय। ​Lets hypothetically agree that
+> I particularly do not agree that अत्यन्तासत् object can part of a
+> comparison, but let me use उष्ट्रलगुडन्याय। Lets hypothetically agree that
 > what you said earlier. Now you say that your brahman is different from
 > vandhyAputra, right?
 
@@ -56,7 +56,7 @@ bEdha between two sat padArthas.
 > > recognizes the difference.
 > >
 >
-> ​Very good. Then if you can have vyavahAra with asat and abhAvapadArtha,
+> Very good. Then if you can have vyavahAra with asat and abhAvapadArtha,
 > its definitely possible to have such vyavahAra with apparent padArtha, in
 > which case you shouldn't have any issue with AV calling the world as
 > mithyA.

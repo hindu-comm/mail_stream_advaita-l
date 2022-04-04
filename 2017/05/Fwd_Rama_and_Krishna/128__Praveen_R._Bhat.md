@@ -14,14 +14,14 @@ On Wed, May 24, 2017 at 8:24 PM, Kalyan <kalyan_kg at yahoo.com> wrote:
 > thing.
 
 Well, thats interesting. You objected to Rama and Krishna being called as a
-jIva ​by some quotations. Unless you agree that Shiva being called as a
+jIva by some quotations. Unless you agree that Shiva being called as a
 jIva by anyone is equally objectionable, you partially believe in the
 debate.
 
 
-> Vaishnavaites do not believe Shiva can give moksha.​
+> Vaishnavaites do not believe Shiva can give moksha.
 
-​They are a few steps ahead of dvaitins in this area perhaps, since
+They are a few steps ahead of dvaitins in this area perhaps, since
 Purandara Dasa prays to Shiva for a tailadhAravat manas in harI, which is
 hopefully the means to their mokSha.
 
@@ -29,7 +29,7 @@ hopefully the means to their mokSha.
 > So one can argue similarly that vaishnavas are criticizing Shaivism for
 > doctrinal reasons alone.
 >
-> ​That very doctrine has been proven to be wrong by ​Appayya Dikshita
+> That very doctrine has been proven to be wrong by Appayya Dikshita
 saying that the reasons for which Shiva is set aside as a jIva applied to
 Rama or Krishna also.
 
@@ -37,9 +37,9 @@ On a related matter, I do not know as to why those who call themselves as
 Vedantins following, Advaita Vedanta take to a non-Vedanta source as having
 more authority in their doctrine.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

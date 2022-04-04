@@ -67,15 +67,15 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > <<<<< It is odd if one says that I know my true swarUpa now but I may
 > > forget my
 > > true swarUpa sometime in future.
-> > ​ >>>>>>
+> >  >>>>>>
 > >
 > > It is not odd but very much possible. There are few cases where after
-> > brain injury a male start thinking ​he is SHE and SHE is trapped in a
+> > brain injury a male start thinking he is SHE and SHE is trapped in a
 > male
 > > body.
 > >
 > >
-> > @Kuntimaddi Sadanandaji​
+> > @Kuntimaddi Sadanandaji
 > >
 > > OK
 > >
@@ -103,7 +103,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > ignorance of Rama Shanda rupa but nowdays again I forgot Rama shnda rupa
 > > and I do not know it.
 > >
-> > 2- There are few cases where after brain injury a male start thinking ​he
+> > 2- There are few cases where after brain injury a male start thinking he
 > > is SHE and SHE is trapped in a male body.
 > >
 > > So the question is not invalid as far as I think as there is fair
@@ -148,7 +148,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > become badhitA , mithyAtva nischaya.
 > > Who has interest in mirage-water? None.
 > > Who has interest in mithyA vastu? None.
-> > ​>>>>
+> > >>>>
 > >
 > > Right, but suppose, it is just a hypothetical question, brain injury
 > happen
@@ -176,7 +176,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > this
 > > is known as phantom hand,
 > >  brain behaves in very mysterious ways
-> > ​.​
+> > .
 > >
 > >
 > >
@@ -188,7 +188,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > >
 > >
 > >
-> > ​
+> > 
 > >
 > >
 > > On Sun, Jan 17, 2016 at 9:37 AM, Praveen R. Bhat via Advaita-l <

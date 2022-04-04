@@ -24,14 +24,14 @@ rama.balasubramanian at gmail.com> wrote:
 > On Mon, May 1, 2017 at 12:06 AM D.V.N.Sarma డి.వి.ఎన్.శర్మ <
 > dvnsarma at gmail.com> wrote:
 >
->> ​There will be slight variations in the pathantarams of different regions.
+>> There will be slight variations in the pathantarams of different regions.
 >> I think this is the version of Andhra. The very fact so many people are
 >> reciting it in unison means
 >> that they are reciting a single pathantaram as taught by their guru.
 >> For example the pathantarams of north India sound quite different.
 >> Just as this pathantaram sounds flawed to you, it is quite possible your
 >> pathantaram
->> may sound flawed to these people.​
+>> may sound flawed to these people.
 >>
 >>
 >> regards,

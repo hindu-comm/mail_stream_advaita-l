@@ -9,7 +9,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2019-May/05
 Dear Sir, 
 
 Little elaboration is required here and I don't belive in that 
-"Rebirth is possible without sanchitakarma to which an ajnAni has a claim, thereby leading to prArabdha"As earlier you wrote that :What need or use is there to know the​ prArabdha of the body when one knows oneself as brahmAtmA! Aparokshanubhuti says that even prArabdha is not there for the highest jnAnI which is in concurrence. 
+"Rebirth is possible without sanchitakarma to which an ajnAni has a claim, thereby leading to prArabdha"As earlier you wrote that :What need or use is there to know the prArabdha of the body when one knows oneself as brahmAtmA! Aparokshanubhuti says that even prArabdha is not there for the highest jnAnI which is in concurrence. 
 
 I will put it in simple terms:
 You are taking classes to all students with equal attention: Some will understood it just telling by once, few needs to be told twice, thrice and rest will not understood if you tought them ten times also. It means those who have already practiced it understood early, who practiced less takes little time and who have just started takes more time. 

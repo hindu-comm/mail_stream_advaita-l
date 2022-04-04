@@ -24,8 +24,8 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >
 
 
-​​
-​
+
+
 On Mon, Mar 13, 2017 at 8:15 PM, Venkatesh Murthy via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 

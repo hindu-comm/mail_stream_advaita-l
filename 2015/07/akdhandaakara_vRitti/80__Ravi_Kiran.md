@@ -115,14 +115,14 @@ which illumines the real brahma-vastu in any/every/all object(s); that is
 >> [niShprakAra-vRtti] is by definition always associated with only
 >> brahma-vastu?
 >>
->> ​You know, anyone will hate to say same thing again and again. I'm
+>> You know, anyone will hate to say same thing again and again. I'm
 >> telling this about second question.
 >>
 >> If you understand that I was refuting it's relation with  brahma-vastu
 >> only, then it makes sense to deduce that I accept that this vRtti is
 >> possible for other objects. Otherwise, why should I insist to cover सोयम्
 >> and प्रकृष्टप्रकाशश्चन्द्रः etc.?
->> ​
+>> 
 >>
 >> श्रीमल्ललितालालितः
 >> www.lalitaalaalitah.com

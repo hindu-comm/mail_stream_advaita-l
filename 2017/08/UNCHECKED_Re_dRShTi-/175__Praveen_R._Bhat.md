@@ -40,13 +40,13 @@ advaita-l at lists.advaita-vedanta.org>:
 > Luminous and Eternally Blissful Brahman.
 >
 
-​Thanks for that wonderful verse with commentary. I looked up the following
+Thanks for that wonderful verse with commentary. I looked up the following
 verses to this, which elaborate the puruShabheda/ adhikAribheda and then
-refutes even that by ​saying that there is threefold bheda only in one
+refutes even that by saying that there is threefold bheda only in one
 adhikAri, which is pointed by the atha-shabda of athAto brahmajijnAsa! It
 all settles very well for EJV.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

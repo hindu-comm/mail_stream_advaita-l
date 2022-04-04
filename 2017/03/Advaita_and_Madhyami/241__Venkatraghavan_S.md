@@ -42,7 +42,7 @@ On 30 Mar 2017 7:39 a.m., "Venkatraghavan S" <agnimile at gmail.com> wrote:
 >>> between the concept of sunyam and the concept of avidya nivrtti.
 >>>
 >>
->> ​I have trouble seeing what the author means with the last line; while
+>> I have trouble seeing what the author means with the last line; while
 >> the concepts of shUnya and avidyA being compared, why has he suddenly
 >> landed on concept of shUnya and concept of avidyA *nivRtti*?
 >>
@@ -54,11 +54,11 @@ On 30 Mar 2017 7:39 a.m., "Venkatraghavan S" <agnimile at gmail.com> wrote:
 >> bhAva, abhAva cannot be talked about. This Siddhanta objection will apply
 >> to Mahavainashikas=Buddhists as well.
 >>
->> ​gurupAdukAbhyAm
+>> gurupAdukAbhyAm
 >> ,
 >> --Praveen R. Bhat
 >> /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one
 >> know That owing to which all this is known! [Br.Up. 4.5.15] */
->> ​
+>> 
 >>
 >

@@ -33,14 +33,14 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > kuntimaddisada at yahoo.com [advaitin] <advaitin at yahoogroups.com> wrote:
 >
 > These stories are not different from the stories that we read in the
-> Shankara Digvijayas where there were episodes to kill Shankara too. ​
+> Shankara Digvijayas where there were episodes to kill Shankara too. 
 >
 >
 > The best thing to do is ignore these cock and bull stories and concentrate
 > on the essence of the teachings.
 >
 >
-> ​The stories are so elaborately given that many followers will not just
+> The stories are so elaborately given that many followers will not just
 > ignore them. You yourself elaborated the details before calling it a cock
 > and bull story! IMO, the Tantrika wanting to offer Bhagavatpadacharya as a
 > bali for siddhi is not the same as an Advaita Acharya plotting to kill a
@@ -65,7 +65,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > gurupAdukAbhyAm,
 > --Praveen R. Bhat
 > /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
-> That owing to which all this is known! [Br.Up. 4.5.15] */​
+> That owing to which all this is known! [Br.Up. 4.5.15] */
 > _______________________________________________
 > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
 > http://blog.gmane.org/gmane.culture.religion.advaita

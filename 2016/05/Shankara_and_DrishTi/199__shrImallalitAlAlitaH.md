@@ -13,7 +13,7 @@ aurobind.padiyath at gmail.com> wrote:
 
 
 I'm amazed that someone is just throwing some words from scriptures here
-which is not related to the post quoted.​
+which is not related to the post quoted.
 
 
 

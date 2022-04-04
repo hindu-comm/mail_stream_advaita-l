@@ -12,9 +12,9 @@ On Fri, Dec 6, 2013 at 9:20 PM, Nithin Sridhar <sridhar.nithin at gmail.com>wrot
 > Siddhi clearly says a Jivanmukta is devoid of desires, anger etc
 >
 
-​I think you are referring to these shloka-s:
+I think you are referring to these shloka-s:
 
-buddhAdvaitasatattvasya ​yatheShTAcharaNaM yadi.
+buddhAdvaitasatattvasya yatheShTAcharaNaM yadi.
 shunAM tattvadR^ishAM chaiva ko bhedo.ashuchibhaxaNe..
 and
 rAgo li~Ngamabodhasya chittavyAyAmabhUmiShu.
@@ -46,7 +46,7 @@ vyutthAnadashAyAm IdR^ishe AcaraNe pUrvvAbhyAsena prApite vishrAntacittasya
 kAluShyarahitatvAt atyacchatvam | yathA vyomni dhUmadhUlimeghAdiyukte.api
 nirlepasvabhAvatvAt atishayena svacchatvaM tadvat | *
 
-​Translation by Goodding:
+Translation by Goodding:
 
 
 
@@ -74,7 +74,7 @@ is just like that of the sky, which, though it is contaminated with smoke,
 dust,clouds, and the like, it is nevertheless extremely clear because it is
 by its very natureuntainted.*
 
-*​*
+**
 
 
 *श्रीमल्ललितालालितः *www.lalitaalaalitah.com

@@ -23,8 +23,8 @@ To: advaita-l
 Reply To: Sujal Upadhyay
 Subject: [Advaita-l] Fwd: Ramana Maharshi - Advaitin or Neo Advaitin?
 
-​P.S. Please hit reply All and be careful that
-advaita-l at lists.advaita-vedanta.org is in the To field.​
+P.S. Please hit reply All and be careful that
+advaita-l at lists.advaita-vedanta.org is in the To field.
 
 ---------- Forwarded message ----------
 From: Kripa Shankar <kripa.shankar.0294 at gmail.com>

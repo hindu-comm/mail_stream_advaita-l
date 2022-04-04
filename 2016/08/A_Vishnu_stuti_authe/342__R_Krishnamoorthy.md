@@ -255,7 +255,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > >> > attached to it. Shankara gives some reasons why this should be so and
 > >> > in BSB 1.2.25, Shankara quotes the Mahabharata again -
 > >> >
-> >> > ​<message clipped>
+> >> > <message clipped>
 > >> >
 > >> _______________________________________________
 > >> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/

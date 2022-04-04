@@ -17,7 +17,7 @@ My point of emphasis was to state that Sankara has refuted various erroneous con
 
 >  There is a scope to mAyA satkArya vAda in Advaita.  For the manda madhyamAdhikAri-s shruti says there is a kAraNa for this jagat and that kAraNa is brahman when one realizes the ultimate truth that brahman is the only secondless satya, for him there is no kAraNa & kArya bheda and he knows that even there is kArya vikAra (which is pratyaksha pramANita) what exists there is only the svarUpa of the kArya vikAra i.e. kAraNa which is nothing but his own svarUpa.  sarvaM hi asmAkaM Atmabhutameva sarvasya cha vayaM AtmabhUtAH...He will not see anything outside which is Atmavyatirikta.  The methodology of cause and effect (kArya-kAraNa prakriya ) is there to drive home this fundamental siddhAnta in Advaita.  i.e. AtmaikatvaM
 
-The one who is deluded perceives the Jagat as कार्य​-कारण संबन्धः that has been refuted owing to अन्योन्याश्रय दोषः associated hence मिथ्या .  It is this मिथ्या which is called "falsity" which is the derivative of "fallacy". 
+The one who is deluded perceives the Jagat as कार्य-कारण संबन्धः that has been refuted owing to अन्योन्याश्रय दोषः associated hence मिथ्या .  It is this मिथ्या which is called "falsity" which is the derivative of "fallacy". 
 
 >  Does anyone sofar said like ornament which is entirely dependent on its upAdAna kAraNa gold, gold also entirely dependent on its vikAra for its existence to bring in anyonyAshraya dOsha here?? Do we see any anyOnyAshraya dOsha when bhAshyakAra clarifies : ananyatvepi kAryakAraNayOH kAryasya kAraNAtmatvaM 'NA TU KAARANASYA KAARYAATMATVAM'.  
 

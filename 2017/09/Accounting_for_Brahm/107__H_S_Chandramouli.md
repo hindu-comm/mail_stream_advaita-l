@@ -7,7 +7,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Septem
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-September/046752.html)
 
 >
-> ​Namaste Praveen Ji,
+> Namaste Praveen Ji,
 >
 
 
@@ -53,7 +53,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Septem
 > This is bAdhAyAM  sAmAnAdhikaraNyaM ( as per Sri SSS ).
 >
 >
-> Regards​
+> Regards
 >
 >
 <https://www.avast.com/sig-email?utm_medium=email&utm_source=link&utm_campaign=sig-email&utm_content=webmail>

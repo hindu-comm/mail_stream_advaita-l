@@ -29,19 +29,19 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 >> advaita siddhi that defines akhandAkArA as such.
 >
 >
-> ​See beginning of ​
+> See beginning of 
 >
-> ​2nd parichchheda and search whole brahmAnandI wherever he has mentioned
-> about this term.​
+> 2nd parichchheda and search whole brahmAnandI wherever he has mentioned
+> about this term.
 >
 >> I don't think I was suggesting that the application of the term
 >> akhandAkAra be restricted to only the mahavakya janya jnAnam.
 >>
-> ​When I reply, it is not essential that I'm refuting a single person.
+> When I reply, it is not essential that I'm refuting a single person.
 > That's why I never start my post with name of any person. I combine things.
 > I may not quote the person's words exactly to whom I'm responding. Consider
 > these points. If my reply doesn't apply to you, then it must apply to
-> someone else, otherwise why should I waste my words?​
+> someone else, otherwise why should I waste my words?
 >
 >
 >> I also do not believe Swami Paramarthananda's definition is limiting it
@@ -77,7 +77,7 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 >> lack of understanding of the subject matter is unwarranted.
 >>
 >
-> ​This long portion is in support of swami Paramarthananda.
+> This long portion is in support of swami Paramarthananda.
 > You may have read that I've no problem with his personality and his number
 > of followers. I'm bothered by what he is telling about a technical term.
 > Now, you are telling that 'he may know but K Sadandna is not able to grasp
@@ -93,8 +93,8 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 > is inevitable.
 >
 > Anyway, don't bring persons who are not directly part of discussion.
-> That's better option.​
+> That's better option.
 >
-> ​Present their ideas as 'ideas', not as 'divine words'.​
+> Present their ideas as 'ideas', not as 'divine words'.
 >
 >

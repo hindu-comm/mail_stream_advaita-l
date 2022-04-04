@@ -37,7 +37,7 @@ using shruti, it would be for another day!)
 
 > Is Ishvara in your anubhava?
 >
-> ​No, Shruti is the pramANa for Ishvara.​
+> No, Shruti is the pramANa for Ishvara.
 >
 >
 >
@@ -49,7 +49,7 @@ That's good.
 > > Unless you know pratiyOgi,
 > > you cannot know the difference between anuyOgi and pratiyOgi.
 > >
-> ​Once you know of the pratiyogi from Shruti, ​I don't need it to tell me
+> Once you know of the pratiyogi from Shruti, I don't need it to tell me
 > the difference between anuyogi and pratiyogi.
 >
 
@@ -58,14 +58,14 @@ As said above, anuyOgi is definitely not sidha without shruti.
 
 
 
-> ​​
+> 
 >
 > > Since Ishvara is only knowable from shruti, dvaita jnyAna (of jIvESha
 > > bhEda) is shruti pratipAdya only. Otherwise there would not be any
 > atheists
 > > in the world.
 > >
-> ​There is a difference in saying that Shruti is a pramANa for Ishvara
+> There is a difference in saying that Shruti is a pramANa for Ishvara
 > versus saying that Shruti is a pramANa for difference between jIva and
 > Ishvara the way you say it and the way we say it that Shruti is a pramANa
 > for both, Ishvara and jIveshvaraikya.
@@ -82,7 +82,7 @@ view.
 
 
 
-> ​
+> 
 >
 >
 > >
@@ -90,7 +90,7 @@ view.
 > understanding
 > > and hence misunderstood Dvaita Siddhanta.
 >
-> ​I'd made a separate paragraph to indicate my conclusion, not Swamiji's.
+> I'd made a separate paragraph to indicate my conclusion, not Swamiji's.
 > Sorry that you missed it. However, Swamiji's conclusion was no different,
 > since he taught that Vedanta Shruti is a pramANa for advaitajnAna, it
 > couldn't have been a pramANa for dvaitajnAna as well. Yet, lets drop

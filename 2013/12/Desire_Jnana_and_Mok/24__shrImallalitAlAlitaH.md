@@ -38,8 +38,8 @@ unreal and *not*-*Atman*, dwell in anything; it doesn't affect *Atman, *because
 oneness with mind is removed by* tvam-padArtha-shodhana*(which happens much
 before *brahma-GYAna*).
 As says *shrI sureshvarAchArya*:
-​
-​
+
+
 
 *dhIvikriyAsahasrANAM hAnopAdAnadharmiNAm. sadA
 sAxiNamAtmAnam..............................................*
@@ -48,12 +48,12 @@ sAxiNamAtmAnam..............................................*
 
 *chhitvA tyaktena hastena svayaM nAtmA visheShyate.*
 The hand which is shunned after cutting, is no more identified with
-*Atman. *​
+*Atman. *
 
 > Once I know that its a rope, there is no fear of snake.
 
 
-​What about trembling which continues after knowledge of rope ? Same is the
+What about trembling which continues after knowledge of rope ? Same is the
 case of body and activities of *GYAnI*.
 So says *shrI sureshvarAchArya *-
 
@@ -61,12 +61,12 @@ So says *shrI sureshvarAchArya *-
 
 
 *vidhvastAkhilamoho.api mohakAryaM tathAtmavit..*
-​
+
 
 
 > Once I know its mirage, there is no desire to quench thirst.
 >
-​Even if you are thirsty !!??​
+Even if you are thirsty !!??
 Knowledge doesn't removes your thirst for water.
 
 Actually, the problem which haunts *vaiShNava-s, karma-mImAMsaka-s,* etc.

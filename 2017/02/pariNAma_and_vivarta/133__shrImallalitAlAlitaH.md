@@ -19,9 +19,9 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > of veda-s and vedAnta is very shallow.
 >
 
-​The type of omniscience you are wishing to get from eka-viGYAna is not
+The type of omniscience you are wishing to get from eka-viGYAna is not
 possible, and not taught in chhAndogya.
-You have to correct your understanding of the goal.​
+You have to correct your understanding of the goal.
 
 It is common to see that people who study vedAnta, have such shallow
 understanding of their goals; mostly because they don't spend time in

@@ -10,10 +10,10 @@ Namaste Praveen ji and Subbu ji
 Many things to carefully dwell upon. Thank you for all the contemplation.
 
 Praveen ji wrote
-​Yes, I am indeed saying that and more.
+Yes, I am indeed saying that and more.
 Finally, to stretch this idea, I will always use ahaM as a substitute for
 any word brahma anywhere in the shAstras, adding upAdhis if required
-​; to me, t
+; to me, t
 his is DSV.
 
 That sounds like authentic DSV- based sadhana.

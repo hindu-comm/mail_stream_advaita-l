@@ -64,7 +64,7 @@ ignited cigerette (bidi) from dhUni. To abide in your natural state should
 not involve any effort. It is natural to be just you :)
 
 
-​Hari ​
+Hari 
 OM
 
 Sujal

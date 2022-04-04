@@ -6,7 +6,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2018-May/04
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2018-May/049343.html)
 
-​Namaste Kalyanji,
+Namaste Kalyanji,
 
 On Tue, May 1, 2018 at 2:32 PM Kalyan <kalyan_kg at yahoo.com> wrote:
 
@@ -19,7 +19,7 @@ The lack of answer is not proof of no answer being there. It has been dealt
 with by the same Bhashyakara in Mandukya 1.6 and Chandogya 6th chapter.
 Bhashyakara may not answer all questions everywhere as they are answered
 elsewhere. Brihad is the last studied Upanishad in the sequence of ten.
-​Upanishads are one unit. Although one is sufficient, it doesn't mean that
+Upanishads are one unit. Although one is sufficient, it doesn't mean that
 others are completely contradictory or even tangential. Else Bhashyakara
 need not quote other Upanishad mantras as hetus in any commentary.
 
@@ -37,4 +37,4 @@ gurupAdukAbhyAm,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

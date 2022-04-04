@@ -43,7 +43,7 @@ is anusyutam in anatma, the sat, alone is satyam.
 >
 >
 > kAryam only when considered  independent of kArana( bereft of upAdAna
-> kArana ) ​is avastu.
+> kArana ) is avastu.
 >
 
 Not so, kāryam is avastu as nāma rupa object; what is anusyutam alone is

@@ -19,12 +19,12 @@ Venkatraghavan
 On 13 May 2016 1:28 a.m., "श्रीमल्ललितालालितः" <
 lalitaalaalitah at lalitaalaalitah.com> wrote:
 
-> ​Yes, I know about those statements.
+> Yes, I know about those statements.
 > But, they are not correct if they are trying to limit dRRiShTisRRiShTi to
 > ekajIvavAda, is my understanding.
 >
 > These conclusions were reached when I was commenting on non-acceptance of
-> sattA-traya in bhAmatI's view.​
+> sattA-traya in bhAmatI's view.
 >
 >
 > *श्रीमल्ललितालालितः*www.lalitaalaalitah.com
@@ -65,12 +65,12 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 >>>> does imply eka jIva vAda.
 >>>>
 >>>
->>> ​This belief has loose foundation.
+>>> This belief has loose foundation.
 >>> vAchaspati-mishra is accepted as nAnA-jIva-vAdI, but as in his view the
 >>> aGYAnam is jIvAshritam, so the creation is also of jIva. Hence, his view is
 >>> considered as dRRiShTi-sRRiShTi.
 >>> Some essays are available.
->>> One scholar, who is part of BVP, is also working on this subject.​
+>>> One scholar, who is part of BVP, is also working on this subject.
 >>>
 >>>
 >>>

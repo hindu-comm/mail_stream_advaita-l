@@ -48,17 +48,17 @@ On 31 Dec 2017 10:08, "Praveen R. Bhat" <bhatpraveen at gmail.com> wrote:
 >>
 >> 2017-12-30 20:05 GMT+05:30 Praveen R. Bhat <bhatpraveen at gmail.com>:
 >>
->>> ​
+>>> 
 >>> On Sat, Dec 30, 2017 at 7:27 PM, D.V.N.Sarma డి.వి.ఎన్.శర్మ <
 >>> dvnsarma at gmail.com> wrote:
 >>>
 >>>> कानिचिन्मुद्राराक्षसानि सन्ति। शोधयन्तु।
 >>>>
 >>>
->>> ​
->>> ​
+>>> 
+>>> 
 >>> कृपां
->>> ​ कृत्वा कीदृशानीति दर्शयतु।​
+>>>  कृत्वा कीदृशानीति दर्शयतु।
 >>>  अथवा अन्यमुद्राक्षरस्य (Sanskrit 2003) प्रयोगं करोतु।
 >>>
 >>> Kind rgds,

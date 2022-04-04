@@ -118,7 +118,7 @@ On Fri, Nov 22, 2013 at 6:07 PM, Ravi Chandrasekhara <vadhula at yahoo.com>wrote
 > >>>
 > >>> P.Y.S. by Swami Prabhavananda of Ramakrishna Ashram, Page 90
 > >>>
-> >>> ​<Content Clipped>​
+> >>> <Content Clipped>
 > >> _______________________________________________
 > >> Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
 > >> http://blog.gmane.org/gmane.culture.religion.advaita

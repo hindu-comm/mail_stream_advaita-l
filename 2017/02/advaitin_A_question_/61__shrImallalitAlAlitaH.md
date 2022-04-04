@@ -18,7 +18,7 @@ advaita-l at lists.advaita-vedanta.org>:
 > यद्रूपेण यन्निश्चितं
 > तद्रूपं व्यभिचरति, तदनृतमित्युच्यते । *अतो विकारोऽनृतम् , **‘ वाचारम्भणं
 > विकारो नामधेयं मृत्तिकेत्येव सत्यम्’ (छा. उ. ६ । १ । ४)
-> ​ ​
+>  
 > एवं
 > सदेव सत्यमित्यवधारणात् ।*
 >
@@ -28,7 +28,7 @@ advaita-l at lists.advaita-vedanta.org>:
 > Shruti emphasizes that 'Sat', Existence, the mūlakāraṇam, alone is Satyam.
 >
 
-​It is true that he is saying that the thing which doesn't change is satyam
+It is true that he is saying that the thing which doesn't change is satyam
 and others are anRRita.
 But, do you think that Mud, Gold, etc. are also satyam as is brahman?
 If not, then you have to accept that he is talking only of kArya and
@@ -50,7 +50,7 @@ Also, in the Brahmasutra bhashya 2.1.14 (ārambhaṇādhikaraṇa) too Shankara
 > दृष्टान्तापेक्षायामुच्यते — ‘ यथा सोम्यैकेन मृत्पिण्डेन सर्वं मृन्मयं
 > विज्ञातꣳ स्याद्वाचारम्भणं विकारो नामधेयं मृत्तिकेत्येव सत्यम्’ (छा. उ. ६ ।
 > १ । ४)
-> ​ ​
+>  
 > इति
 > ; एतदुक्तं भवति — एकेन मृत्पिण्डेन परमार्थतो मृदात्मना विज्ञातेन सर्वं
 > मृन्मयं घटशरावोदञ्चनादिकं मृदात्मकत्वाविशेषाद्विज्ञातं भवेत् ; यतो
@@ -61,9 +61,9 @@ Also, in the Brahmasutra bhashya 2.1.14 (ārambhaṇādhikaraṇa) too Shankara
 > कार्यजातस्याभाव इति गम्यते ।
 >
 
-​The objection stays same.
+The objection stays same.
 And, hence the limitation of this example is also obvious.
-​
+
 By the way, what does he mean when he says that the effect is not real?
 Does that mean that it is absolutely non-existent, then is it in same
 category of hare's horn?
@@ -107,7 +107,7 @@ If that's the case, since the mud doesn't need ignorance(of mud) to appear
 as pot, hence it is pariNAmI-kAraNa and pot is pariNAma.
 
 
-​I'm starting a sanskrit thread on शास्त्रम् GoogleGroups, so that we can
+I'm starting a sanskrit thread on शास्त्रम् GoogleGroups, so that we can
 try to solve this problem.
 I'll be collecting valid objections from this thread to make it difficult
-to solve for us.​
+to solve for us.

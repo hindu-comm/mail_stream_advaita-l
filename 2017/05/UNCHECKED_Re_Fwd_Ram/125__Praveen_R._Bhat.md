@@ -20,7 +20,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > from reality.
 >
 
-​​There's a huge difference between criticising a sampradAya or a deity
+There's a huge difference between criticising a sampradAya or a deity
 just because it is not one's own versus criticising the following as it
 does not lead to mokSha. Bhagvatpadacharya does the latter, as compared to
 all others who followed Advaita Vedanta.
@@ -28,4 +28,4 @@ all others who followed Advaita Vedanta.
 Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
-That owing to which all this is known! [Br.Up. 4.5.15] */​
+That owing to which all this is known! [Br.Up. 4.5.15] */

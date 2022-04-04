@@ -105,5 +105,5 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > such travel in the interests of the welfare and advancement of our country.
 > His Holiness said:-
 >
-> ​<content clipped>
+> <content clipped>
 >

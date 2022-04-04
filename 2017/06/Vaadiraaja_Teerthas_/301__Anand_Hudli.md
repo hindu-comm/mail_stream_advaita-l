@@ -22,7 +22,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > object, it should be treated as a single cognition.
 >
 >
-> ​Does this indicate the series of vRttis in seeing any object? For example,
+> Does this indicate the series of vRttis in seeing any object? For example,
 > if I keep looking at a ghaTa, there is a ghaTa-vRtti which is momentary,
 > but another momentary ghaTa-vRtti follows it which is exactly the same in
 > space, but with a little difference in time, and so on. Are these series of

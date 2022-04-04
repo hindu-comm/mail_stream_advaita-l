@@ -55,7 +55,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > converse
 > in that language !)
 >
-> सूपे रामठं परिवेषयामि वा ?  (राम​ठ = asafoetida)
+> सूपे रामठं परिवेषयामि वा ?  (रामठ = asafoetida)
 >
 > The moment Ravana heard the name राम ; without even letting the Mandodari
 > completing

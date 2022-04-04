@@ -14,7 +14,7 @@ discussion/ debate with each other. :)
 On Wed, Jul 26, 2017 at 11:22 AM, Bhaskar YR via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 
-> (​Vidyasankarji): ​
+> (Vidyasankarji): 
 > there is no substitute for trying to understand Sankara bhagavatpAda's
 > teachings from the original granthas. There's a lot of misunderstanding of
 > what he actually says about bhakti, for instance, and people are prone to
@@ -22,10 +22,10 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >
 >
 
-> ​(Bhaskarji) ​
+> (Bhaskarji) 
 > That is really very well said prabhuji.
 
-​...​
+...
 
 
 

@@ -123,8 +123,8 @@ kuntimaddisada at yahoo.com [advaitin] <advaitin at yahoogroups.com> wrote:
 > syaat ksheeram dadhi mRit kumbhaH suvarNam kunDalam yathaa||
 >
 >
-​First rule to understand anything which is being said is to not guess,
-second avoid confirmation-bias, ​and third follow words.
+First rule to understand anything which is being said is to not guess,
+second avoid confirmation-bias, and third follow words.
 That will remove most problems, if you are trying to get the meaning of a
 sentence uttered by someone else.
 
@@ -141,29 +141,29 @@ avasthaantarataa aapatthiH - transforming into another state is pariNAmitaa
 > pariNAma.
 >
 
-​Mark the usage of 'irreversible transformation' instead of
+Mark the usage of 'irreversible transformation' instead of
 'transformation' used previously.
 That's superimposing your idea on vidyAraNya.
 If he didn't included that in his definition, you should also avoid that if
 you are a person willing to understand his words.
-​
+
 
 > To my surprise, he provides the next two example from Ch. Up which
 > actually (in my understanding) should belong to vivarta.
 >
 
-​'Should belong'? On what basis? Any rule?
+'Should belong'? On what basis? Any rule?
 Just because a person never understood a sentence quoted from a
 work/uttered by a person and created a castle of thoughts on wrong ideas,
 it doesn't mean that other persons should do same!
-​
+
 
 > The next examples provided in the above sloka is - just as clay becoming
 > pot and gold becoming ornament. The later ones Uddlaka uses for
 > transformation-less transformation
 >
 
-​'Transformation-less transformation'? ​Do you mean vivartta by it? If yes,
+'Transformation-less transformation'? Do you mean vivartta by it? If yes,
 what is the similarity between rajju-sarpa and it?
 
  - and upanishad uses the word for this as - vaachaarambhanam vikaaraH -
@@ -178,36 +178,36 @@ The cost of each ornament depends on the gold content and not really on the
 > attributive aspects of the ornaments.
 >
 
-​Useless sentence in present context. It is a big contributor to confusion.
+Useless sentence in present context. It is a big contributor to confusion.
 
 BTW, the sentence doesn't stand test, as no shop sells you ornaments
 without charging for designing.
 You are willingly ignoring that because of insignificance compared to gold,
 or the pricing team is good at hiding it.
-​
+
 
 > Transformation of ring into bangle can be called pariNAms since like Gold
 > it is destructive transformation since that particular ring is destroyed to
 > make bangle - it is similar to milk becoming curds.
 >
 
-​Yes, this will help you to understand why श्रुति uses मृत्पिण्डः, we
+Yes, this will help you to understand why श्रुति uses मृत्पिण्डः, we
 choose to ignore that - is another thing.
-​
+
 
 > In sense the first example milk turning into curds is not of the same type
 > as gold appearing as ornaments or clay appearing as pot.
 >
 
-​Can't get it.
-​
+Can't get it.
+
 
 > Most surprising is for vivarta - he gives the example of rope/snake -
 > which is more like praatibhaasika error and belongs to Jeeva sRiShTi than
 > Iswara sRiShTi that the topic is primarily concerned.
 >
 
-​Wow!! That's enough to show that there is some big problem with your
+Wow!! That's enough to show that there is some big problem with your
 understanding.
 
 

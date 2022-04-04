@@ -6,7 +6,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2014-March/
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2014-March/036734.html)
 
-​​
+
 H:
 The words " mayopadhika Iswara " and " mayavishishta Iswara " are both used
 frequently in the literature on vedanta. Many times in the same work

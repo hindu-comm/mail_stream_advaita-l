@@ -9,14 +9,14 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Decemb
 On 17 Dec 2017 08:41, "Rajesh Benjwal" <rbenjwal at gmail.com> wrote:
 
 My point is
-​we​
+we
 cannot
-​ ​
+ 
 just
 say anantam is lakshana of  brahma. As there is ativyApti dosha as
 ध्वंसाभाव is also अनन्तम्. So you must add some other conditions or
 qualifications.
-​ ​
+ 
 So either you add bhAvrupam or sat or .............It is necessary to
 remove ativyApti dosham.
 
@@ -40,7 +40,7 @@ wrote:
 > On Sat, Dec 16, 2017 at 12:24 PM, Rajesh Benjwal via Advaita-l <
 > advaita-l at lists.advaita-vedanta.org> wrote:
 >
->> ​​​​
+>> 
 >> Namaste,
 >>
 >> *Similarly satyam jnanam anantam anandam are lakshanas of Brahman. Brahman

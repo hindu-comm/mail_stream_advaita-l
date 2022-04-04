@@ -20,7 +20,7 @@ https://indiaspirituality.blogspot.in/2017/04/chatuh-sloki-bhagavat-gujarati.htm
 
 It is from sastu sAhitya publication.
 
-​Hari ​
+Hari 
 OM
 
 Sujal

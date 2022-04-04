@@ -145,7 +145,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >
 > ॐ तत् सत्।
 >
-> ​gurupAdukAbhyAm
+> gurupAdukAbhyAm
 > ,
 > --Praveen R. Bhat
 > /* येनेदँ सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

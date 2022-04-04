@@ -18,7 +18,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > got.
 >
 
-​Without really interpreting what SSS said, those people give the
+Without really interpreting what SSS said, those people give the
 impression of jagatsatyatva. This jagat satyatva is not sampradAya's
 kevalAdvaita at all, but so-called "shuddhAdvaita", which is really
 "shuddha dvaita"! :)
@@ -35,7 +35,7 @@ anubhavajanya saMskAra and so on, how does one prove that something is
 really created outside?! Hence, Bhagavatpadacharya says "Atmani" "bahir
 iva", "pashyati", "kAryakAraNatayA", etc.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

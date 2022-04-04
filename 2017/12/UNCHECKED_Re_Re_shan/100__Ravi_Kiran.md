@@ -36,17 +36,17 @@ On Wed, Dec 13, 2017 at 12:58 PM, H S Chandramouli <hschandramouli at gmail.com
 > is it
 > due to the continuous atmaikatva jnAna vRtti's taking place ( based on
 > his will ) without mind entering into nirvikalpa samAdhi state ?
-> ​ >>,
+>  >>,
 >
-> Yes. But why use two terms " ​
+> Yes. But why use two terms " 
 > continuous atmaikatva jnAna vRtti's taking place
-> ​ " ​
-> ​ and  ​"
+>  " 
+>  and  "
 > without mind entering into nirvikalpa samAdhi state
-> ​ ". Just the first will do. I normally avoid using the term ​"
+>  ". Just the first will do. I normally avoid using the term "
 > nirvikalpa samAdhi
-> ​ " since it is too easily confused with the yogic state bearing the same
-> name. ​
+>  " since it is too easily confused with the yogic state bearing the same
+> name. 
 >
 
 
@@ -54,7 +54,7 @@ On Wed, Dec 13, 2017 at 12:58 PM, H S Chandramouli <hschandramouli at gmail.com
 
 
 >
-> ​Regards​
+> Regards
 >
 >
 >

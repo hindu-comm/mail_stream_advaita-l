@@ -19,8 +19,8 @@ Venkatraghavan
 On 25 Mar 2016 8:33 a.m., "श्रीमल्ललितालालितः" <
 lalitaalaalitah at lalitaalaalitah.com> wrote:
 
-> ​Nicely replied.
-> Thanks, Venkataraghavan S.​
+> Nicely replied.
+> Thanks, Venkataraghavan S.
 >
 > You can change the rule 1's wording as:
 > there must be saMskAra of adhyasyamAna(the thing being superimposed), not

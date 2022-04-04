@@ -14,7 +14,7 @@ svidyasankar at hotmail.com> wrote:
 > sanctum.
 
 
-​I don't know from where did you get the impression that kAlI or
+I don't know from where did you get the impression that kAlI or
 shivali~Nga is worshiped by RK Math people. As far as I know they keep bANa
 li~Nga to make it adhikaraNa of AvAhana of rAmakR^iShNa. They don't worship
 shiva on that. They have mantra-s created to worship rAmakR^iShNa as
@@ -22,7 +22,7 @@ sarva-deva-devI-svarUpa, and hence they don't worship anyone apart from him.
 Moreover, rAmakR^iShNa himself worshiped his photo(or something!!). From an
 outsiders point of view, it appears just as 'vipralipsA'.
 Anyway, it has nothing to do with prANa of this thread. So, please ignore
-it.​
+it.
 
 
 *श्रीमल्ललितालालितः

@@ -19,23 +19,23 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 Holding that your questions are to Advaitins, all the sentences that
 attacks Advaitins can be ad hominem. The arguments are originally from
 Appayya Dikshitar, while Sri Subrahmanian brought it forth for us. The
-sentences including​
-1. ​"​
+sentences including
+1. "
 Looks like advaitins are a divided lot since Shankara and Madhusudhana
 Saraswati consider Krishna as Ishwara and the latter considers Rama also as
 Ishwara.
-​"​ rather than, "How can we reconcile the opinions of *Sri* Shankar
+" rather than, "How can we reconcile the opinions of *Sri* Shankar
 *acharya* and *Sri* Madhusudhana Saraswathi who consider ..."
 
 2.
 Appayya Dikshitha probably has not studied the entire Mahabharata
 3
-​.
+.
 Appayya Dikshita ultimately comes out as a very poor reader of the great
 epic.
-​
 
-​were ad hominem.​
+
+were ad hominem.
 
 
 > I have only said that Appayya Dikshita comes across as a poor reader of
@@ -57,10 +57,10 @@ epic.
 > Exactly, all advaitis agree to this claim of yours! These verses DO NOT
 establish the jivatva of Rama or Krishna. But on the other hand, if
 somebody quotes similar verses on Shiva and claim Shiva is jiva, it cannot
-be accepted. All that Appayya dikshitar ​
+be accepted. All that Appayya dikshitar 
 
-​has shown is that, using the above said logic, even Rama or Krishna can be
-proved to be Jiva.​
+has shown is that, using the above said logic, even Rama or Krishna can be
+proved to be Jiva.
 
 
 > Regards

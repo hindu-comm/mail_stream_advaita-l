@@ -18,7 +18,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > Sri *श्रीमल्ललितालालितः**  Ji, *
 > >
 >
-> ​No need to add 'Sri'. I've already added it to my name as श्रीमत्.  :P​
+> No need to add 'Sri'. I've already added it to my name as श्रीमत्.  :P
 >
 > *<< *The samAdhAna hints that the person must have some degree of control
 > > of mind, by the grace of dhyAna, etc. So, according to such a view, if
@@ -32,7 +32,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > or jIvanmukta.
 > >
 >
-> ​If 'GYAnI' means that he has stable-GYAna, then there is no need of even
+> If 'GYAnI' means that he has stable-GYAna, then there is no need of even
 > nididhyAsana. He is already a jIvanmukta and brahmasaMstha. The degree of
 > jIvanmukti may vary according to his practice of samAdhi.
 >
@@ -60,10 +60,10 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > निदिध्यासन (nididhyāsana) prior to GYAna.
 >
 >
-> ​So, if the person was meditating on brahma before GYAna, he will start to
+> So, if the person was meditating on brahma before GYAna, he will start to
 > meditate on something else after GYAna!?
 > Do you have any clear idea of what you have understood??
-> ​If yes, please tell that. Such ambiguous claims are not useful.
+> If yes, please tell that. Such ambiguous claims are not useful.
 >
 > And my question was whether दृष्टिसृष्टिप्रक्रिया / एकजीवप्रक्रिया
 > (dṛṣṭisṛṣṭiprakriyā
@@ -72,11 +72,11 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > to GYAna.
 >
 >
-> ​What is the role of prakriyA in nididhyAsana? Is he going to remember the
+> What is the role of prakriyA in nididhyAsana? Is he going to remember the
 > whole prakriyA while meditating?
 > That's not acceptable. He has to meditate on brahman, not on prakriyA.
 > prakriyA-s are mithyA.
-> ​
+> 
 >
 > > In other words my question is as follows.
 > >
@@ -89,8 +89,8 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > to become a GYAni.>>
 > >
 >
-> ​I understand that you are confused about purpose of prakriyA-s.
-> ​
+> I understand that you are confused about purpose of prakriyA-s.
+> 
 > Any mumuxu is adhikArI of brahma-GYAna. When he practises means of
 > knowledge, he tries to solve problems which arise(tries to support shruti
 > and advaita which are opposed by other pramANa-s). So, he applies logic,
@@ -128,7 +128,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > Bonus and may be useless too at the same time, but here I copy-paste what I
 > wrote somewhere else:
 >
-> ​
+> 
 > > nididhyAsa is needed for GYAna.
 > > But, what is nididhyAsana is to be decided.
 > > There are at least three views regarding this.
@@ -188,17 +188,17 @@ With Regards,
 > > GYAna-niShThA is Ashrama-dharma of saMnyAsI-s.
 >
 >
-> ​This too:
+> This too:
 >
 > > दृष्टिसृष्टिवादस्य मुख्यसिद्धान्तत्वमिदमेव यत् अस्य
 > > श्रुतिस्मृतिभाष्यटीकादिसम्मतत्वे सति लघुकल्पनात्वम् ।
 > > तथैव अत्राधिकारितावच्छेदकं न विवेकवैराग्यादिकं , तेषां
 > सृष्टिदृष्टिवादाश्रितं
 > > प्रत्यपि समानत्वात् ; किन्तु उपपादनकौशलम् । यो हि यां प्रक्रियां युक्तां
-> > भावयितुं शक्नोति स तत्राधिकारी , अन्योनधिकारी ।​
-> > ​ ----
+> > भावयितुं शक्नोति स तत्राधिकारी , अन्योनधिकारी ।
+> >  ----
 > > ललितालालितः on Facebook
-> > <https://www.facebook.com/lalitaalaalitah.blog/posts/1363527467008540>​
+> > <https://www.facebook.com/lalitaalaalitah.blog/posts/1363527467008540>
 > _______________________________________________
 > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
 > http://blog.gmane.org/gmane.culture.religion.advaita

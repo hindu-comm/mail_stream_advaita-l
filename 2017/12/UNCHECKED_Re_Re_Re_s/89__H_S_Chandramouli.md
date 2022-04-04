@@ -30,16 +30,16 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Decemb
 >>> well.
 >>> > That is the view of Advaitins.  The fall of this jnani's physical body
 >>> > alone will end the prarabdha bhoga.
->>> > ​>>
+>>> > >>
 >>> >
->>> > ​Yes. Nor am I disputing it. But in my understanding, such "prarabdha
+>>> > Yes. Nor am I disputing it. But in my understanding, such "prarabdha
 >>> bhoga"
->>> > in respect of jnanis includes ​"happening" without the jnani being
+>>> > in respect of jnanis includes "happening" without the jnani being
 >>> "aware"
 >>> > of the same. Such is the case in respect of Jivanmuktas.
 >>> >
 >>>
->>> ​Regards​
+>>> Regards
 >>>
 >>
 >

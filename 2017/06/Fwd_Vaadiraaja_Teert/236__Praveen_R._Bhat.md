@@ -35,7 +35,7 @@ wrote:
 > just taking the first लिङ्ग where उपक्रम shows the प्रतिज्ञा done was एकेन
 > ज्ञानेन सर्वं विज्ञातं भवति and ended with तत् त्वम् असि in उपसंहार, one
 > can see that aikya is the tAtparya of the Shruti. This first लिङ्ग itself
-> fails miserably in other philosophies.​
+> fails miserably in other philosophies.
 >
 > SD:  Have you even read any classic works/ polemical debates by Dvaitin?  We understand the illogic of Advaitham very well.  That is why so many brahmins converted to Vishista Dwaitham and Dwaitham from Adwaitham!!!!
 >
@@ -63,7 +63,7 @@ wrote:
 > abusive words is also brahman/ Ishvara, the abuser is Ishvara, the abused
 > is Ishvara, abusing is Ishvara, all is Ishvara, where is the abuse then? I
 > can understand the Dvaitin's misery though: bhUmA vai sukhaM, na alpe
-> sukham asti​.
+> sukham asti.
 >
 > SD:  Again, you have not understood the point that is being made by Sri Vaadiraja Tirtha.  He has not abused anyone.  However, on a slightly different note, Shankara has actually cursed a whole set of Brahmins.  Let me give you some background.  Shankara came as promised to his mother, his mother's Anthim Kaaryam.  But the Brahmins of that place, and, following the tradition, said there is no Agni Kaaryam for a Sanyasi.  So, they refused to give him fire-wood and fire.  He cut banana trees and did the last rites.  But he was enraged so much that, he cursed them to be Paraya at mid-afternoon, the time when this incident took place.  That community of Brahmins are known as Maadyanika Parayas.  And, normally no Smarthas will have Vivaha Sambandham with that community, till today.  Now, don't enter inter specious and spurious lies like intellectually dishonest Subbu and, say no such incident took place or no such community exists.  Many Tamil and Kerala Brahmins would personally know people of that community.  So, now tell me, based on his Adwaitham, who was Shankara cursing, when he cursed those Brahmins?
 >

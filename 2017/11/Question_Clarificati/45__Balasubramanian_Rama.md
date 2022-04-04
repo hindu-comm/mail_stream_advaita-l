@@ -14,7 +14,7 @@ On Mon, Nov 6, 2017 at 4:31 AM, Rajesh Benjwal via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 
 > Namaste
-> ​
+> 
 > Sarmaji,
 >
 >

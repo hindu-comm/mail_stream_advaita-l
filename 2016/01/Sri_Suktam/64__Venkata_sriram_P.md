@@ -16,9 +16,9 @@ I'm not aware where srI suktaM has sAyan bhAshyA or not
 
 There are 4 major commentaries on श्रीसूक्त.  
 
-1)  विद्यारण्य भाष्य​
-2)  पृथ्वीधराचायॅ भाष्य​
-3)  श्रीकण्ठ भाश्य​
+1)  विद्यारण्य भाष्य
+2)  पृथ्वीधराचायॅ भाष्य
+3)  श्रीकण्ठ भाश्य
 4)  शताअन्द वृत्तिः 
 
 And all 4 are available.

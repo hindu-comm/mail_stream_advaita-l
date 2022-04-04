@@ -23,7 +23,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > all encompassing
 >
 
-​To add to Siva Senani ji's translation, other possible translations of the
+To add to Siva Senani ji's translation, other possible translations of the
 4 following words are: apUrva =causeless/ that which is not the cause,
 anapara =effectless/ that which is not an effect, anantara =that without
 inner-side (not that without inside like Max Mueller's translation leading
@@ -33,4 +33,4 @@ Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

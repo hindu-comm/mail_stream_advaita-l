@@ -50,6 +50,6 @@ On Tue, May 10, 2016 at 1:03 PM, Sujal Upadhyay <sujal.u at gmail.com> wrote:
 >
 
 
-> ​<content clpipped>​
+> <content clpipped>
 >
 >

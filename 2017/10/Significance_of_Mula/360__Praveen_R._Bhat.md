@@ -20,7 +20,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > अभावविलक्षणत्वमात्रं विवक्षितम्
 
 
-Thanks; ​I think this ​was also mentioned by Anandji in one part of Advaita
+Thanks; I think this was also mentioned by Anandji in one part of Advaita
 Siddhi.
 
 
@@ -32,7 +32,7 @@ Siddhi.
 >
 
 Yes, this is why some people take the other extreme of abhAvarUpa.
-Instead, by bhAvarUpa, only mithyAtva is meant, not pAramArthikasatyatva.​
+Instead, by bhAvarUpa, only mithyAtva is meant, not pAramArthikasatyatva.
 In any case, mAyA/ avidyA is kAryAnumeyA.
 
 
@@ -41,10 +41,10 @@ In any case, mAyA/ avidyA is kAryAnumeyA.
 > shasha in chandra.
 >
 
-​True, that is why instead of asserting bhAvarUpAvidyA, it is said
-yat​kiMchidbhAvarUpAvidyA.
+True, that is why instead of asserting bhAvarUpAvidyA, it is said
+yatkiMchidbhAvarUpAvidyA.
 
 gurupAdukAbhyAm,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
-That owing to which all this is known! [Br.Up. 4.5.15] */​
+That owing to which all this is known! [Br.Up. 4.5.15] */

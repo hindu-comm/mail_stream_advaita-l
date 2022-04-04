@@ -32,7 +32,7 @@ To: "A discussion group for Advaita Vedanta" <advaita-l at lists.advaita-vedanta
 Date: Sunday, September 4, 2011, 5:41 AM
 
 
-The following is my argument for apaurushey​atva of veda. Pl. correct me if
+The following is my argument for apaurusheyatva of veda. Pl. correct me if
 it is wrong. If vedas are apaurusheya, they should exist independent of any
 purusha or person. That is they have to exist as an entity in their own
 right with the same words and meter. Such an independent existence can be

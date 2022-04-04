@@ -13,7 +13,7 @@ Sruti mahavAkya janya jnAna gives only parOksha jnAna, while the akhandakara
 > in samAdhi alone gives aparOksha jnAna ( which destroys the bhAvarUpa
 > ajnAna inherent in sushUpti as well)
 >
-​I've no issues with either​ of the vivaraNa or bhAmati prakriyAs. I could
+I've no issues with either of the vivaraNa or bhAmati prakriyAs. I could
 easily reconcile them as what is aparokSha, it is parokShavat and hence
 called parokSha.
 
@@ -30,19 +30,19 @@ taking recourse to former.*
 >> meditation on the Absolute is that it is nearest to the goal of Self-realisation.
 >>
 >> True, mark the words "nearest to the goal", which is not the same as the
-> goal. ​
+> goal. 
 > Not as the direct cause for aparokShajnAna, but Panchadashi 9th chapter
-> ​mentions dhyAna as the secondary means when one cannot do vichAra by the
+> mentions dhyAna as the secondary means when one cannot do vichAra by the
 > using avichArin, mandadhI, etc
-> ​in verses 9.20-21.
-> ​
+> in verses 9.20-21.
+> 
 >
 >
 >> 127. When such complete cessation of mental activity is achieved, only
 >> the associationless entity (Atman) remains in his heart. By ceaseless meditation on It based on
 >> the great Sayings, arises the knowledge ‘I am Brahman’.
 >>
->> ​The exact words of the verse are वाक्यात् जायेत तत्त्वधीः meaning the
+>> The exact words of the verse are वाक्यात् जायेत तत्त्वधीः meaning the
 > knowledge of reality is born from the महावाक्य sentence, not from dhyAna.
 >
 
@@ -58,8 +58,8 @@ getting vAkya janya jnAna, makes the difference. *
 >> There are other similar refs in vivekachudamani reg nirvikalpaka samAdhi leading to videha mukti
 >> as opposed to sadyo mukti.
 >>
->> ​Sure. videhamukti/ kramamukti is definitely possible with upAsanA.
-> ​
+>> Sure. videhamukti/ kramamukti is definitely possible with upAsanA.
+> 
 >
 >
 >> > Also, how does this reconcile with other Sruti texts (on sushupti
@@ -75,11 +75,11 @@ getting vAkya janya jnAna, makes the difference. *
 >>> its
 >>> > supreme glory, this is its highest world, this is its supreme bliss...
 >>> >
->>> ​Bhashyakara introduces this mantra by saying यत्र पुनः सा अविद्या
+>>> Bhashyakara introduces this mantra by saying यत्र पुनः सा अविद्या
 >>> सुषुप्ते
 >>> वस्त्वन्तरप्रत्युपस्थापिका शान्ता, तेन अन्यत्वेन अविद्याप्रविभक्तस्य
 >>> वस्तुनः अभावात् , तत् केन कं पश्येत् जिघ्रेत् विजानीयाद्वा  and later in
->>> the section so: ​तेन न पृथक्त्वेन व्यवस्थितानि करणानि, विषयाश्च ;
+>>> the section so: तेन न पृथक्त्वेन व्यवस्थितानि करणानि, विषयाश्च ;
 >>> तदभावात्
 >>> विशेषदर्शनं नास्ति ; He specifically says that the avidyA that projects
 >>> other objects is quietened, not completely absent, due to the lack of the

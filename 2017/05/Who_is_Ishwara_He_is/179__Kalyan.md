@@ -6,7 +6,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-May/04
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-May/045205.html)
 
-//​This is answered in 2.1.13 of Brahma-sutra bhashya. ​It is only an axiomatic statement from the purvapakshi that we should swim or sink together. But there are counter-examples to that even in Pratyaksha (ल्लोकवत्). You call the bubbles in the ocean as ocean itself, not essentially different from ocean. You call the waves in the ocean as ocean itself, not essentially different. But never will you call bubbles are the same as waves! Though this difference was really told for existence of bhokta-bhogya difference (भोक्त्रापत्तेरविभागश्चेत् स्याल्लोकवत् ), it is applicable to your questions too.//
+//This is answered in 2.1.13 of Brahma-sutra bhashya. It is only an axiomatic statement from the purvapakshi that we should swim or sink together. But there are counter-examples to that even in Pratyaksha (ल्लोकवत्). You call the bubbles in the ocean as ocean itself, not essentially different from ocean. You call the waves in the ocean as ocean itself, not essentially different. But never will you call bubbles are the same as waves! Though this difference was really told for existence of bhokta-bhogya difference (भोक्त्रापत्तेरविभागश्चेत् स्याल्लोकवत् ), it is applicable to your questions too.//
 
 The ocean analogy does not work because the ocean is heterogenous while the Atman is homogenous.
 
@@ -42,9 +42,9 @@ On Sun, 5/21/17, Sriram Sankaranarayanan <ssriram1992 at icloud.com> wrote:
  myself as nirvishesha Atman, I am no longer an ignoramus.
  But who was I before I gained this knowledge? Wasn't I
  the Atman? Isn't the Atman then the biggest ignoramus?
- ​I am not qualified to answer
+ I am not qualified to answer
  this, I leave this to more qualified
- members.​
+ members.
 
 
  Moreover, you and I are both the One and same Atman. Why
@@ -52,9 +52,9 @@ On Sun, 5/21/17, Sriram Sankaranarayanan <ssriram1992 at icloud.com> wrote:
  After all, being the same entity, we both sink and swim
  together. Why do we both have to separately strive for
  liberation?
- ​This is
+ This is
  answered in 2.1.13
- of Brahma-sutra bhashya. ​It is only an axiomatic
+ of Brahma-sutra bhashya. It is only an axiomatic
  statement from the purvapakshi that we should swim or sink
  together. But there are counter-examples to that even in
  Pratyaksha (ल्लोकवत्).

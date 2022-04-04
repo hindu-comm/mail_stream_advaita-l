@@ -22,10 +22,10 @@ Further, had you been there, I'm afraid that you would have quoted such
 mantras and His bhAShya to Bhashyakara Himself when He tackled Dvaitin's
 attacks on shrutisthApita advaita tattva!
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
 
-​
+

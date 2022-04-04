@@ -13,9 +13,9 @@ wrote:
 
 > World is a phenomenon. Maya is a definition/concept.
 >
-​Both being concepts are just that, nothing more. For those who need an
+Both being concepts are just that, nothing more. For those who need an
 explanation, a concept is brought in as an adhyAropa so that they can
-resolve the doubt and move forward ​to apavAda and on to satya brahma. That
+resolve the doubt and move forward to apavAda and on to satya brahma. That
 doesn't mean that one can hold on to adhyAropa as satya and not go to
 apavAda at all. Those who hold on to the crutches even when they can walk,
 and call those who run as wrong are not benefited.
@@ -27,8 +27,8 @@ and call those who run as wrong are not benefited.
 > Tuccha/non-existent. So that establishes only sat and asat are possible.
 > Then we have to say world is asat like hare's horn.
 >
-​Your confusion is visible in above three lines. 1st line says you are okay
-with world is tuccha = ​asat like hare's horn. 3rd line says you are
+Your confusion is visible in above three lines. 1st line says you are okay
+with world is tuccha = asat like hare's horn. 3rd line says you are
 hesitant to say that the world is asat = tuccha like hare's horn. Please
 decide your position based on your own doubts or lack thereof, not because
 a certain Dasgupta says, which too, you partially agree and partially
@@ -40,11 +40,11 @@ If we say it is only from the absolute position, then we have to accept
 > maya.
 >
 I hope you are not saying that from absolute position, you have to accept
-mAyA, else I am sorry to say that I doubt your absolute view.​
+mAyA, else I am sorry to say that I doubt your absolute view.
 
 It's not a question of whether we need maya to explain Advaita.
 >
-​Definitely not, again you have it topsyturvy. Maya is needed to ​explain
+Definitely not, again you have it topsyturvy. Maya is needed to explain
 dvaita prapancha inspite of Advaita for those who question nirguNatva of
 brahma.
 
@@ -52,8 +52,8 @@ Rather it is a denial of such a concept/possibility even provisionally. So
 > in a way, Prakasananda says SDV is fundamentally wrong and DSV alone is the
 > truth.
 >
-​Please understand the approaches of SDV and DSV and who are each targeted
-towards.​ First off, the goal of both is the same. SDV comes from the world
+Please understand the approaches of SDV and DSV and who are each targeted
+towards. First off, the goal of both is the same. SDV comes from the world
 you see, gives it a reality, then a provisional reality, then removes that
 and reaches you to brahman that you already are. DSV starts with you being
 brahman and doesn't let you slip from it. It resolves all doubts by saying
@@ -67,7 +67,7 @@ The fact that you insist these are only prakriyas and we can choose
 > whichever proves that, one need not arrive at DSV at any point until
 > moksha.
 >
-​If one is at "the point" of mokSha, what use is a prakriyA, be it DSV?!
+If one is at "the point" of mokSha, what use is a prakriyA, be it DSV?!
 
 gurupAdukAbhyAm,
 --praveen

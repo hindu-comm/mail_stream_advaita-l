@@ -32,5 +32,5 @@ http://bit.ly/19wZRMd
 > विस्तृतं विवरणं संलग्नमस्ति ।
 >
 >
-> * ​​श्रीमल्ललितालालितः*www.lalitaalaalitah.com
+> * श्रीमल्ललितालालितः*www.lalitaalaalitah.com
 >

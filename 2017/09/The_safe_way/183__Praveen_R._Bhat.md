@@ -17,12 +17,12 @@ On Fri, Sep 15, 2017 at 12:45 PM, Bhaskar YR <bhaskar.yr at in.abb.com> wrote:
 > sarcastic personal comment
 >
 
-​...​
+...
 
 > when I myself severely lacking those qualities.
 >
 
-​Thanks for your honesty here. In any case, I don't think you are lacking
+Thanks for your honesty here. In any case, I don't think you are lacking
 qualities, but only openness towards sub-commentators. Even that wouldn't
 have been an issue, hadn't your focus been to quote their negativity only
 instead of samanvaya, being a little considerate towards those who don't
@@ -38,20 +38,20 @@ own siddhAnta.
 > me under the neutral category without treating me as your shatru prabhuji??
 >    I hope you would accept my request.
 >
-​Neither do I consider anyone as an enemy nor do I have ill-wishes towards
-anyone. Its against my prayer of sarve bhavantu sukhinaH.​
+Neither do I consider anyone as an enemy nor do I have ill-wishes towards
+anyone. Its against my prayer of sarve bhavantu sukhinaH.
 
 
 
 > May the almighty bless you forever.  if god wills we shall meet again
 >
-> ​Thanks, wish you the same​. Sure, why not!
+> Thanks, wish you the same. Sure, why not!
 
-​
+
 svamatAviruddhaM paramatamapi abhyupagantavya
-​M
+M
 , kimu vaktavyaM svamataprakriyAbhedAH,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​​
+

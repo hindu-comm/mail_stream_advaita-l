@@ -17,7 +17,7 @@ The entire journey of jnAna is working towards that. As long as one hinges onese
 A : I agree but imo forbearance is different.
 Finally, in his bhAShya under Brahma Sutra 2.3.41 परात्तु तच्छ्रुतेः, he says यद्यपि दोषप्रयुक्तः सामग्रीसम्पन्नश्च जीवः, यद्यपि च लोके कृष्यादिषु कर्मसु नेश्वरकारणत्वं प्रसिद्धम् , तथापि सर्वास्वेव प्रवृत्तिष्वीश्वरो हेतुकर्तेति श्रुतेरवसीयते ; तथा हि श्रुतिर्भवति — ‘ एष ह्येव साधु कर्म कारयति तं यमेभ्यो लोकेभ्य उन्निनीषते । एष ह्येवासाधु कर्म कारयति तं यमधो निनीषते’ (कौ. उ. ३ । ७) इति, ‘ य आत्मनि तिष्ठन्नात्मानमन्तरो यमयति’ इति च एवंजातीयका। Something of a translation: Although the jIva is endowed with defects and ingredients to act out the same, and even though Ishvara is not well-known as the cause w.r.t. actions such as farming/ploughing, etc, in the world, yet Ishvara is concluded as the source/cause of all actions (*1 हेतुकर्ता) from the Shruti. So says the Shruti-- "Kaushitaki Up. 3.7: Indeed He Himself makes one do righteous action, desiring to raise that person above the mortal worlds. Indeed, He Himself causes one do unrighteous action, desiring to lead that person below the mortal worlds", "One who controls the self staying inside oneself", and [Shruti] of these type.
 A : fate is nothing but our own past actions and so technically there is only self-effort. But moksha cannot be gained by self-effort. Even nishkama karma may not be practical because if there is no desire for me to do karma, I just wont do it. But if it's a duty, then it's an obligation. We are all bound by obligations and there seems to be no way to overcome it.
-​gurupAdukAbhyAm,
+gurupAdukAbhyAm,
 --Praveen R. Bhat
 /*येनेदं सर्वं विजानाति,तं केन विजानीयात्।Through what should one know That owing to which all this is known! [Br.Up. 4.5.15] */
 

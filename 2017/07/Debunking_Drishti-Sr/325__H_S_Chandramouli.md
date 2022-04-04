@@ -37,9 +37,9 @@ On 26 Jul 2017 17:58, "Venkatesh Murthy" <vmurthy36 at gmail.com> wrote:
 >> also
 >> > inform what he has to say on the subject. If confirmed, then the
 >> > understanding that Swami Vidyaranya has endorsed DSV
->> > ​
+>> > 
 >> > (any version)
->> > ​
+>> > 
 >> > would not be correct.
 >> >
 >> >

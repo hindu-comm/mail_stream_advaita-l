@@ -35,7 +35,7 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 >> defining akhaNDAkAra as niShprakAra ?
 >>
 >
-> ​Why should one play with system-specific-terms?​ Better make your
+> Why should one play with system-specific-terms? Better make your
 > separate system and spare us.
 >
 >

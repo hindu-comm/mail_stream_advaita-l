@@ -14,7 +14,7 @@ wrote:
 > visheShaNa of anya pramANena in abAdhitArtha viShayatva lakshaNa is a bit
 > problematic as it leads to ativyApti in several instances,
 >
-​True, same pramANa can also negate it. anya can be taken as English any
+True, same pramANa can also negate it. anya can be taken as English any
 then :)
 
 
@@ -31,7 +31,7 @@ anumAna that it is not so.
 > conditions for pramANa, they are not sufficient (there is ativyApti in
 > dehAtma aikya bhrama for example), the viShaya has to be abAdhitam too.
 >
-Of course, abAdhitatva is assumed in all pramANas.​
+Of course, abAdhitatva is assumed in all pramANas.
 
 
 > In the strictest interpretation of this rule, the only pramANas are shruti

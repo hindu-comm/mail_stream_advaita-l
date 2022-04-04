@@ -13,12 +13,12 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > does imply eka jIva vAda.
 >
 
-​This belief has loose foundation.
+This belief has loose foundation.
 vAchaspati-mishra is accepted as nAnA-jIva-vAdI, but as in his view the
 aGYAnam is jIvAshritam, so the creation is also of jIva. Hence, his view is
 considered as dRRiShTi-sRRiShTi.
 Some essays are available.
-One scholar, who is part of BVP, is also working on this subject.​
+One scholar, who is part of BVP, is also working on this subject.
 
 
 

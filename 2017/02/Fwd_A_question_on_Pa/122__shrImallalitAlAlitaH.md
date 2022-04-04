@@ -17,15 +17,15 @@ wrote:
 > पारमार्थिकत्वम् इष्यते एव।
 >
 
-​Yes, it was a wrong word. It should be कार्य्यस्यापारमार्थिकत्वम् ।
-​
+Yes, it was a wrong word. It should be कार्य्यस्यापारमार्थिकत्वम् ।
+
 
 > --"एकविज्ञानेन" अभेदे इति कीदृशी तृतीया? Grammatically, in what category
 > of तृतीया would you consider अभेद in? Would इत्थम्भूते or प्रकारवाचि be
 > right?
 >
 
-​प्रकृत्यादिभ्य उपसङ्ख्यानम् इतिवार्त्तिकात् अभेदे तृतीया । यथा धान्येन धनी
+प्रकृत्यादिभ्य उपसङ्ख्यानम् इतिवार्त्तिकात् अभेदे तृतीया । यथा धान्येन धनी
 इत्यत्र धान्याभिन्नधनविशिष्टः इत्यर्थः , तत्र धनपदार्थस्याभेदेन
 धनीपदार्थैकदेशेन्वयः ।
 
@@ -36,15 +36,15 @@ wrote:
 > currently understood the word.
 >
 
-​अविनाभावमादाय is correct.
-अ-विनाभाव = The quality of not staying apart from (kAraNa).​
+अविनाभावमादाय is correct.
+अ-विनाभाव = The quality of not staying apart from (kAraNa).
 
 I was anyway tilting towards both, not only परिणाम। I just mentioned what
 > the Vyakhya confirmed on 13.51 that the Chandogya quoted examples can be
 > used for both परिणाम and विवर्त based on the aspects indicated.
 >
 
-​As I said, that pot-example is always categorised as pariNAma in advaita
+As I said, that pot-example is always categorised as pariNAma in advaita
 texts.
 It is only vidyAraNya-muni, who has created a new prakriyA to treat all
 kArya-s as vivartta of their cause. That's a new way to think. It is not

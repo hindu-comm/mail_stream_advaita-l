@@ -39,7 +39,7 @@ commentary become problematic.
    परोक्ष also. Else the title of the work would be simply अनुभूति.
 
 May I request Scholars to point out where my above analysis is going wrong
-Thanks​
+Thanks
 
 Regards
 Ajit Gargeshwari

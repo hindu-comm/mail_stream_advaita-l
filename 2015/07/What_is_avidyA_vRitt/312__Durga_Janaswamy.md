@@ -28,7 +28,7 @@ Note 2: refers to illusions, such as seeing a nacre as silver"
 
 Sarvajnatma-muni states that in illusions such as seeing a nacre as silver,
 इदम् isअन्तःकरण वृत्ति  ( idamisantaHkaraNa vR^itti
-रजताकार​ isअविद्या वृत्ति ( rajatAkAra isavidyA vR^itti)
+रजताकार isअविद्या वृत्ति ( rajatAkAra isavidyA vR^itti)
 
 
 Thank you and regards

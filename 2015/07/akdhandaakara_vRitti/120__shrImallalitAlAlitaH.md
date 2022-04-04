@@ -12,23 +12,23 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > Frankly for tuula avidya at least it makes absolutely no sense to me, if
 > there is knowledge of an object without an attribute.
 >
-​
+
 It should, because it is accepted that any vishiShTa-GYAna expects it's
 cause before it, which are niShprakAraka-GYAna-s of visheShya and
-visheShana.​
+visheShana.
 
 Pure existence is imperceptible
 >
-​I hope you don't mean that it can't be uncovered. The uncovering is called
+I hope you don't mean that it can't be uncovered. The uncovering is called
 perception and it is well accepted for brahman too, otherwise how could
-anyone become brahmaGYa.​
+anyone become brahmaGYa.
 
 
 > and advaita does not subscribe to indeterminate perception unlike Nyaaya
 > or vishishtaadvaita does.
 >
-​Wow!! If niShprakAraka-GYAna is not accepted by advaitin-s then why did
-naiyAyika-s, dvaitin-s objected it and advaitin-s supported it?​
+Wow!! If niShprakAraka-GYAna is not accepted by advaitin-s then why did
+naiyAyika-s, dvaitin-s objected it and advaitin-s supported it?
 
 
 > I think Anandaji had discussed this aspect as I read before in his mail.
@@ -41,8 +41,8 @@ naiyAyika-s, dvaitin-s objected it and advaitin-s supported it?​
 > attributes are differentiable.
 >
 
-​You are going one level up. Please, stay on vyavahAra and talk about
-ghaTa-paTa-GYAna.​
+You are going one level up. Please, stay on vyavahAra and talk about
+ghaTa-paTa-GYAna.
 
 
 >
@@ -60,12 +60,12 @@ ghaTa-paTa-GYAna.​
 > me tograsp.
 >
 
-​I'm lost here. I don't understand what you are talking of. I need more
+I'm lost here. I don't understand what you are talking of. I need more
 clear version to refute or support.
 I'll again remind you that you have to talk on vyAvahArika-level and count
 even brahmaGYAna as vyAvahArika.
 
-​
+
 
 
 

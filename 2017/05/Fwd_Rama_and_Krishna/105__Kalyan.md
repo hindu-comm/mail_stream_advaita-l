@@ -27,7 +27,7 @@ On Sat, 5/20/17, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
  Appayya Dikshitha
  probably has not studied the entire Mahabharata. 
  He probably had
- most of the Mahabharata​ verses in His
+ most of the Mahabharata verses in His
  memory!
  sandhau tu samanuprApte tretAyAM dvAparasya cha |
 
@@ -46,7 +46,7 @@ On Sat, 5/20/17, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
  And again, kindly
  refrain from showing down the stalwarts of the
  tradition.
- ​​Kind
+ Kind
  rgds,--Praveen R.
  Bhat
  /*येनेदं
@@ -54,4 +54,4 @@ On Sat, 5/20/17, Praveen R. Bhat <bhatpraveen at gmail.com> wrote:
  विजानीयात्।Through what
  should one know That owing to which all this is known!
  [Br.Up. 4.5.15] */
- ​
+ 

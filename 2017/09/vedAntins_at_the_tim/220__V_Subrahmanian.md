@@ -9,7 +9,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Septem
 On Sun, Sep 17, 2017 at 9:41 PM, Praveen R. Bhat via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 
-> ​​Namaste,
+> Namaste,
 >
 > From our own list webpage:
 > http://www.advaita-vedanta.org/avhp/pre-sankara.html
@@ -22,7 +22,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > the brahmasUtras), bhartRprapanca, brahmadatta, bhartRmitra and bodhAyana.
 > //Unquote
 >
-> With that in the background, what is important​ to note though is that just
+> With that in the background, what is important to note though is that just
 > as Bhashyakara dismisses the non-Vedanta traditions as they end in duality,
 > he also dismisses some Advaita-ending schools of thought since jnAnena
 > muktiH is compromised in them. samucchaya- or upAsana-prApyamuktiH is
@@ -81,7 +81,7 @@ subbu
 > enough.
 >
 >
-> ​gurupAdukAbhyAm
+> gurupAdukAbhyAm
 > ,
 > --Praveen R. Bhat
 > /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
@@ -92,7 +92,7 @@ subbu
 >
 > > Namaste Subbuji,
 > >
-> > ​
+> > 
 > > On Sun, Sep 17, 2017 at 3:19 PM, V Subrahmanian via Advaita-l <
 > > advaita-l at lists.advaita-vedanta.org> wrote:
 > >
@@ -111,14 +111,14 @@ subbu
 > to.
 > >>
 > >
-> > Bhashyakara was not opposed to the final conclusion of ​Vrttikara's
+> > Bhashyakara was not opposed to the final conclusion of Vrttikara's
 > > Bhedabheda that Atman is brahman, but that upAsana is needed for the same
 > > even after jnAnotpatti. This is elaborately dismissed in the bhAShya
 > under
 > > tattu samanvayAt, considering all possible upAsanA options.
 > >
-> > ​
-> > ​
+> > 
+> > 
 > > Kind rgds,
 > > --Praveen R. Bhat
 > > /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

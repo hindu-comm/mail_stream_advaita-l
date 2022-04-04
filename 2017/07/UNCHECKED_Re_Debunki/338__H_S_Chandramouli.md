@@ -14,9 +14,9 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > You are not logical at all.
 >
 >
-​Namaste,
+Namaste,
 
 Cannot help it Murthy Ji. Logic has never been a strong point with me. I
 have to live with it, though.
 
-Regards​
+Regards

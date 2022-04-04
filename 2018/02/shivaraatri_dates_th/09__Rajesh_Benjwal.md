@@ -6,8 +6,8 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2018-Februa
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2018-February/048361.html)
 
-​​
-​​
+
+
 Namaste,
 
 There is no such strict single rule that "Shivaratri tidhi come on

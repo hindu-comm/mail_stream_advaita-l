@@ -17,12 +17,12 @@ wrote:
 > pUrvapaxin perspective,
 >
 
-​​Madhusudhana Sarasvati was a staunch Dvaitin who studied tarkashAstra
+Madhusudhana Sarasvati was a staunch Dvaitin who studied tarkashAstra
 under one of the greatest Nyaya teacher of His time, followed by Advaita
 Vedanta in order to refute the latter using tarka! Then He went on to study
 Purva Mimamsa to refute the same, yet it couldn't be done. Finally, He was
 Himself convinced of Advaita Vedanta and thereby refuted dvaitavAda.
-Sufficiently said.​
+Sufficiently said.
 
 
 

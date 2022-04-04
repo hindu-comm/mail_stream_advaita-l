@@ -18,7 +18,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > his best effort in his life.
 >
 
-​I'm surprised that he is proud of using such junk words as you quote ahead
+I'm surprised that he is proud of using such junk words as you quote ahead
 and that it is his best effort in life! :)
 
 
@@ -35,7 +35,7 @@ and that it is his best effort in life! :)
 > The finally proved Philosophy is the Siddhanta. This is Madhva Mata only.
 > This can be decided by scholars knowing the Yukta and Ayukta of philosophy.
 >
-​
+
 
 
 > अस्मादुत्तरपक्षोऽन्यो यस्मान्नद्यापि दृश्यते ।
@@ -50,7 +50,7 @@ and that it is his best effort in life! :)
 > this in my mind.
 
 
-​उत्तरोत्तरमुनीनां प्रमाणम् holds good only if it is a siddhAnta that
+उत्तरोत्तरमुनीनां प्रमाणम् holds good only if it is a siddhAnta that
 counters all other existent viewpoints after understanding them. Dvaitins
 do not have a clue of what mithyAtva means as we have seen many times.
 Their ridiculous arguments against AV based on the misunderstanding mithyA
@@ -67,13 +67,13 @@ tAtparyanirNaya. Every other system fails it. In Chandogya, for example,
 just taking the first लिङ्ग where उपक्रम shows the प्रतिज्ञा done was एकेन
 ज्ञानेन सर्वं विज्ञातं भवति and ended with तत् त्वम् असि in उपसंहार, one
 can see that aikya is the tAtparya of the Shruti. This first लिङ्ग itself
-fails miserably in other philosophies.​
+fails miserably in other philosophies.
 
 
 > I am depending on this excellent and superior Mata
 > agreeing with the Vedas
 
-​As shown, it fails the basic test of finding the tAtparya of the Shruti,
+As shown, it fails the basic test of finding the tAtparya of the Shruti,
 so it is completely disagreeing with Vedas.
 
 
@@ -108,8 +108,8 @@ Shruti becomes a pramANa for such aikya-jnAna.
 > Advaiti is saying all Jeevas are not different from and same as Paramatma -
 > God.
 >
-​What a start! It shows a complete misunderstanding of the terminology
-mithyA​ used by AV. These kind of examples can be used only by Dvaitins
+What a start! It shows a complete misunderstanding of the terminology
+mithyA used by AV. These kind of examples can be used only by Dvaitins
 where the assumption is that the proof will be established by shocking the
 reader. Some might think, "Oh, look Advaitins use abusive words for
 Paramatma"! The fact is that by misunderstanding AV, the dvaitins call the
@@ -130,11 +130,11 @@ the Vedas!
 > who is the OBJECT of all Gaalis - abusive words? In whose neck will all the
 > abusive words fall?
 >
-​For us, from the pAramarthika sattA, where such expression is used, the
+For us, from the pAramarthika sattA, where such expression is used, the
 abusive words is also brahman/ Ishvara, the abuser is Ishvara, the abused
 is Ishvara, abusing is Ishvara, all is Ishvara, where is the abuse then? I
 can understand the Dvaitin's misery though: bhUmA vai sukhaM, na alpe
-sukham asti​.
+sukham asti.
 
-​gurupAdukAbhyAm,
--praveen​
+gurupAdukAbhyAm,
+-praveen

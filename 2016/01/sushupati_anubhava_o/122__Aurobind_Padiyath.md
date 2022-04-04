@@ -77,10 +77,10 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >
 >
 >  >>>
->  ​
+>  
 >  kuntimaddi sadananda
->  ​ji
->  said​
+>  ji
+>  said
 >
 >  *>>>>*First answer is - a jnaani
 >  does not sleep since he has realized his

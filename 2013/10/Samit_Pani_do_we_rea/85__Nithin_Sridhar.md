@@ -139,7 +139,7 @@ On Tue, Oct 29, 2013 at 6:52 PM, Sujal Upadhyay <sujal.u at gmail.com> wrote:
 > > >
 > > >
 > > > Maybe Upanishad would mean - to stay connected to Guru via internet
-> ;)​​
+> ;)
 > > >
 > > >
 > > > OM

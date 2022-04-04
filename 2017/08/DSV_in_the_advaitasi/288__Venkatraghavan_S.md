@@ -92,7 +92,7 @@ wrote:
 > wrote:
 >
 >>
->>>> Venkatraghavanji, ​I am not sure as to what sthUla and ​sUkShma means
+>>>> Venkatraghavanji, I am not sure as to what sthUla and sUkShma means
 >>> here in terms of shuktikA-rajat example in the context of DSV.
 >>>
 >>
@@ -109,10 +109,10 @@ wrote:
 >> possibilities and landed on mUlAvidyA).
 >>
 > I think I am lost on this analysis since I don't know of (b) in the
-> example being ​discussed about even in SDV. And even if it is, my thinking
+> example being discussed about even in SDV. And even if it is, my thinking
 > is that it doesn't quite belong in DSV, where there is no difference
 > between shuktikA and rajata both in their being prAtibhAsika. I thought
-> your statement earlier so:​ "even a bhrama can be a bAdhaka jnAna for
+> your statement earlier so: "even a bhrama can be a bAdhaka jnAna for
 > another bhrama (e.g rope-stick bhrama can do a bAdha of rope-snake
 > bhrama)" should apply in all cases of DSV. What works for rajata should
 > work for shuktikA too.
@@ -133,7 +133,7 @@ wrote:
 >> it is not ajnAnena saha. (Neither is it jnAnena nivritti, but it is
 >> jnAnAbhAvAt nivritti, but let us ignore that for the sake of brevity).
 >>
-> ​How would you explain the dream world negated by the waking world and
+> How would you explain the dream world negated by the waking world and
 > viceversa. I recall you said waking has bAdha/nivRtti by dream but not so
 > the other way around. I don't see why, since there seems to be vaiShamya in
 > comparing dream world with waking world kAlatraya, but not the waking world
@@ -160,7 +160,7 @@ wrote:
 >> | अतेवोक्तं विवरणाचार्यै: - "अज्ञानस्य स्वकार्येण प्रविलीनेन वर्तमानेन
 >> वा सह ज्ञानेन निवृत्तिर्बाध " इति |
 >>
->> ​Thanks for the reference. I'll look up and see if I can make out its
+>> Thanks for the reference. I'll look up and see if I can make out its
 > necessity of application in DSV.
 >
 > gurupAdukAbhyAm,

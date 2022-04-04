@@ -21,7 +21,7 @@ subbu
 >
 > With best regards,
 > Niranjan Saha
-> ​
+> 
 >  SCAN01.pdf
 >
 >

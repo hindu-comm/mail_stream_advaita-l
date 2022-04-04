@@ -21,9 +21,9 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > existence*
 > > of the pratiyogi for the *existence* of bhedA with  it.
 > >
-> > ​
+> > 
 > Thanks for that interesting insight.
-> ​ To make that statement, we can fairly assume that such bhedaH is
+>  To make that statement, we can fairly assume that such bhedaH is
 > knowable. How can existence of bhedaH with a non-existent pratiyogin be
 > known until the non-existence of the pratiyogin is known?
 >

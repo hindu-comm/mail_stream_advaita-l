@@ -6,7 +6,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2016-Septem
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2016-September/042493.html)
 
-​​
+
 Pranams,
 
 Restrictions apply to yogic kriyA-s. We were advised not to mediitate in

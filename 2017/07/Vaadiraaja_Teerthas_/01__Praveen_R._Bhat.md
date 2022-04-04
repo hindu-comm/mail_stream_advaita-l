@@ -20,14 +20,14 @@ wrote:
 > mithya, is agreeable for both of us.
 >
 Incorrect. This is precisely why I say that mithyA is hugely misunderstood
-by dvaitins.​ It the world is mithyA, how do you say that AV says brahman
+by dvaitins. It the world is mithyA, how do you say that AV says brahman
 is different from the world?
 
 
 > There is no fight there.
 >
 We say that world is sadasadbhyAm anirvachanIyam, which is not to say that
-we are agreeable​ to brahman being different from the world. It is not sat
+we are agreeable to brahman being different from the world. It is not sat
 is only 1/4th the agreement, what about the other 3/4th to complete the
 understanding?
 
@@ -35,10 +35,10 @@ understanding?
 > The disagreement is about the very nature of this world itself, not its
 > difference from Brahman.
 >
-​The nature of the world is what leads to a conclusion as whether it is
-same, different or something other than same and/or different.​
+The nature of the world is what leads to a conclusion as whether it is
+same, different or something other than same and/or different.
 
-​​
+
 
 > So just because you know the difference, which you have asserted to be
 >> known even when the world is absolutely unreal, it has no basis to land
@@ -47,20 +47,20 @@ same, different or something other than same and/or different.​
 >
 > Dvaitins do not postulate world's existence based on the perceived
 > difference. It its other way in fact.
-> ​​
+> 
 >
 The difference is known/registered between this world and Brahman.
 >
-​
-​The other way round would mean that Dvaitins postulate the difference
-based on perceived world's existence​. Then you have erred into our pakSha
+
+The other way round would mean that Dvaitins postulate the difference
+based on perceived world's existence. Then you have erred into our pakSha
 which says that Shruti is not a pramANa for establishing difference, which
 is what you objected to!
-​
+
 
 > While former is known from pratyksha and the later by shruti.
 >
-​Precisely so, the world is pratyakSha, but its real existence is not​.
+Precisely so, the world is pratyakSha, but its real existence is not.
 brahman is known through Shruti, but its difference with the jIva is not.
 
 
@@ -68,7 +68,7 @@ brahman is known through Shruti, but its difference with the jIva is not.
 > between this world and brahman.
 >
 If you agree that an atheist will agree to difference between this world
-(which includes himself)​ from brahman, congratulations, you have erred
+(which includes himself) from brahman, congratulations, you have erred
 into our pakSha again. An atheist has also landed into duality without
 Shruti pramANa, which proves that Shruti is not a pramANa for dvaita, but
 for advaita.
@@ -91,7 +91,7 @@ or non-existent.
 
 
 >
->> ​Very good. Then if you can have vyavahAra with asat and abhAvapadArtha,
+>> Very good. Then if you can have vyavahAra with asat and abhAvapadArtha,
 >> its definitely possible to have such vyavahAra with apparent padArtha, in
 >> which case you shouldn't have any issue with AV calling the world as
 >> mithyA.
@@ -101,7 +101,7 @@ or non-existent.
 > murder case in the court unlike AV summons mithyA vEda to be evidence for
 > Brahma jnAna.
 >
-​Oh, for this viShama udhAraNa, I have to invoke Dvaitin's misunderstanding
+Oh, for this viShama udhAraNa, I have to invoke Dvaitin's misunderstanding
 of mithyA again! That we do not summon a vandhyAputra for murder case does
 not prove that we cannot invite a dream murder-witness for a dream-murder
 in dream where the accused wakes up as free from all false cases!
@@ -116,26 +116,26 @@ since the Veda is nothing but knowledge of the same entity who is waking
 into brahmajnAna by his own knowledge which is in the form of Veda. If your
 knowledge is not pramANa for you, then you should be seeing, etc, through
 someone else's sight, etc.
-​
+
 
 
 > When I said no vyavahAra if we fail to recognize bEdha between sat and
 > asat vastus -- what I meant was that either sat vastus are tread same way
 > as asat vastus, or asat vastus are treated same sat ones.
 >
-​I do not know how you treat asat vastus, since I have never treated any
-atyanta asat vastu.​
+I do not know how you treat asat vastus, since I have never treated any
+atyanta asat vastu.
 
 An example might help -- say someone apply for PAN card for a vAndyaputra
 > and also for a real person. As a issuing authority if you fail to recognize
 > the difference between two applicant -- either you issue two PAN cards or
 > do not issue anything at all :)
 >
-​No, sorry, it doesn't. Its a non-example example or at best, another
-viShama udhAraNa.​
+No, sorry, it doesn't. Its a non-example example or at best, another
+viShama udhAraNa.
 
-​The vandhyAputra cannot apply for a PAN card. One who applied with false
-documents is an existent person and so are the documents existent. ​The
+The vandhyAputra cannot apply for a PAN card. One who applied with false
+documents is an existent person and so are the documents existent. The
 authority doesn't make a differentiation between the non-existent person
 who didn't apply and another existent who applied, but on the merits of the
 existent documents of both sorts of people. So either he issues one card

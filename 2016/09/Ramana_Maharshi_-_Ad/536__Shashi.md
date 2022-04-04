@@ -107,7 +107,7 @@ Sent from my iPhone
 >>> Kripa : Apta vakya:) Credible source of information, the main source of
 >>> shraddha.‎
 >> 
->> ​<Content Clipped>
+>> <Content Clipped>
 > _______________________________________________
 > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
 > http://blog.gmane.org/gmane.culture.religion.advaita

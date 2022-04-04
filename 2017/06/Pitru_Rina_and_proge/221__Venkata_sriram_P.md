@@ -9,7 +9,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/0
 Namaste,
 
 
-नियोग​ is कलिवर्ज्य​ . Adoption is good option.  
+नियोग is कलिवर्ज्य . Adoption is good option.  
 
 Though, surrogacy is not mentioned in dharma shastra, but, the 
 parents can have a feeling of 'their own sibling' owing to artificial insemination.  

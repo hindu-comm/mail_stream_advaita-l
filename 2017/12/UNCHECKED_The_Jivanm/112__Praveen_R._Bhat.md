@@ -6,7 +6,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Decemb
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-December/047887.html)
 
-​Namaste Subbuji,
+Namaste Subbuji,
 
 Thanks, this reminds me of an incident I was told about Shridhar Swamiji by
 someone who frequently accompanied Him. Swamiji was then recently gifted a

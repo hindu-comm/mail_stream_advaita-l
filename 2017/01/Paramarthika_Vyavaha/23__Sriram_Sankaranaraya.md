@@ -11,8 +11,8 @@ Dear all,
 Can somebody give me the references in prasthanatraya where Shankara
 introduces and talks about the three types of reality?
 
-​Thanks,
+Thanks,
 Sriram
 
 
-Hamsah Soham​
+Hamsah Soham

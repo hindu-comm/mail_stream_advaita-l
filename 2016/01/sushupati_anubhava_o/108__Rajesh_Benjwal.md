@@ -12,9 +12,9 @@ Lets take few points from various replies.
 
 
 >>>
-​
+
 kuntimaddi sadananda
-​ji said​
+ji said
 
 *>>>>*First answer is - a jnaani does not sleep since he has realized his
 true nature - brahma vit brahmaiva bhavati - is the scriptural statement.

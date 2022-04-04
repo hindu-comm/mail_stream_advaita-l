@@ -18,7 +18,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > deficiencies like blind, deaf, dumb, impotent people and so on. Therefore
 > all the scolding words will apply for Him. Vadiraja is indirectly saying we
 > have to worship God with Form having all organs.
-> ​...​
+> ...
 >
 >
 
@@ -39,10 +39,10 @@ in Dvaita!
 Anyway, it just confirms that Dvaitins do not even care to understand the
 Tattvabodha of AV.
 
-​
-​
+
+
 Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

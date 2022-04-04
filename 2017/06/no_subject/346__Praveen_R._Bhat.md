@@ -20,7 +20,7 @@ wrote:
 >
 > No, I am definitely not saying that.
 >
-​Then​, I was also saying that shakti is same as Maya; I do not know how
+Then, I was also saying that shakti is same as Maya; I do not know how
 that came off any different earlier.
 
 
@@ -36,7 +36,7 @@ that came off any different earlier.
 > of Reality. Hence similarity between the two statements does not exist.
 >
 
-​All examples have that limitation, there's nothing different about such an
+All examples have that limitation, there's nothing different about such an
 objection to "similarity". Anyway, the discussion on this is unnecessary
 since you did not make the above statement of shakti = brahman.
 
@@ -44,4 +44,4 @@ Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

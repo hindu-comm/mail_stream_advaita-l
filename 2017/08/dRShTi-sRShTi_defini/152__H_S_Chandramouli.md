@@ -10,7 +10,7 @@ Namaste Praveen Ji,
 
 
 
-Reg  << The two officially recognised versions of ​DSV by sampradAya are
+Reg  << The two officially recognised versions of DSV by sampradAya are
 dRShTisamakAlInasRShTiH (DSKS creation happens in synchronisation with your
 seeing it) and dRShTiH eva sRShTiH (DES, seeing itself is creation), both
 have only two sattAs, not three. The reason I restate this is since from

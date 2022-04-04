@@ -8,4 +8,4 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2015-Novemb
 
 Happy Diwali. Sal Mubarak.
 
-​OM​
+OM

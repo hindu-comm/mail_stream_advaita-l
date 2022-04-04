@@ -25,7 +25,7 @@ avidyA too. To this, the Tikas explain that it is bAdhita-adhyAsa.
 Similarly, the world also continues with the bAdhita-adhyAsa, it need not
 get destroyed. Else prArabdha also should go and jnAni's body should fall
 off.
-​
+
 
 > We don't encounter that, so the jIvAs must be many. If jIvAs are many, is
 > avidyA one or many?
@@ -63,10 +63,10 @@ Naishkarmyasiddhi sambandhokti to chapter 3 and others on elaboration of
 verse 3.1.
 
 
-​
-​gurupAdukAbhyAm
+
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

@@ -7,7 +7,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/046179.html)
 
 Namaste Adityaji,
-​
+
 On Wed, Jul 26, 2017 at 8:19 PM, Aditya Kumar via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 
@@ -17,7 +17,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > this establish DSV or 'unreality of the world like illusion'. I think
 > Gaudapada mentions this in GK too.
 >
-​If there is only one of the two to be chosen between vyA​vahArika and
+If there is only one of the two to be chosen between vyAvahArika and
 prAtibhAsika, what makes you think that there are levels of realities
 between the two? If you choose only vyAvahArika, how do you explain dream
 then, another vyAvahAra? There is a reason no one in any AV tradition has
@@ -35,4 +35,4 @@ gurupAdukAbhyAm,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

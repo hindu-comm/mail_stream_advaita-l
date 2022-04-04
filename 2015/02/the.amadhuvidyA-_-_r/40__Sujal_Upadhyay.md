@@ -46,4 +46,4 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > attitude from the
 
 
-​<content clipped>​
+<content clipped>

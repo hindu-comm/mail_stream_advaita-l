@@ -21,7 +21,7 @@ Murali
 On 14 Dec 2017 18:40, "Praveen R. Bhat via Advaita-l" <
 advaita-l at lists.advaita-vedanta.org> wrote:
 
-> ​Namaste Subbuji,
+> Namaste Subbuji,
 >
 > Thanks, this reminds me of an incident I was told about Shridhar Swamiji by
 > someone who frequently accompanied Him. Swamiji was then recently gifted a

@@ -15,7 +15,7 @@ Reg  <<1)How does Shankara define Consciousness? >>,
 
 
 Consciousness/Chaitanyam is synonymous with Brahman/Atman. For
-​ ​
+ 
 definition, you could refer to verses 4/5 of IshAvAsyOpanishad or
  BruhadAranyaka Upanishad chapters 3-4 ( UshastHa BrahmaNa) and 3-5 (KahOla
 BrAhmaNa). There are any number of other places as well.

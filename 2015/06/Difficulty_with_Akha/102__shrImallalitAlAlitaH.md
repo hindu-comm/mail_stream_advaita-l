@@ -32,10 +32,10 @@ wrote:
 >>>
 >>> isn't ghaTA pratyakSa jnAna ?
 >>>
->> ​
+>> 
 >> do  you want to say that ghaTa-GYAna is only paroxa ?
->> ​
->> ​then many here will be able to answer you..
+>> 
+>> then many here will be able to answer you..
 >> if not, then tell clearly what you meant by this so that i could reply.
 >>
 >
@@ -44,20 +44,20 @@ wrote:
 > 1. ghaTa-jnAna gives the knowledge of the vastu ( ghaTa) ,
 >
 
-​Seriously!! ghaTaGYAna *gives *knowledge!!??
+Seriously!! ghaTaGYAna *gives *knowledge!!??
 It should be understood that ghaTaGYAna is knowledge of ghaTa, so it can't
 give itself.
-​
+
 
 
 > but not the knowledge of vastu's svarUpa,
 >
 
-​In realm of vyavahAra, ghaTa is vastu. So, ghaTaGYAna reveals vastu.
+In realm of vyavahAra, ghaTa is vastu. So, ghaTaGYAna reveals vastu.
 Why do you expect ghaTaGYAna to reveal vastu-svarUpa, which is brahman in
 vyavahAra-kAla?
 That will make ghaTaGYAna similar to brahmaGYAna!!
-​
+
 
 
 > whereas, jnAna of pratyagAtma is svarUpa jnAna (abhEda),   ...
@@ -66,9 +66,9 @@ That will make ghaTaGYAna similar to brahmaGYAna!!
 > akhanda..
 >
 
-​Not like that.​
+Not like that.
 
-​Let me ask you, what do you mean by knower remains different from ghaTa?
+Let me ask you, what do you mean by knower remains different from ghaTa?
 According to vedAntin-s, ghaTa becomes pratyaxa only when it becomes one
 with you, although such oneness of pramAtRprameyachainaya-s is not accepted
 as cause of liberation. Please, check vedAnta-paribhAShA for clarity.
@@ -87,4 +87,4 @@ All vRttti-GYAna-s are sakhaNDa in the sense you and others are talking.
 And, the brahman, which is pure knowledge/consciousness, although akhaNDa
 is not aGYAna-virodhI. So, you can't say that ghaTa-GYAna is vRtti-rUpa and
 hence skhaNDa, but brahmaGYAna is one with brahman and hence akhaNDa, too.
-​
+

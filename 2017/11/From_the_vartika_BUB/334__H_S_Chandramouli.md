@@ -34,14 +34,14 @@ On Tue, Nov 28, 2017 at 10:14 AM, H S Chandramouli <hschandramouli at gmail.com
 >>
 >>
 >>
->> ​T
+>> T
 >> he discussion is indeed getting  curious.The four verses cited (16 and
 >> 18 to 20
->> ​
+>> 
 >> are
->> ​
+>> 
 >> from BUBV) are the same as the ones
->> ​cited
+>> cited
 >>  by me !!!! Only I have cited only verses 18 and 19. And I have not cited
 >> the commentary of Sri Ananda Giri. But we have arrived at entirely opposite
 >> conclusions !!!! I have based my understanding of  the verses on the
@@ -54,9 +54,9 @@ On Tue, Nov 28, 2017 at 10:14 AM, H S Chandramouli <hschandramouli at gmail.com
 >>
 >>
 >> I have nothing more to add.
->> ​
+>> 
 >> I think we just have to agree to disagree
->> .​
+>> .
 >>
 >>
 >>

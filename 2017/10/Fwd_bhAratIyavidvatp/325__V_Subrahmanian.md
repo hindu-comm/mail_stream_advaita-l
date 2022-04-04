@@ -30,11 +30,11 @@ https://archive.org/search.php?query=creator%3A%22Dr.M.V.R.Sharma%22&page=2
 In case you prefer to hear via podcast players, consult
 https://goo.gl/MrJv7c as usual.
 
-​Enjoy and jaya shrI rAma, jaya hanuman.​
+Enjoy and jaya shrI rAma, jaya hanuman.
 
 
-*​mahAbhArata recording project*​
-​mahAbhArata is the panchama-veda and should reside in every hindu's heart;
+*mahAbhArata recording project*
+mahAbhArata is the panchama-veda and should reside in every hindu's heart;
 but alas one has no means to listen to it in sanskrit. So, I've heard the
 Illiad and Odyssey but not bhArata.
 
@@ -52,7 +52,7 @@ need is a smartphone with an appropriate mp3 recording app (eg. ASR
 <https://play.google.com/store/apps/details?id=com.nll.asr&hl=en> on
 android).
 
-​kRShNAya​ tasmai namaH.
+kRShNAya tasmai namaH.
 
 -- 
 --

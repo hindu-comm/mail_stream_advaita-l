@@ -14,7 +14,7 @@ lalitaalaalitah at gmail.com> wrote:
 >
 
 Here is third shloka:
-​https://archive.org/details/paramahaMsapriyA-3-shlokaH​
+https://archive.org/details/paramahaMsapriyA-3-shlokaH
 This is last one.
 paramahaMsapriyA completed.
 

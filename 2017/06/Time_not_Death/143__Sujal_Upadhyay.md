@@ -8,7 +8,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/0
 
 Nope, no doubt.
 Thank you.
-​
+
 
 On Tue, Jun 20, 2017 at 12:24 PM, H S Chandramouli <hschandramouli at gmail.com
 > wrote:

@@ -19,7 +19,7 @@ On Mon, Mar 18, 2013 at 1:36 AM, Naresh Cuntoor <nareshpc at gmail.com> wrote:
 >
 
 I can't anything like that in my postings.
-​​
+
 
 > It only means a woman who cannot have a biological offspring.
 > So the problem is in equating putrahInA or vandhyaa with 'woman' without
@@ -30,11 +30,11 @@ I can't anything like that in my postings.
 
 I just took visheShyAMsha to show that visheShya-s are quite different.
 Nothing more was wished to be conveyed.
-​​
+
 
 > > either useful or useless. This much regarding difference of visheShya
 > part.
-> > Talking of visheShNAMshsa, putrahInA means ​​putrAbhAvaH and this is
+> > Talking of visheShNAMshsa, putrahInA means putrAbhAvaH and this is
 > > certainly not the meaning of word putraH.
 > > So, I don't see any repetition.
 > >
@@ -45,7 +45,7 @@ Nothing more was wished to be conveyed.
 
 OK. So, you were always talking about some sentence and it's meaning while
 we all were talking about a padArtha.
-​​
+
 
 > > However, what you conceive as repetition comes only after we add another
 > > word to the word vandhyAputraH to make a sentence. But, that must have
@@ -61,11 +61,11 @@ we all were talking about a padArtha.
 
 
 OK.
-​​
+
 
 > Then the uttarapada adds putraH.
 
 
 So, what ? putraH doesn't mean 'a woman who doesn't have a son'.
-​​
+
 

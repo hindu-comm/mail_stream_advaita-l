@@ -76,7 +76,7 @@ what can be really said about that is that absolute consciousness just is!
 
 Hope this helps.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

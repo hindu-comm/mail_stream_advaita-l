@@ -28,8 +28,8 @@ correction. If I do not get it now, I may get it at a proper time.
 > is my understanding.
 >
 
-​Please give me a day or two to reply.
+Please give me a day or two to reply.
 
 Kind Regards
-Sujal​
-​​
+Sujal
+

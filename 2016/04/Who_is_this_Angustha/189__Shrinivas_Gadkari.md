@@ -12,7 +12,7 @@ In your message, copied below, after detailed description of the Anahata chakray
 Can you explian further? Normal meaning of the word "bhAvanA" is sentiments.
 Regards,Shrinivas Gadkari
 -------------------------------------------------------------------------------------------------------------------......In this vAyu maNDala, there is a triangle (त्रिकोण) that faces downwards. Amidst this
-त्रिकोण​, one gets the vision of a linga of golden hue. This linga is called बाण लिंङः.
+त्रिकोण, one gets the vision of a linga of golden hue. This linga is called बाण लिंङः.
 
 All these yOga rahasyAs that are based on भावना  only.....
 regs,

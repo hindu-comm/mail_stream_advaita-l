@@ -53,7 +53,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > >> incarnated to unify us.
 > >>
 > >
-> ​<content Clipped>​
+> <content Clipped>
 >
 > This takes us to another related point that Clark makes: I am grouping two
 > of his remarks here:
@@ -86,6 +86,6 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > just because you brought his views with a question:
 > //What do the learned members of this list think of these observations?//
 >
-> ​<content Clipped>​
+> <content Clipped>
 >
 >

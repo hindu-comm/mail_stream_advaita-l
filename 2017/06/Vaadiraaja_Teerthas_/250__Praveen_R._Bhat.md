@@ -7,7 +7,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/0
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/045587.html)
 
 Namaste Venkateshji,
-​
+
 On Thu, Jun 22, 2017 at 1:58 PM, Venkatesh Murthy via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 >
@@ -29,16 +29,16 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > Dvaitis want to see Abheda.
 >
 
-​That is not true. We say that the Shruti has एक​वाक्यता in that all the
+That is not true. We say that the Shruti has एकवाक्यता in that all the
 sentences of the Shruti have commitment in revealing oneness. Some
 directly, being महावाक्यs and some indirectly, क्रमेण, being अवान्तरवाक्यs.
 So this understanding/ argument of Vadiraja is also incorrect.
 
-​He is also using the logic of convenience by selectively taking to
-Advaita​ between both kANDas, while being a dvaitin. Why do they not use
+He is also using the logic of convenience by selectively taking to
+Advaita between both kANDas, while being a dvaitin. Why do they not use
 the same logic and fix the fault of making only one deity as the greatest
 and all other inferior then?
-​​
+
 
 > तत्स्वतस्त्वेन सर्वत्र प्रामाण्यं गृह्यते श्रुतौ ।
 >
@@ -49,9 +49,9 @@ and all other inferior then?
 > solidly Unshakable.
 >
 
-​And we do not disagree, but just as you can't teach your own son e=mc^2
+And we do not disagree, but just as you can't teach your own son e=mc^2
 when he is a child, so too the Shruti doesn't teach a child equation of
-oneness till one grows using the karmakANDa.​
+oneness till one grows using the karmakANDa.
 
 >
 > अतत्त्वावेदकत्त्वोक्तिरतो वेदे न शोभते ।
@@ -86,8 +86,8 @@ oneness till one grows using the karmakANDa.​
 > Sruti having contradictory meaning another meaning and make the quarrel of
 > the two Srutis go away.
 >
-​​Its poetic alright, but that itself shows that to make dvaita appear as
-the commitment of Shruti everywhere, Dvaitins ​are willing to interpret it
+Its poetic alright, but that itself shows that to make dvaita appear as
+the commitment of Shruti everywhere, Dvaitins are willing to interpret it
 any which way by adding words, removing something, etc... and so the
 following flaw applies to them and not us.
 
@@ -100,7 +100,7 @@ following flaw applies to them and not us.
 > meaning it reveals Yathartha Tattva one Sruti will lose Praamaanya. It is
 > like killing Sruti.
 >
-Here's the contradiction. ​If its yatArtha tattva, then it should not be
+Here's the contradiction. If its yatArtha tattva, then it should not be
 interpreted differently in order to make all statements mean the same as
 suggested by the same author couple of verses back! The contradiction is
 resolved by Advatins by showing that there is no contradiction at all since

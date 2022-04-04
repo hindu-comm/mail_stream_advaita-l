@@ -15,16 +15,16 @@ wrote:
 > As you are no doubt aware, there are two well recognized prakriyas in SDV,
 > namely adhyArOpa-apavAda prakriyA and avasthAtraya prakriyA.
 >
-​Sure, there are many viveka prakriyAs in SDV, one of them being the
+Sure, there are many viveka prakriyAs in SDV, one of them being the
 avasthAtraya viveka, which can be used for mithyAtvanischaya of the
 avasthAs themselves, landing into a self which is different from it.
 However, I have voiced earlier that since the dream itself has far-reaching
 implications, its very likely that SDV changes to DSV in the avasthAviveka.
-​​
+
 
 > The issue you have pointed out is covered in the second prakriyA.
 >
-​The total being resolved into an individual is definitely more DSV than
+The total being resolved into an individual is definitely more DSV than
 SDV, and that is what I have pointed out.
 
 
@@ -32,7 +32,7 @@ SDV, and that is what I have pointed out.
 > “AvasthAtraya Chandrike’,  “ParamArtha ChintAmaNi “  etc. You may like to
 > refer to them.
 >
-​Thanks, but I can barely read Kannada​ words! Even in other languages, I'm
+Thanks, but I can barely read Kannada words! Even in other languages, I'm
 very choosy with what I read. I prefer to stick to main prasthAnatraya or
 prakraNas than anything else.
 
@@ -55,11 +55,11 @@ Infact , in my understanding, the vyaShTi perspective  is what Swami
 > Vidyaranya  covers in anubhutiprakasha  as driShTi sriShTi which was
 > discussed in the other thread.
 >
-​And hence, I said its DSV, more than SDV.​
+And hence, I said its DSV, more than SDV.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

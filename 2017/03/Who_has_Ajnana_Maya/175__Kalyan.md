@@ -10,7 +10,7 @@ Dear Sri Praveenji
 
 
 // The reality of
- the "really affected" ​is at the same level of
+ the "really affected" is at the same level of
  reality as
  the world which is vyAvahArika.
  On the pAramarthikA level, the jIva which
@@ -32,18 +32,18 @@ If the Atman getting affected by misery is a vyavahArika satya, then there is no
 I find nothing in the bhAshya on 13.2 that logically addresses the question. 
 
 
-// ​​What Des Cartes says is irrelevant to
+// What Des Cartes says is irrelevant to
  Vedanta; "I think therefore I am"
  is putting the cart before the horse, according
  to any Vedanta flavour you
  pick. You have to
- exist before you can think.​ //
+ exist before you can think. //
 
 
 The statement of Des Cartes is not causal. It is inferential. Yes, I have to exist first to think, perceive etc. What Des Cartes is saying is that the latter implies the former. It is because I think and perceive, that I can be sure of my existence.
- ​
+ 
 
- ​//Then do
+ //Then do
  you learn that you were unconscious from someone else after
  waking
  up?//

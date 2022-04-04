@@ -10,7 +10,7 @@ PraNAms to all.
 
 Recieved this from Shree Sunder Chaitanya of Chinmaya International Foundation. Please pass this on to all those who may be interested. 
 
-The following is the information about the Summer School - 2015. There will be the textual study of the Vakyapadiyam along with lectures other aspects of the Indian Philosophical traditions pertaining to the topic of The Word and The World.​
+The following is the information about the Summer School - 2015. There will be the textual study of the Vakyapadiyam along with lectures other aspects of the Indian Philosophical traditions pertaining to the topic of The Word and The World.
 
 Chinmaya International Foundation (CIF) in Kerala and Manipal University (MU) are jointly organizing a two-week international Summer School this year for the university students and scholars on The Word and the World – A Philosophical Inquiry from July 13-25, 2015.
 

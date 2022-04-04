@@ -16,7 +16,7 @@ advaita-l at lists.advaita-vedanta.org>:
 > > रामानुजान् मारयितुं प्रयतितवन्तः इति प्रतीतिः वर्तते ।
 >
 >
-> ​प्रतीतिरेव वर्तते न तु सत्यम्। :)
+> प्रतीतिरेव वर्तते न तु सत्यम्। :)
 >
 
 Well said. In advaita all objects and events have only 'प्रातीतिकसत्ता’ .

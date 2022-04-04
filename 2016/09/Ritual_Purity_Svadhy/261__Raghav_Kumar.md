@@ -68,7 +68,7 @@ On 09-Sep-2016 4:35 pm, "Raghav Kumar" <raghavkumar00 at gmail.com> wrote:
 > self-knowledge)
 >
 > Om
-> ​​
+> 
 > Pranams,
 >
 > Restrictions apply to yogic kriyA-s. We were advised not to mediitate in

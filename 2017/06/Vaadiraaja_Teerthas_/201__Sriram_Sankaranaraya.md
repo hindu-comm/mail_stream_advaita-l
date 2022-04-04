@@ -29,14 +29,14 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > already got all the knowledge that he/she could absorb from the vedas. Thus
 > vedas have no further utility *as vedas* to the mukta.
 >
-​
+
 But then this clearly indicated that Gyana is indeed the means to Mukti.
 Because it is at Mukti that you don't get any new gyana from veda. So till
 you are at mukti, you get/need to get gyana from veda. So it is indeed the
 complete achievement of Gyana that is mukti. This will then contradict the
 dvaita/Visishtadvaita stand that one first gets gyana, and then from that
 gyana they perform bhakti/karma etc and in turn only re-inforce Advaita.
-​
+
 
 
 >
@@ -45,7 +45,7 @@ gyana they perform bhakti/karma etc and in turn only re-inforce Advaita.
 > brahman remains.
 >
 
-​What makes the "real" bonds with ​father suddenly dissolve? What, in
+What makes the "real" bonds with father suddenly dissolve? What, in
 contrast, makes the bond with Brahman not dissolve? If there is a
 difference that way, doesn't the more temporary bond with father have a
 lesser reality compared to the bond with Brahman? Doesn't that give a very

@@ -16,7 +16,7 @@ To me, it seem to have referring to Kudali which is situated at the banks of the
 two rivers Tunga & Bhadra.  Also, it is said that the Sarada was installed then and there itself
 where Mother stood on the sand.  It is said that the same sand where Mother stood is 
 still preserved and worshipped in Kudali Mutt and it is interesting to note that the muttadhipati-s of that
-pITa has the yOgapaTTa starting with "वालुक​" which implies "sand" in Sanskrit.  
+pITa has the yOgapaTTa starting with "वालुक" which implies "sand" in Sanskrit.  
 
 Some say, Mother Sarada has been installed with aSTa-dikbandhana of vanadurga mantra :))
 

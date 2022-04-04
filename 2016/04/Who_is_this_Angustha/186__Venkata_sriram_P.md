@@ -15,7 +15,7 @@ Ramana Maharshi says it is to the right side of our chest
 
 //
 
-Traditional scholars differ with the above.  In-fact, दहरपुण्डरीक​ is said to be
+Traditional scholars differ with the above.  In-fact, दहरपुण्डरीक is said to be
 in the physical heart.  This is what I am told by couple of traditional scholars
 who studied in Sringeri.
 

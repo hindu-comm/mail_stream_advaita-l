@@ -27,7 +27,7 @@ I chanted and the result was obvious !
 O Mother ! Give me beautiful wife who obeys me and who can help me in get out of 
 ocean of samsaara (world) and is born in a good family.
 
-The above shloka is from अर्गळा स्तोत्रं which is recited along with चण्डी पारायण​.  
+The above shloka is from अर्गळा स्तोत्रं which is recited along with चण्डी पारायण.  
 
 ............
 does Advaita agree with Yogic doctrines regarding the spiritual and physical effects of becoming an Urdhvareta? 

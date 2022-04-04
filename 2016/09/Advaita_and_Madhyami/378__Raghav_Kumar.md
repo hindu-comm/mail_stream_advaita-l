@@ -76,18 +76,18 @@ On 18-Sep-2016 4:38 pm, "H S Chandramouli" <hschandramouli at gmail.com> wrote:
 >>>>
 >>>>
 >>>
-> ​         ​
+>          
 >  Reg  <<  Can we take some common minimum principles to be necessary or
 > sufficient to
-> ​           ​
+>            
 > be counted as a sadhvI prakriyA of the advaita tradition ? >>,
 >
 >
 >
-> ​           ​
+>            
 > there are ever so many prescribed in the sruti/smriti/purANa/itihasa etc.
 > I am not sure why
-> ​           ​
+>            
 > such a doubt should arise.
 >
 >

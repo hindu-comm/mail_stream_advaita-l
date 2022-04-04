@@ -9,7 +9,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2019-Januar
 praNAms Sri Sriram prabhuji
 Hare Krishna
 
-For we advaitins, it is immaterial whether Shiva is great or Vishnu is great; for us it is 'मायाशबल ब्रह्म​' ... Yes, for personal worship, one can consider मायाशबल ब्रह्म to be Rama, Krishna, Shiva, Vishnu, Devi etc.
+For we advaitins, it is immaterial whether Shiva is great or Vishnu is great; for us it is 'मायाशबल ब्रह्म' ... Yes, for personal worship, one can consider मायाशबल ब्रह्म to be Rama, Krishna, Shiva, Vishnu, Devi etc.
 
 > yes, for the advaitins hari, hara, devi etc. saguNa brahma (kArya brahma or sOpAdhika brahma) only nothing more nothing less than that, and it is immaterial for us who is superior to who  and who is inferior to who and who wears what and in which shape since all are capable of giving the mumukshu the 'krama mukti' 😊 But it is quite amusing to read our advaitins perspective (ofcourse in the zeal of showing hara is noway inferior to hari) that is trying to convince the readers that hara is superior and hari (Vishnu) too wearing the bhasma to propitiate hara 😊 This is,  in my opinion, clearly shows, we the socalled advaitins too somehow bigoted to prove some deity Is superior to some other deity.  Though all these have been said to efface the bigoted views of dvaitins (Shaiva-s and vaishNava-s), we, ourselves, succumbing to this "my daddy strongest" trap without our knowledge. 
 

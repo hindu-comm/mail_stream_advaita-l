@@ -10,7 +10,7 @@ Namaste,
 
 Thanks for the answer.
 
-​>>
+>>
 We have somany questions on waking and dream states since it varies from
 individual to individual due to upAdhi-s bedha,  whereas nobody would ask
 the question about one's anubhava of deep sleep state since it is the state
@@ -40,7 +40,7 @@ On Thu, Jan 14, 2016 at 3:32 PM, Bhaskar YR <bhaskar.yr at in.abb.com> wrote:
 > jnAni and jnAni, ajnAni and ajnAni since the 'experience' of sushupti is
 > same for one and all.  Hence no question/doubt on the experience of deep
 > sleep state.
-> ​​
+> 
 > We have somany questions on waking and dream states since it varies from
 > individual to individual due to upAdhi-s bedha,  whereas nobody would ask
 > the question about one's anubhava of deep sleep state since it is the state

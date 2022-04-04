@@ -22,7 +22,7 @@ On Wed, Mar 26, 2014 at 11:04 AM, Sujal Upadhyay <sujal.u at gmail.com> wrote:
 > > according to TIkA of shrI-vidyAraNya and many pATha-bheda-s are in
 > > footnotes. This is a new work.
 > > And, if you would have read carefully, you could have easily found that
-> > Taralabulu site is ​taking of sUta-saMhitA-mImAMsA and not sUta-saMhitA
+> > Taralabulu site is taking of sUta-saMhitA-mImAMsA and not sUta-saMhitA
 > > with translation. And, you could also have found that the publisher
 > > mentioned by the site is vidyAbhavan .... and not daxiNAmUrti-maTha.
 >
@@ -60,12 +60,12 @@ On Wed, Mar 26, 2014 at 11:04 AM, Sujal Upadhyay <sujal.u at gmail.com> wrote:
 > > > Sanskrit Pustkalaya, Varanasi H.O., Varanasi
 > > >
 > >
-> > ​Sure !
+> > Sure !
 > > This is not a Phd or something. It is a translation of sUtasaMhitA
 > > according to TIkA of shrI-vidyAraNya and many pATha-bheda-s are in
 > > footnotes. This is a new work.
 > > And, if you would have read carefully, you could have easily found that
-> > Taralabulu site is ​taking of sUta-saMhitA-mImAMsA and not sUta-saMhitA
+> > Taralabulu site is taking of sUta-saMhitA-mImAMsA and not sUta-saMhitA
 > > with translation. And, you could also have found that the publisher
 > > mentioned by the site is vidyAbhavan .... and not daxiNAmUrti-maTha.
 > >

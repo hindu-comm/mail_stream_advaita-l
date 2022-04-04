@@ -25,14 +25,14 @@ The शीक्षा वल्ली has a typical advice for students.
 Let the bad habits of sampradaya teachers be ignored by student and one
 should recognise, accept and emulate the good in them.  
 
-Also, in स्वाध्याय ब्राह्मण (द्वितीय प्रपाठकं) of तै०आरण्यक​ vide 15th anuvAka, there is a rik that says:
+Also, in स्वाध्याय ब्राह्मण (द्वितीय प्रपाठकं) of तै०आरण्यक vide 15th anuvAka, there is a rik that says:
 
 "तस्मात् ब्राह्मणेभ्यो वेदविद्भ्यो दिवे दिवे नमस्कुर्यान्नाश्लीलं कीर्तयेत्"
 
 The words 'न अश्लीलं कीर्तयेत्' implies that one should not point out & discuss the 
 bad deeds of vedic scholars & acharyas.
 
-The आचार्य​-शिष्य परम्परा of vedic age was a wonderful relation in those days !
+The आचार्य-शिष्य परम्परा of vedic age was a wonderful relation in those days !
 
 regs,
 sriram

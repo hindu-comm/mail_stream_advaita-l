@@ -18,7 +18,7 @@ wrote:
 > lalitaalaalitah at lalitaalaalitah.com> wrote:
 >
 >>
->> ​No difference. You just went for sUtra-s, while I mentioned adhikaraNa-s.
+>> No difference. You just went for sUtra-s, while I mentioned adhikaraNa-s.
 >>
 >
 > Okay,  thanks.
@@ -28,16 +28,16 @@ wrote:
 >> But, it will be better if you could present your present understanding of
 >> three adhikaraNa-s and the problems you are facing.
 >> Then I will be able to help you understand the parts which are tricky or
->> unfamiliar.​
+>> unfamiliar.
 >>
 >
 > Here is what I understand:
 >
 >    - All karmas given as vidhis in the Shruti have a result,
 >
-> ​​First you will have to correct your wording, which will come out from
+> First you will have to correct your wording, which will come out from
 understanding of correct usage. I'll correct the first part of sentence as:
-All karma-s prescribed by vidhivAkya-s​.
+All karma-s prescribed by vidhivAkya-s.
 Why?
 Because karma is not same as vidhi.
 karma is dhAtvartha, i.e. yAga, homa, etc.
@@ -51,7 +51,7 @@ in saMskRta.
 So, karma is different from vidhi.
 Hence, you can't use 'karma-s given as vidhi' which expresses abheda or
 tAdAtmya of both.
-​
+
 
 
 >
@@ -80,7 +80,7 @@ anything which is neither sukha(pleasure) nor it's means.
 So, to make vedAdhyayana equipped with such a fruit which motivates
 student, we imagine results(which are desired by puruSha) related with
 meaning of veda without neglecting the arthaGYAna(which is dRShTafala) .
-​
+
 
 >
 >    -
@@ -95,7 +95,7 @@ and their meaning indirectly. They are trying to get best meaning of
 veda-s, which are in the form of vAkya-s. So, they will make the vidhivAkya
 complete by anuSha~Nga of fala-vAchaka-pada from elsewhere. They are not
 going to imagine a result directly. Why ? Because the imagination of
-artha(result)​ is not going to make the sentence complete. You can complete
+artha(result) is not going to make the sentence complete. You can complete
 a sentence with word(shabda), not with artha(result).
 
 So, 4.35 says that the word which reminds result will be dragged to present
@@ -115,15 +115,15 @@ But, I mentioned it to reveal the secret of that system.
 >    - There are karmas which may be subsidiary to a main karma which have
 >    the same result as the main result, being part of it.
 >
-> ​This is not connected to present problem.​
+> This is not connected to present problem.
 
 >
 >    - If the result is not found to be connected elsewhere, it is svargaH,
 >    by ekavAkyatA, since it (happiness) is desired by all.
 >
-> ​I can't understand this sentence.
+> I can't understand this sentence.
 I will prefer:
-If the result (= word reminding result) is not found​ in present
+If the result (= word reminding result) is not found in present
 vidhi-vAkya, then it is svarga(the word svarga).
 
 I also don't understand why you said ekavAkyatA.
@@ -135,7 +135,7 @@ result.
 >    - Although this is discussed in the context of kAmyakarma, the same
 >    applies to nityanaimittika karma also.
 >
-> ​Not true from point of view of mImAmsaka-s.
+> Not true from point of view of mImAmsaka-s.
 vishvajidadhikaraNa-nyAya applies to kAmya-s.
 
 Here what I know is:
@@ -152,7 +152,7 @@ While bhagavatpAda adds to it:
 फलान्तरोत्पत्तिः इति प्रमाणमस्ति, फलान्तरस्याप्यनुनिष्पादिनः सम्भवात् ;
 स्मरति हि आपस्तम्बः — ‘तद्यथा आम्रे फलार्थे निमित्ते छायागन्धावनूत्पद्येते
 एवं धर्मं चर्यमाणम् अर्था अनूत्पद्यन्ते’ इति ।
-​
+
 
 >
 >    -
@@ -161,7 +161,7 @@ While bhagavatpAda adds to it:
 > correct) that whether the inference is correct in relation to nityakarma
 > too.
 >
-​No, since even without imagination of any other result vidhi-vAkya is
+No, since even without imagination of any other result vidhi-vAkya is
 enough to generate pravRtti just because the nimitta is available.
 Since अकुर्वन्विहितं कर्म ----नरः पतनमृच्छति says that  negligence of karma
 causes fall, so to avoid the fall people will perform the karma, even when
@@ -174,7 +174,7 @@ validity of vidhi-vAkya-s will stay intact.
 
 And, other cause of not imagining result is that there are vAkya-s (धर्मेण
 पापमपनुदति) which clearly says that pApa-xaya is result of
-nitya-naimittika-karma.​
+nitya-naimittika-karma.
 We have कर्मणा पितृलोकः shruti too.
 And, यज्ञेन विविदिषन्ति ।
 And तपसा कल्मषं हन्ति ।
@@ -185,7 +185,7 @@ So, by संयोगपृथक्त्वन्याय nitya-namittika-ka
 
 > The next question is what is the Vedanta view w.r.t. this.
 >
-​vedAnta also says same that pApa-xaya, etc. are results of
+vedAnta also says same that pApa-xaya, etc. are results of
 nitya-naimittika-karma.
 
 धर्मेण पापमपनुदति etc are shruti-s. So we vedAntin-s can't neglect them. We
@@ -199,7 +199,7 @@ Would it also be possible to cover the flip side of this, which is akaraNe
 smRiti is able to cover this:
 अकुर्वन् विहितं कर्म निन्दितं च समाचरन् ।
 प्रसञ्जञ्श्चेन्द्रियार्थेषु नरः पतनमृच्छति ॥
-​
+
 If I find/remember any shruti/nyAya, I'll write it later.
 Till then this post should not be kept as draft. So, pressing send button
 now.

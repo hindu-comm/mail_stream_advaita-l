@@ -15,7 +15,7 @@ Everything in Waking is like in a dream.
 तथैव जाग्रत्कालेपि प्रपञ्चोयं विविच्यताम ॥ (मानसोल्लासः - १.९)
 
 The above shloka is from Sureshwaracharya vide Manasollasa while commenting 
-on the 1st shloka of Dakshinamurthi stotram (विश्वं दर्पण​....).
+on the 1st shloka of Dakshinamurthi stotram (विश्वं दर्पण....).
 
 Ultimately, everything boils down to "दीर्घस्वप्नं इदं जगत्".
 

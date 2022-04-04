@@ -40,7 +40,7 @@ be understood as the kArana for adhyAsa itself per se.
 > As you have yourself clarified, avidya having Brahman as locus is to be
 understood as avidya being the adhyasta and Brahman as adhishthAna, one
 being
->mithya​ ​(​ unreal​)​ and the other real.
+>mithya ( unreal) and the other real.
 
 I am not saying avidyA is adhyasta on Brahman, I am saying avidyA is, to
 use Shankaracharya's words, tattvanyatvAbhyAm anirvachanIya, incapable of

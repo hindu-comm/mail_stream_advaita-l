@@ -48,7 +48,7 @@ Pl find enclosed the invitation for the Inter-Patashala Vedic Competition -
 Public Participation Events- Invite. Besides the scanned copy of the
 invitation, a personal invite from the desks of the Trustees and Volunteers
 is also enclosed. We look forward to me
-​​
+
 et you at the event in Chennai.
 
 Thanks and regards

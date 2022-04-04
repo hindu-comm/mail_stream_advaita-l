@@ -13,7 +13,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > born and come again to Vaidika Marga?
 >
 
-​There is no rule that one who goes to vaikuNTha or kailAsa get
+There is no rule that one who goes to vaikuNTha or kailAsa get
 kaivalya(the moxa according to vedAnta), that too without vedAntArtha-GYAna.
 IshvarAnugraha or kailAsa-vaikuNTha is no guarantee for kaivalya. You need
 mahAvAkyArtha-GYAna, either here or from shiva-viShNu in their loka.

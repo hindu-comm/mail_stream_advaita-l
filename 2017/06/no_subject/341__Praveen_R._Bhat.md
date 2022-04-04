@@ -19,11 +19,11 @@ wrote:
 > grammatically ?
 >
 
-​Grammatically, मायी itself means माया अस्य अस्ति इति मायी one who has
-(=wields) mAyA is a mAyin.​ So I wouldn't use मायायाः मायी।
+Grammatically, मायी itself means माया अस्य अस्ति इति मायी one who has
+(=wields) mAyA is a mAyin. So I wouldn't use मायायाः मायी।
 
 Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

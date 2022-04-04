@@ -16,19 +16,19 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > that object, whereas now he is *ruling out the necessity of the existence*
 > of the pratiyogi for the *existence* of bhedA with  it.
 >
-> ​
+> 
 Thanks for that interesting insight.
-​ To make that statement, we can fairly assume that such bhedaH is
+ To make that statement, we can fairly assume that such bhedaH is
 knowable. How can existence of bhedaH with a non-existent pratiyogin be
 known until the non-existence of the pratiyogin is known?
-​If it cannot be
-, then the​
+If it cannot be
+, then the
 refutation of the absurdity of the bhedaH with non-existent pratiyogin
 would not be much different from Ch. Up.
-​6.2.1 mantra
-​and especially the bhAShya ​
+6.2.1 mantra
+and especially the bhAShya 
 refuting asadevedamagra AsI
-​dekamevAdvitIyam.​
+dekamevAdvitIyam.
 
 In any case, it has no purpose as you mentioned, even compared to
 kAkadantaparIkShA.
@@ -37,4 +37,4 @@ Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

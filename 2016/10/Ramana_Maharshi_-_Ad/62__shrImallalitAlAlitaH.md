@@ -15,27 +15,27 @@ wrote:
 > they know Ishvara too. So it cannot be argued that the tattvas are
 > completely unknown.
 >
-​First of all, these are not those tattva-s which are said to be one by
+First of all, these are not those tattva-s which are said to be one by
 shruti.
 The parichchhina-chaitanya is not tattva.
-So, no knowing these two is not enough.​
+So, no knowing these two is not enough.
 
 > For an uttamAdhikAri who is taught 'brahmaivAham asmi' as part of SandhyA
 > upAsana,
 >
-​Taught?
+Taught?
 By whom?
-If he was taught, then you are in my camp, not other's.​
+If he was taught, then you are in my camp, not other's.
 BTW, just 'hearing' a sentence from someone somewhere can't be termed as
 learning the same. More so when the meaning was never taught.
 
 > no one can definitively say it is impossible to understand through vichAra
 > the true meanings of I and Brahman for that  aikya vAkya to have tAtparya.
 >
-​What this vichAra is? I'll give you some time to ponder.
+What this vichAra is? I'll give you some time to ponder.
 Think about the nature of vichAra. And, when you are sure that it is not a
 prAmANa, then I'll look at rest of your post.
-If I continue now, I'll have to propound many things.​
+If I continue now, I'll have to propound many things.
 Moreover, I don't want to continue by assuming any of your faults(wrong
 ideas) granted. It increases complexity of my answers.
 

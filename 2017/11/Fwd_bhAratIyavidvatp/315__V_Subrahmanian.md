@@ -14,7 +14,7 @@ workshop
 To: "भारतीयविद्वत्परिषत्" <bvparishat at googlegroups.com>
 Cc:
 
-​​
+
 Dear All,
 
 Namaste.
@@ -31,7 +31,7 @@ Pandurangi. These two Nyaya scholars are like fire and fuel. The team
 members acted like the altar in this *jnana-yajna*. The boarding and
 lodging was excellent at Aksharam!
 
-In his thought provoking keynote address, Satavadhani Dr. R. Ganesh​ Ji,
+In his thought provoking keynote address, Satavadhani Dr. R. Ganesh Ji,
 emphasized the importance, contemporaneity and supremacy of ancient Indian
 knowledge. Each lecture was followed by a question answer session. Prof.
 Ashok Aklujkar Ji, a well known international Sanskrit scholar of repute

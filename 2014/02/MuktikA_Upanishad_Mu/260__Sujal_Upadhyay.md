@@ -26,7 +26,7 @@ Mandukya is enough. Please can you check and give correct translation.
 विदेहमुक्ताविच्छा चेदष्टोत्तरशतं पठ .
 तासां क्रम सशान्तिं च श्रुणु वक्ष्यामि तत्त्वतः .. २९..
 
-​I-i-26-29. But by what means is the Kaivalya kind of Moksha got ? The
+I-i-26-29. But by what means is the Kaivalya kind of Moksha got ? The
 Mandukya is enough; if knowledge is not got from it, then study the Ten
 Upanishads. Getting knowledge very soon, you will reach my abode. If
 certainty is not got even then, study the 32 Upanishads and stop. If
@@ -79,7 +79,7 @@ only.
 
 Hari OM
 
-​Sujal
+Sujal
 
 
 On Fri, Feb 28, 2014 at 1:10 AM, Sunil Bhattacharjya <

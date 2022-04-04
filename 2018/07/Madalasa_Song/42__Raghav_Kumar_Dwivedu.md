@@ -94,7 +94,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > full
 > > of teaching generating dispassion and instilling Advaitic relization:
 > >
-> > ​... <listmaster at advaita-vedanta.org>
+> > ... <listmaster at advaita-vedanta.org>
 > >
 > _______________________________________________
 > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/

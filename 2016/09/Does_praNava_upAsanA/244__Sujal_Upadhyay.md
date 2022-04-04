@@ -44,5 +44,5 @@ relates to both the inferior Brahman and the superior Brahman).
 Apara Brahman is attained through pranava upAsana while para Brahman is
 attained through pranava jignAsa or vichAra.
 
-​Hari ​
+Hari 
 OM

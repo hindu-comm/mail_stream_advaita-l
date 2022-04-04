@@ -10,11 +10,11 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-August
 > On Sun, Aug 13, 2017 at 10:31 PM, Praveen R. Bhat <bhatpraveen at gmail.com
 > > wrote:
 >
-> ​​
+> 
 >
 >
 >
-> ​<<  Namaste Chandramouliji,  The above quotation is at the end wherein
+> <<  Namaste Chandramouliji,  The above quotation is at the end wherein
 > MS says: सर्वलोकादिसृष्टिश्च तत्तद्दृष्टिव्यक्तिम् अभिप्रेत्य, यदा यत्
 > पश्यति, तत्समकालं तत् सृजति इत्यत्र तात्पर्यात्। My translation for this
 > would be: And due to the purport [of DSV] being in "when one sees whatever

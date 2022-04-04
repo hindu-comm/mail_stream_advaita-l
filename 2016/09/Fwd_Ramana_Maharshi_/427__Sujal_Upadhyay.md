@@ -6,8 +6,8 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2016-Septem
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2016-September/042661.html)
 
-​P.S. Please hit reply All and be careful that
-advaita-l at lists.advaita-vedanta.org is in the To field.​
+P.S. Please hit reply All and be careful that
+advaita-l at lists.advaita-vedanta.org is in the To field.
 
 ---------- Forwarded message ----------
 From: Kripa Shankar <kripa.shankar.0294 at gmail.com>

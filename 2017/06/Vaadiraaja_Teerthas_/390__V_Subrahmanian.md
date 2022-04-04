@@ -37,7 +37,7 @@ no Satya of  its own.
 > > recognizes the difference.
 > >
 >
-> ​Very good. Then if you can have vyavahAra with asat and abhAvapadArtha,
+> Very good. Then if you can have vyavahAra with asat and abhAvapadArtha,
 > its definitely possible to have such vyavahAra with apparent padArtha, in
 > which case you shouldn't have any issue with AV calling the world as
 > mithyA.

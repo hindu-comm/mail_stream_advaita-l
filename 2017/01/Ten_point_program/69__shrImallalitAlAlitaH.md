@@ -6,8 +6,8 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Januar
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-January/043875.html)
 
-​It can be found in नैष्कर्म्म्यसिद्धिः .
-​प्रत्यक्प्रवणतां बुद्धेः कर्म्माण्युत्पाद्य शुद्धितः ।
+It can be found in नैष्कर्म्म्यसिद्धिः .
+प्रत्यक्प्रवणतां बुद्धेः कर्म्माण्युत्पाद्य शुद्धितः ।
 कृतार्थान्यस्तमायान्ति प्रावृडन्ते घना इव ॥१।४९॥
 यतो नित्यकर्म्मानुष्ठानस्यैष महिमा ;
 तस्मान्मुमुक्षुभिः कार्य्यमात्मज्ञानाभिलाषिभिः ।

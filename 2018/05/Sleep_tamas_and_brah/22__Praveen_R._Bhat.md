@@ -16,8 +16,8 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > sleep, has no ground to stand upon.
 >
 
-​And the nirguNabrahma jIva wakes up from suShupti (effects of avidyA)
-because... ?​
+And the nirguNabrahma jIva wakes up from suShupti (effects of avidyA)
+because... ?
 
 Kind rgds,
 --Praveen R. Bhat

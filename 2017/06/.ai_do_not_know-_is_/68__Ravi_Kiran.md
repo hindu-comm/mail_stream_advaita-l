@@ -24,7 +24,7 @@ Thanks for your response. Pl see comments below:
 > > sushupti? what is the yukti presented in that case ?
 > >
 >
-> ​The ajnAna in different states has the same locus; in Mandukya too, this
+> The ajnAna in different states has the same locus; in Mandukya too, this
 > state is called as suShupti which manifests in other two states as well.
 > Therefore, to remove suShupti ajnAna, waking state knowledge is sufficient.
 >
@@ -44,7 +44,7 @@ completely
 > > alone, does not suffice ?
 > >
 >
-> ​Could you please quote any statement that says that samAdhi destroys
+> Could you please quote any statement that says that samAdhi destroys
 > ajnAna. AFAIK, samAdhi is recommended as a means to manonAsha and
 > vAsanakShaya.
 >
@@ -90,7 +90,7 @@ samAdhi leading to videha mukti
 as opposed to sadyo mukti.
 
 
-​
+
 >
 > > Also, how does this reconcile with other Sruti texts (on sushupti
 > > experience) in chandogya, Brihadaranyaka...
@@ -104,10 +104,10 @@ as opposed to sadyo mukti.
 > > Yājñavalkya instruct Janaka: This is its supreme attainment, this is its
 > > supreme glory, this is its highest world, this is its supreme bliss...
 > >
-> ​Bhashyakara introduces this mantra by saying यत्र पुनः सा अविद्या सुषुप्ते
+> Bhashyakara introduces this mantra by saying यत्र पुनः सा अविद्या सुषुप्ते
 > वस्त्वन्तरप्रत्युपस्थापिका शान्ता, तेन अन्यत्वेन अविद्याप्रविभक्तस्य
 > वस्तुनः अभावात् , तत् केन कं पश्येत् जिघ्रेत् विजानीयाद्वा  and later in
-> the section so: ​तेन न पृथक्त्वेन व्यवस्थितानि करणानि, विषयाश्च ; तदभावात्
+> the section so: तेन न पृथक्त्वेन व्यवस्थितानि करणानि, विषयाश्च ; तदभावात्
 > विशेषदर्शनं नास्ति ; He specifically says that the avidyA that projects
 > other objects is quietened, not completely absent, due to the lack of the
 > sense organs and objects being separate from each other, one cannot see,
@@ -133,11 +133,11 @@ Thanks
 > All आनन्द talked about is anyway the स्वरूपानन्द only, so even
 > if it is mentioned in सुषुप्ति, it is the आनन्दमयकोष that reflects it.
 >
-> ​gurupAdukAbhyAm
+> gurupAdukAbhyAm
 > ,
 > --Praveen R. Bhat
 > /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
-> That owing to which all this is known! [Br.Up. 4.5.15] */​
+> That owing to which all this is known! [Br.Up. 4.5.15] */
 > _______________________________________________
 > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
 > http://blog.gmane.org/gmane.culture.religion.advaita

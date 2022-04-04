@@ -37,7 +37,7 @@ On Mon, 3 Mar 2014, श्रीमल्ललितालालितः wrote
 > Because, I'm not writing to explain to you. I got just irritated by such
 > stereotypical post which are posted by 'brahmaGYAnI-s' and 'ajAtavAdin-s'
 > now and then on this forum or that.
-> ​
+> 
 
 Come now, your response is a little over the top don't you think? This is 
 a legitimate question.

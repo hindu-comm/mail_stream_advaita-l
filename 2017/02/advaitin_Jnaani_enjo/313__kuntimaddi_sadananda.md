@@ -27,10 +27,10 @@ Hari Om!Sadananda
 
 >
 > What happens to the sum total of all sufferings?
-> ​​
+> 
 >
 
-​​So too, all the sufferings, whether relating to his body or bodies of all
+So too, all the sufferings, whether relating to his body or bodies of all
 living beings, do not keep the jnAni away from enjoying svarUpAnanda as
 pratibimbAnda, as he just a sAkShi of both bhogya sukha as well as duHkha,
 completely asanghaH.

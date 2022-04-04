@@ -160,10 +160,10 @@ On Tue, May 20, 2014 at 10:37 AM, V Subrahmanian
 >
 >>
 >> घोषणात्मकमिदं
->> ​ पत्त्रं‌ नैकत्र प्रेष्यते - (संस्कृतसन्देशश्रेणिः samskrta-yUthaH <
+>>  पत्त्रं‌ नैकत्र प्रेष्यते - (संस्कृतसन्देशश्रेणिः samskrta-yUthaH <
 >> sams... at googlegroups.com>, bhAratIya vidvat pariShad भारतीयविद्वत्परिषद्
 >> <bvpar... at googlegroups.com>, rAShTriya-shikshakagana
->> राष्ट्रिय-शिक्षकगणः)​
+>> राष्ट्रिय-शिक्षकगणः)
 >>
 >>
 >> FYI......

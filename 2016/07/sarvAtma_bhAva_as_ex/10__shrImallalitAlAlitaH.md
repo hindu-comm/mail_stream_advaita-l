@@ -41,12 +41,12 @@ On 7 Jul 2016 3:15 pm, "H S Chandramouli" <hschandramouli at gmail.com> wrote:
 >>>
 >>>
 >>>
->>> Reg your observation << ​So, if the person was meditating on brahma
+>>> Reg your observation << So, if the person was meditating on brahma
 >>> before GYAna, he will start to meditate on something else after GYAna!?
 >>>
 >>> Do you have any clear idea of what you have understood??
 >>>
->>> ​If yes, please tell that. Such ambiguous claims are not useful. >>,
+>>> If yes, please tell that. Such ambiguous claims are not useful. >>,
 >>>
 >>>
 >>>

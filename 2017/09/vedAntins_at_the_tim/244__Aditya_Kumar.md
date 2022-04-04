@@ -8,7 +8,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Septem
 
 
 
-With that in the background, what is important​ to note though is that just
+With that in the background, what is important to note though is that just
 as Bhashyakara dismisses the non-Vedanta traditions as they end in duality,
 he also dismisses some Advaita-ending schools of thought since jnAnena
 muktiH is compromised in them. samucchaya- or upAsana-prApyamuktiH is

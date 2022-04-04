@@ -20,7 +20,7 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 > > not in opponent's siddhAnta.
 > >
 >
-> ​There are two ways to see your stand:
+> There are two ways to see your stand:
 > 1. vAda is not possible if something is not accepted true by both opponents
 >
 

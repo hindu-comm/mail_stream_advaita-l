@@ -12,8 +12,8 @@ On Fri, Feb 17, 2017 at 6:15 AM, V Subrahmanian v.subrahmanian at gmail.com
 > 'Pāṣaṇḍagajakesarī' by the author (Sri Abhinava Shankaracharya).
 
 
-​Any copy of this work?
-I think that it is identical with *kaulagajamarddanaH *of ​
+Any copy of this work?
+I think that it is identical with *kaulagajamarddanaH *of 
 *kRRiShNAnanda-achalaI(giriH/parvataH)*. This work was published years ago
 in form of letho. Then it appeared on my website a few years ago.
 There is another similar work of *bhaTTojI dIxitaH* called

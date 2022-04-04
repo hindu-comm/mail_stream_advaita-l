@@ -8,7 +8,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/0
 
 praNAms,
 
-​Shri Subbu ji says:
+Shri Subbu ji says:
 
 **In Dvaita there is a svarupa sharira for the jiva which will never cease
 to
@@ -50,7 +50,7 @@ http://vaniquotes.org/wiki/It_is_a_fact_that_no_one_falls_from_Vaikuntha
 Coming back to the point, one cannot be a jivanmukta as per dvaita, as one
 cannot return back from vaikuNTha.
 
-​Hari ​
+Hari 
 OM
 
 Sujal
@@ -89,7 +89,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > Thus
 > > > vedas have no further utility *as vedas* to the mukta.
 > > >
-> > ​
+> > 
 > > But then this clearly indicated that Gyana is indeed the means to Mukti.
 > > Because it is at Mukti that you don't get any new gyana from veda. So
 > till
@@ -119,7 +119,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > > brahman remains.
 > > >
 > >
-> > ​bond with the Brahman remains, what is the nature of that bond?
+> > bond with the Brahman remains, what is the nature of that bond?
 > > When everything else has gone away, what is there between Jeeva and
 > Brahma?
 > > Will Jeeva worship Brahma? In what way? Jeeva will bow? "bowing" is not
@@ -130,7 +130,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > said, "Atha parabrahmaatmanaa stheeyataam" happens.
 > >
 >
-> ​​
+> 
 > In Dvaita there is a svarupa sharira for the jiva which will never cease to
 > be and will continue in moksha. With that sharira which has mind, sense
 > organs, etc which is all chinmātra, the jiva will enjoy all sense pleasures

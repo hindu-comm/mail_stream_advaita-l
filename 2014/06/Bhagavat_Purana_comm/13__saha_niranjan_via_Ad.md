@@ -42,7 +42,7 @@ On Wed, 4 Jun 2014, saha niranjan wrote:
 >>
 >
 
-​Thanks, Niranjan.
+Thanks, Niranjan.
 
 I'm able to read Bengali script.
 
@@ -51,4 +51,4 @@ I'm in India.
 
 I'm able to scan the book and share with those who wish to have it.
 
-I'll type the text too.​
+I'll type the text too.

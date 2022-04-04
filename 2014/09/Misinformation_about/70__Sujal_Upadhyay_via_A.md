@@ -38,7 +38,7 @@ Note: Becoming means to have a bhAva that 'I ma not different from viShNu'
 it is an attitude of feeling non-difference from viShNu [tatva] which is
 noting but Atmatatva.
 
-​
+
 
 
 On Fri, Sep 19, 2014 at 6:22 PM, V Subrahmanian via Advaita-l <

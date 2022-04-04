@@ -13,9 +13,9 @@ kuntimaddisada at yahoo.com> wrote:
 > LalitalaalitaH. The description is too vague for me.
 
 
-​They look vague because they were not written as an article. If you read
+They look vague because they were not written as an article. If you read
 my first few posts, you will find that I merely  presented definitions.
-That's why you are feeling incompleteness.​
+That's why you are feeling incompleteness.
 
 
 

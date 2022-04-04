@@ -23,7 +23,7 @@ Not at all, glad to hear your input.
 > >
 >
 > 1 is SDV.
-> ​2+3 = DSV.
+> 2+3 = DSV.
 > 4 is moksha.
 >
 > This is appropriating the concept of mithyAtva itself to drishTi srishTi

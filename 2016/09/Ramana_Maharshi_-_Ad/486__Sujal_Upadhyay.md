@@ -77,4 +77,4 @@ him to sit.
 I understand that there are problems if non-traditional saints or non-vedic
 deities are incorporated into traditional Hindu Fold.
 
-​OM​
+OM

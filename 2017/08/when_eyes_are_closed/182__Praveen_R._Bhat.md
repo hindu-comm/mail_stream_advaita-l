@@ -21,9 +21,9 @@ advaita-l at lists.advaita-vedanta.org>:
 > when eyes are opened  • sarvaM khalvidaM brahma •
 >
 >
-​Thanks for sharing an absolutely wonderful quotation from Udiyababaji.
+Thanks for sharing an absolutely wonderful quotation from Udiyababaji.
 
 Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
-That owing to which all this is known! [Br.Up. 4.5.15] */​
+That owing to which all this is known! [Br.Up. 4.5.15] */

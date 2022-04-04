@@ -113,7 +113,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > self-knowledge)
 > >
 > > Om
-> > ​​
+> > 
 > > Pranams,
 > >
 > > Restrictions apply to yogic kriyA-s. We were advised not to mediitate in

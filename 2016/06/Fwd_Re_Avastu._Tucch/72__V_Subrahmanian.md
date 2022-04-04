@@ -17,7 +17,7 @@ Cc:
 On Jun 22, 2016 1:14 AM, "श्रीमल्ललितालालितः" <
 lalitaalaalitah at lalitaalaalitah.com> wrote:
 >
-> ​I hope you are not trying to tell that there is no difference between
+> I hope you are not trying to tell that there is no difference between
 असत् & प्रातिभासिक.
 
 I am not saying or implying that. All I have pointed out is that for the
@@ -45,7 +45,7 @@ words very carefully to convey the correct meaning and their difference to
 us.
 >
 > And, if भाष्यकार didn't know about difference of those two, then even I
-can't claim that I know anything.​
+can't claim that I know anything.
 >
 > 2016-06-21 11:00 GMT+05:30 V Subrahmanian <v.subrahmanian at gmail.com>:
 >>
@@ -59,7 +59,7 @@ prastibhaasika. Here are just two instances from many:
 अन्यस्य च अविद्याकृतत्वे विद्यया अवस्तुत्वदर्शनोपपत्तिः ; तद्धि द्वितीयस्य
 चन्द्रस्य असत्त्वम्, यदतैमिरिकेण चक्षुष्मता न गृह्यते ;
 >
-> ​​परस्याभावं सूचयन्नपि भाष्यकारस्तस्याविद्याकृतत्वं वदति इतीदमेव
+> परस्याभावं सूचयन्नपि भाष्यकारस्तस्याविद्याकृतत्वं वदति इतीदमेव
 प्रातिभासिकस्यासतो वैलक्षण्यं यत् अविद्याकृतत्वम् । न हि अवस्तु अविद्यया
 क्रियते ; अत एव च भाष्यकारेणोक्तं न भूतात् विद्यमानात् अभूतस्यासतः
 सम्भवोस्ति इति ।
@@ -84,14 +84,14 @@ shell-silver illusion. Here he calls it avastu.
 भूतात् विद्यमानात् अभूतस्य असतः सम्भवोऽस्ति लोके । न ह्यसतः शशविषाणादेः
 सम्भवो दृष्टः कथञ्चिदपि ॥
 >
-> ​अत्र कारिकायां सर्व्वस्य जन्मराहित्यं प्रतिपादितं ; जन्मनोप्रसिद्धत्वात्
+> अत्र कारिकायां सर्व्वस्य जन्मराहित्यं प्रतिपादितं ; जन्मनोप्रसिद्धत्वात्
 । तथाहि - ब्रह्म न जायते ; भूतत्वात् । अब्रह्मापि न जायते ; अवस्तुत्वात् ।
 > न च देवदत्तादीनां जन्म भवत्येव इति कथं जन्माप्रसिद्धिः इति वाच्यम् ।
 वस्तुतो जन्मन एव निषेधात् । सृष्टिदृष्टिपक्षे व्यावहारिकजन्म प्रसिद्धमेव ,
 दृष्टिसृष्टावपि मातुः कुक्षेर्निर्गतिः सम्भवत्येव अथवा अध्यास एव जन्म
 तस्मिन्पक्षे इति न तन्निषेधः कर्त्तुं शक्यते स्वरूपेण ; पारमार्थिकेण रूपेण
 परं तथा कर्त्तुं शक्यते । - इति प्रथमार्द्धे ।
-> अपरार्द्धे तु ​-
+> अपरार्द्धे तु -
 > पारमार्थिकसतो ब्रह्मणो जगतः सृष्टिर्न सम्भवति इतिप्रतिपादनाय
 जागरितात्स्वप्नसृष्टिर्निरस्ता । योऽसन् शशविषाणादिः तस्य सम्भवो = जन्म न
 दृष्टं कदाचिदपि कुत्रचिदपि इति तज्जन्मन एवाप्रसिद्धत्वात् भूताद्वाभूताद्वा
@@ -116,15 +116,15 @@ and gives the tuccha example of hare-horn.
 >> From the above sample it is clear that for Shankara the prAtibhAsika is
 no different from tuccha.
 >
-> ​I hope you don't want to say that he was dull enough to understand the
-difference.​
+> I hope you don't want to say that he was dull enough to understand the
+difference.
 > It is better to say : this usage of word asat by bhagavatpAda for both is
 seen instead of implying/saying that bhagavatpAda didn't
 know/understand/saw any difference.
 >>
 >> The reason is that it is not there in the locus in all periods of time.
 >
-> ​If this is enough for you to accept absolute oneness or sameness of असत्
+> If this is enough for you to accept absolute oneness or sameness of असत्
 and प्रातिभासिक ; then cow and dog must be absolutely one for you.
 > So, I'll like to use: the reason to use same word for two different
 things is a common quality, which is that both of them are not actually

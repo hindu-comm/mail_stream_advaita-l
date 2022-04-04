@@ -12,13 +12,13 @@ Shri Praveenji,
 In SDV, we could say that vyAvahArika is higher than the prAtibhAsika and
 pAramArthika higher than vyAvahArika, but in DSV will we not be stating
 only two?
-​And s
+And s
 ince the objection is to the DSV perspective of things, what would mean by
 a higher or a lower order of reality? That would mean that prAtibhAsika
 cannot sublate pAramArthika, but can sublate anything prAtibhAsika,
 including what is considered vyAvahArika since the latter is not higher
 order of reality
-​ at all​
+ at all
 >>
 
 That is an interesting observation/question! But, I tend to think the five

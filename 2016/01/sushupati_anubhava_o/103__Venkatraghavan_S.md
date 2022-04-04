@@ -65,26 +65,26 @@ injury, it is the brain.
 
 The jnAni himself (and for the matter, the ajnAni too) is only Brahman.
 
-​>>
+>>
 
-​This part is true with ajnAni also. Whatever may be his own conclusion but
+This part is true with ajnAni also. Whatever may be his own conclusion but
 he is brahman. So when a jnAni get brain injury OR ajnAni it is brain only
-which is getting injured. ​The difference is ajnAni buddhis associate
+which is getting injured. The difference is ajnAni buddhis associate
 itself with body mind sense complex and jnAni antahkaraNa does not have any
 such association.
 
-​So the question was if there is possibility of Brain injury and coming
+So the question was if there is possibility of Brain injury and coming
 back of that association that "I am body mind sens complex." This alone is
 the matter either this association can take place in Buddhi again or not.
- ​Factually there is no difference in jnAni and ajnAni other than this
+ Factually there is no difference in jnAni and ajnAni other than this
 association.
 
-​So I associated it with ​deep sleep if there is any traces of avidhya in
+So I associated it with deep sleep if there is any traces of avidhya in
 antahkarNa because that alone create the difference.
 
 Thanks
 
-​
+
 
 Please consider your environmental responsibility. Before printing this
 e-mail message, ask yourself whether you really need a hard copy.

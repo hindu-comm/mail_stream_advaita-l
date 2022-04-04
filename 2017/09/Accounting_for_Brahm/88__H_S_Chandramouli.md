@@ -23,7 +23,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Septem
 > brahmAsmi) are not just the individual understanding of members, but
 > statements by Swami Sureshvaracharya (Naishkarmya Siddhi), Swami Vasudeva
 > Brahmendra Saraswati (Vichara Sagara
-> ​)
+> )
 >  etc.
 >
 >

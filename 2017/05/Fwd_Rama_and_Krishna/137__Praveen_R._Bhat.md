@@ -33,35 +33,35 @@ wrote:
 > --Praveen
 >
 
-​
+
 On Thu, May 25, 2017 at 8:43 AM, Praveen R. Bhat <bhatpraveen at gmail.com>
  wrote:
 
 > Namaste Kalyanji,
 >
-> ​On Wed, May 24, 2017 at 10:06 PM, Kalyan <kalyan_kg at yahoo.com> wrote:
+> On Wed, May 24, 2017 at 10:06 PM, Kalyan <kalyan_kg at yahoo.com> wrote:
 >
 >> I am not sure how to respond to your post, since I am only putting
 >> forward the position of other schools.
 >
-> ​If you can't defend them, they may not be the doctrine. Pls. remember
+> If you can't defend them, they may not be the doctrine. Pls. remember
 > that this is in the context of calling other deities as jIva, etc.
 >
 > Just as advaitins call themselves as vedantins, vaishnavas and shaivas are
 >> also justified in doing so.
 >
-> Maybe, but not by depending on non-Upanishad texts.​
+> Maybe, but not by depending on non-Upanishad texts.
 >
 > I believe your questions are better directed to Vaishnavas or Shaivas,
 >> rather than to me.
 >>
-> ​Fair enough, but ​the question was asked only because you quoted their
+> Fair enough, but the question was asked only because you quoted their
 > criticism as based on their doctrine.
 >
 > I will reply to your post on the Atman's avidya, after some time.
 >>
-> ​
-> ​Sure​. I'll likely be slow to respond, since Wed is the only somewhat of
+> 
+> Sure. I'll likely be slow to respond, since Wed is the only somewhat of
 > a day-off for me.
 >
 > Kind rgds,
@@ -69,7 +69,7 @@ On Thu, May 25, 2017 at 8:43 AM, Praveen R. Bhat <bhatpraveen at gmail.com>
 > /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 > That owing to which all this is known! [Br.Up. 4.5.15] */
 >
-> ​
+> 
 >
 >
-> ​
+> 

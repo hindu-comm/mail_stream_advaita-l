@@ -52,7 +52,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >
 >
 >
-> Consciousness/Chaitanyam is synonymous with Brahman/Atman. For ​ ​
+> Consciousness/Chaitanyam is synonymous with Brahman/Atman. For  
 > definition, you could refer to verses 4/5 of IshAvAsyOpanishad or
 > BruhadAranyaka Upanishad chapters 3-4 ( UshastHa BrahmaNa) and 3-5 (KahOla
 > BrAhmaNa). There are any number of other places as well.

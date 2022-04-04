@@ -10,14 +10,14 @@ On Mon, Apr 17, 2017 at 6:24 AM, D.V.N.Sarma డి.వి.ఎన్.శర్�
 advaita-l at lists.advaita-vedanta.org> wrote:
 
 > > Slowly he changed due to the effect of Maha Periyava who weaned him from
-> ​> ​
+> > 
 > useless rationalism.
-> R​eason is a faculty which a man developed in the course of evolution.
+> Reason is a faculty which a man developed in the course of evolution.
 > It has srved and is serving him well. Reasoning is behind the spectacular
 > advanced of humanity.
 > Realising this Sankara tried through his bhashyas to establish advaita
 > rationally.
-> All of us on this list strive to present advaita on a rational basis.​
+> All of us on this list strive to present advaita on a rational basis.
 > If not the volume of material passing through this list is a waste.
 >
 

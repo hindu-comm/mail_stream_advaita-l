@@ -14,19 +14,19 @@ On Thu, Dec 5, 2013 at 8:50 PM, Venkatesh Murthy <vmurthy36 at gmail.com>wrote:
 > But is this explanation better?
 
 
-​See, we are giving explanations under fixed boundaries. We have to accept
+See, we are giving explanations under fixed boundaries. We have to accept
 *veda*-s as *pramANa*, we have to accept what is available through
 *pratyaxa*, etc. , and we have to avoid their clashes too.
 So, in present scenario we have this explanation which fits every criteria.
 In this way, this is one of the best explanations.
-​
+
 
 
 > In a Jivanmukta also there is
 > Avidya Lesha. A small quantity of Avidya is still remaining.
 
 
-​Actually, whenever people express their own understanding instead of mere
+Actually, whenever people express their own understanding instead of mere
 objecting other's views, there are more chances that we could examine their
 understanding and reveal differece of views.
 You did the same here. So, here I'm doing the same.
@@ -38,7 +38,7 @@ So, just removing this assumption will help you.
 See, according to *saMpradAya avidyA-lesha* is :
 
 *AvaraNavixepashaktimatyA mUlAvidyAyA
-prArabdhakarma-vartamAnadehA-dyanuvR^itiprayojako vixepashaktyaMshaH.*​
+prArabdhakarma-vartamAnadehA-dyanuvR^itiprayojako vixepashaktyaMshaH.*
 
 *mUlA avidyA* has two *shakti*-s : *AvaraNa-shakti* and *vixepa-shakti*.
 *GYAna *destroys *AvaraNa-shakti* part of *mUlAvidyA*, because only then
@@ -60,8 +60,8 @@ question of it being continued to generate future bodies.
 > sometimes. But he knows he is not a Baddha but a Mukta.
 >
 
-​This is true.
-​
+This is true.
+
 
 
 > But there will be further question. When he dies the Avidya Lesha will
@@ -73,6 +73,6 @@ question of it being continued to generate future bodies.
 > will vanish totally and he can become Videha Mukta.
 >
 
-​This is not *sAmpradAyika *views as you can deduce on your own after
+This is not *sAmpradAyika *views as you can deduce on your own after
 reading our views.
 

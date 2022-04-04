@@ -10,7 +10,7 @@ Namaste Sadaji,
 
 My two cents
 
-​​
+
 1. Is Vedanta necessary
 
 To this we need to evaluate the relationship between brhamjnAnam and

@@ -38,7 +38,7 @@ here is the Sanskrit verse (first line only)
 defects of wrong understanding etc., merges in Brahman, is without any
 modification and is purely the residual Brahman, then, svatah, even without
 effort, it becomes the experience of the nectar
-​ ​
+ 
 of non-dual bliss. Being of the form of Brahman is itself the nectar or
 rasa; vide the shruti ‘raso vai saha” (TU). It is of the nature of rasa
 also as it is the cause of supreme endearment, productive of that

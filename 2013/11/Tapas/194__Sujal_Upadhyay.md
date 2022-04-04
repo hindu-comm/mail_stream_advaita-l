@@ -45,5 +45,5 @@ On Mon, Nov 25, 2013 at 12:11 PM, Sujal Upadhyay <sujal.u at gmail.com> wrote:
 > bhūtāni yānti bhūtējyā yānti madyājinō.pi mām..9.25..
 >
 >
-> ​<content clipped>​
+> <content clipped>
 >

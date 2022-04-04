@@ -52,7 +52,7 @@ On Sun, Jun 25, 2017 at 5:48 PM, Anand Hudli <anandhudli at hotmail.com> wrote:
 >> > object, it should be treated as a single cognition.
 >>
 >>
->> ​Does this indicate the series of vRttis in seeing any object? For
+>> Does this indicate the series of vRttis in seeing any object? For
 >> example,
 >> if I keep looking at a ghaTa, there is a ghaTa-vRtti which is momentary,
 >> but another momentary ghaTa-vRtti follows it which is exactly the same in

@@ -12,8 +12,8 @@ On Fri, Jun 19, 2015 at 8:21 AM, Ravi Kiran <ravikiranm108 at gmail.com> wrote:
 >
 >
 
-​How could you justify this?
-By differentiating meaning of knowledge and perception? Is it possible?​
+How could you justify this?
+By differentiating meaning of knowledge and perception? Is it possible?
 
 
 

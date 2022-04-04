@@ -40,7 +40,7 @@ no parinama.
 However I would prefer to have a verbatim translation of  the entire
 passage which could then form the basis for the discussion. I am unable to
 provide the same. Either you could do so or perhaps Sri Praveen Ji could
-​.​
+.
  Any other member also  is welcome to do so. If considered necessary, the
 words vyapaka and vyapya could be just left as such or translated as
 applicable in the context.

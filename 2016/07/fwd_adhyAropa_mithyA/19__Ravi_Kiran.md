@@ -68,8 +68,8 @@ jnAna svarUpa ..
 >
 > OM
 >
-> ​Sujal
-> ​
+> Sujal
+> 
 >
 
 OM

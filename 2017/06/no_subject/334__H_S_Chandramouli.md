@@ -31,10 +31,10 @@ wrote:
 >> Chaitanyam itself is termed shrotraM, manaH etc.
 >>
 >
-> ​
-> ​True Chandramouliji, but
-> ​we wouldn't like to say Chaitanya itself is termed Maya and avidyA.​
-> ​ That itself should settle not using the similar "तस्य तत्/ तस्याः सा"
+> 
+> True Chandramouliji, but
+> we wouldn't like to say Chaitanya itself is termed Maya and avidyA.
+>  That itself should settle not using the similar "तस्य तत्/ तस्याः सा"
 > kind of phrases w.r.t. Maya/ avidyA.
 >
 > Kind rgds,

@@ -25,7 +25,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > gained this knowledge? Wasn't I the Atman? Isn't the Atman then the biggest
 > ignoramus?
 >
-​I am not qualified to answer this, I leave this to more qualified members.​
+I am not qualified to answer this, I leave this to more qualified members.
 
 
 >
@@ -34,9 +34,9 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > we both sink and swim together. Why do we both have to separately strive
 > for liberation?
 >
-​This is answered in 2.1.13 of Brahma-sutra bhashya
+This is answered in 2.1.13 of Brahma-sutra bhashya
 <http://advaitasharada.sringeri.net/display/bhashya/BS?page=2&id=BS_C02_S01_V13_B1&hlBhashya=%E0%A4%A4%E0%A4%B0%E0%A4%99%E0%A5%8D%E0%A4%97>.
-​It is only an axiomatic statement from the purvapakshi that we should swim
+It is only an axiomatic statement from the purvapakshi that we should swim
 or sink together. But there are counter-examples to that even in Pratyaksha
 (ल्लोकवत्). You call the bubbles in the ocean as ocean itself, not
 essentially different from ocean. You call the waves in the ocean as ocean

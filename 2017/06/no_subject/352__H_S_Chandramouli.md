@@ -32,7 +32,7 @@ www.avast.com
 On Sat, Jun 24, 2017 at 7:10 PM, Praveen R. Bhat <bhatpraveen at gmail.com>
 wrote:
 
-> ​Namaste Chandramouliji,​
+> Namaste Chandramouliji,
 >
 > On Sat, Jun 24, 2017 at 6:55 PM, H S Chandramouli <
 > hschandramouli at gmail.com> wrote:
@@ -43,9 +43,9 @@ wrote:
 >> same connotation as in the bhashya for any of terms shrotra/manah etc.
 >> Why do you conclude otherwise?
 >>
-> The difference I see is thus: श्रोत्रस्य श्रोत्रं, चक्षुषः चक्षुः, ​
+> The difference I see is thus: श्रोत्रस्य श्रोत्रं, चक्षुषः चक्षुः, 
 > मनसो
-> ​ मनः​, don't directly lead to the inner-essence of each of those, but as
+>  मनः, don't directly lead to the inner-essence of each of those, but as
 > that hearing which makes the ear to be an ear, that sight which makes the
 > sight be a sight, etc. Now, with Maya and avidyA, I do not think we would
 > agree to say that that which makes Maya to be Maya or avidyA to be avidyA,
@@ -57,5 +57,5 @@ wrote:
 > --Praveen R. Bhat
 > /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 > That owing to which all this is known! [Br.Up. 4.5.15] */
-> ​
+> 
 >

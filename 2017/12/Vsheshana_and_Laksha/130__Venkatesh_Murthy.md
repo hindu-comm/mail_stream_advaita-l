@@ -16,7 +16,7 @@ is no other thing that is always existing.
 On Sat, Dec 16, 2017 at 12:24 PM, Rajesh Benjwal via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 
-> ​​​​
+> 
 > Namaste,
 >
 > *Similarly satyam jnanam anantam anandam are lakshanas of Brahman. Brahman

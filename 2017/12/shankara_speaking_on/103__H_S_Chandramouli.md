@@ -44,7 +44,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Decemb
 >
 >
 > Covered above
-> ​,
+> ,
 > though not with reference to BUB cited by you.
 >
 >

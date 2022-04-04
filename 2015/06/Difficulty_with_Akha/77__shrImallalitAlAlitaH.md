@@ -21,9 +21,9 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > jivAtma paramAtma ekatva jnAna (knowledge of the mahAvAkya)
 >
 >
-​No. because, akhaNDAkArvRttiH is brahmavidyA.​
+No. because, akhaNDAkArvRttiH is brahmavidyA.
 
-​It's cause is mahAvvAkya, is correct.
+It's cause is mahAvvAkya, is correct.
 
 I don't know what do you mean by 'knowledge of mahAvAkya'. It should be
 'knowledge of mahAvAkyArtha'.
@@ -36,22 +36,22 @@ I don't know what do you mean by 'knowledge of mahAvAkya'. It should be
 > doesn't arise. There is just the unbroken homogeneous eka charama vRtti
 >
 
-​No. I didn't say or imply that.
+No. I didn't say or imply that.
 As vRtti, even charama-vRtti, is dRshya; so I meant cessation of this vRtti
-forever too​
+forever too
 
-​by saying that no dRshya stays.
-​
+by saying that no dRshya stays.
+
 
 >
 > So, one would understand it as synonym to jnAna samAdhi, having no
 > knowledge or awareness of the nAma rUpa prapaNcha.
 >
 
-​No. You can't compare it to samAdhi, because samAdhi​
+No. You can't compare it to samAdhi, because samAdhi
 
-​is a mental modification of the form of cessation of all other mental
-modifications​ and it doesn't affect prapa~ncha. While, the charama-vRtti
+is a mental modification of the form of cessation of all other mental
+modifications and it doesn't affect prapa~ncha. While, the charama-vRtti
 destroys every dRshya by destroying avidyA.
 
 I fear that you are superimposing your present understanding on what I
@@ -68,7 +68,7 @@ be remembered.
 > advaita-l at lists.advaita-vedanta.org> wrote:
 >
 > >
-> > ​
+> > 
 > >
 > > I'll not like to say anything about your use of those words of
 > > different/one type of knowlede.
@@ -86,7 +86,7 @@ be remembered.
 > > brahmAkArA, otherwise it can't dispel aGYAnam of brahman. This is seen in
 > > case of ghaTa-GYAnam and ghaTAgyAnam.
 > > The akAraH of vRttiH is defined as the yogyatA(capacity/ability?) of
-> > vRttiH, either paroxa or aparoxa, to ​dispel the aGYAna(which obstruct
+> > vRttiH, either paroxa or aparoxa, to dispel the aGYAna(which obstruct
 > the
 > > vyavahAra of pot, etc. as existing, shining, etc.);
 > > or, it is the तत्सन्निकृष्टकरणजन्यत्वं (don't know enough English to
@@ -116,7 +116,7 @@ be remembered.
 > > which there is no appearance if duality, not even as mithyA or one with
 > > you.
 > >
-> > ​You may not find this term in bhAShyam. It may have surfaced after
+> > You may not find this term in bhAShyam. It may have surfaced after
 > facing
 > > objections from others/or vedAntins themselves.
 > > It is not essential that bhAShyam could always be supported by repeating
@@ -126,7 +126,7 @@ be remembered.
 > is
 > > it symbolically used to denote the sama darshana of the samyak jnAni??
 > >
-> > L: akhaNDa is not brahman here ​as you appear to imply. akhaNDAkAra of
+> > L: akhaNDa is not brahman here as you appear to imply. akhaNDAkAra of
 > > vRtti means that it doesn't illuminate any adjective or relation. It just
 > > dispels ignorance of / illuminates one thing, either brahman or pot
 > without

@@ -7,7 +7,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/045798.html)
 
 Namaste Sreenivasa Murthyji,
-​
+
 On Tue, Jul 4, 2017 at 9:46 PM, sreenivasa murthy <narayana145 at yahoo.co.in>
 wrote:
 
@@ -42,7 +42,7 @@ This is also a definition of brahmAtmA. The word anubhava here is
 translated by Sw. Gambhiranandaji as consciousness. Yet, it has a give-away
 similarity to the earlier quote of yours as well as Sriramji's link to
 definition of anubhUti.
-​
+
 
 > (3) na dharmajijnAsAyAmiva SrtyAdaya Eva pramANaM brahmajijnAsayAm  kiM tu
 > SrutyAdayAH anuBavAdayaSca yathAsaMBavam iha pramANam | anuBavAvasAnatvAt
@@ -50,7 +50,7 @@ definition of anubhUti.
 > [Sri Shankara's commentary to BrahmasUtra 1-1-2]
 >
 
-​This talks of importance of anubhAva *yathAsambhavam, (as
+This talks of importance of anubhAva *yathAsambhavam, (as
 possible/applicable)* in the pursuit.
 
 (4)  vijnAtEryastu vijnAtA
@@ -59,18 +59,18 @@ possible/applicable)* in the pursuit.
 >             tatO^nyO^nuBavO mRuShA ||
 >         [UpadESasAhasri; Chapter 12 Shloka 8]
 >
-> ​This says which anubhava is right and which is not which is what the
+> This says which anubhava is right and which is not which is what the
 reference by Chandramouliji was also about. Sw. Ramatirtha says under this
 shloka 12.8 that the anubhava in keeping with the Shruti and reasoning is
 correct and any other is wrong/ false.
-​T
-he same can be said of jnAna too as to what is valid and what is invalid. ​
-​​
+T
+he same can be said of jnAna too as to what is valid and what is invalid. 
 
-​Thank you for your elaborate useful references, though not directly
-answering my question.​
 
-​gurupAdukAbhyAm
+Thank you for your elaborate useful references, though not directly
+answering my question.
+
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

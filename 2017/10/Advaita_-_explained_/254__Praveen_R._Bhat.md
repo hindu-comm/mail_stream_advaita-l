@@ -6,10 +6,10 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Octobe
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-October/047275.html)
 
-​Namaste Subbuji,
+Namaste Subbuji,
 
 Thanks for this video link; its a very rare pleasure to see HH speak on
-Vedanta in a public forum.​
+Vedanta in a public forum.
 
 Kind rgds,
 --Praveen R. Bhat

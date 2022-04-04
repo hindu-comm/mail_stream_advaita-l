@@ -29,7 +29,7 @@ k_prasad_h at yahoo.co.in> wrote:
 > indeed the very same as "that dEvadattaH".
 >
 
-​The words are peculiar in the sense that they don't reveal anything apart
+The words are peculiar in the sense that they don't reveal anything apart
 from which the vaktA wished to say.
 If vaktA just tried to convey oneness of devadatta as one, then they don't
 present any other quality of him.
@@ -40,7 +40,7 @@ there, there could be no shAbdavRtti of that AkAra. So, just because vastu
 is sakhaNDa, it doesn't make GYAna sakhaNDa. GYAna becomes sakhaNDa when it
 reveals the vastu as sakhaNDa.
 
-BTW​, if there is no possible akhaNDAkAra-GYAnam in this world(apart from
+BTW, if there is no possible akhaNDAkAra-GYAnam in this world(apart from
 brahmaGYAnam), then the objection of dvaitin-s would be there could be only
 sakhaNDa-GYAna of brahman, as only such GYAna rises from shabda and hence
 brahman is saguNa. I hope to avoid this only, we used the soyam, etc.
@@ -52,7 +52,7 @@ Every other laukika / vyavahArika example of an 'object' being objectified,
 > associated with sakhanDAkAra-vRtti [?= saprakAraka-vRtti].
 >
 
-​No. If you accept cause-effect ​relationship and have read my old posts,
+No. If you accept cause-effect relationship and have read my old posts,
 as you claim, then you may have come across the cause mentioned to accept
 niShprakAraka-GYAnam for ghaTa, etc. If not, then read again.
 
@@ -83,11 +83,11 @@ So then we can consider the following four distinct cases:
 > remain . . . ? Any more "dEvadattaH" at all ?
 >
 
-​Unless you learn to use words correctly, I'm talking of Sanskrit words,
+Unless you learn to use words correctly, I'm talking of Sanskrit words,
 I'm ignoring your post.
 
 Expect my reply late, if you write now.
-​
+
 
 
 >
@@ -112,10 +112,10 @@ Expect my reply late, if you write now.
 > understood.
 >
 >
-> ​Wrong sentence written because of lack of understanding.
+> Wrong sentence written because of lack of understanding.
 > vRtti is GYAnam, it doesn't give rise to some other GYAnam.
 > To be precise, you may add vRttyupahitachaitanyam is GYAnam.
-> ​
+> 
 >
 >
 > What will be that knowledge of the same ghaTa arising from an
@@ -127,15 +127,15 @@ Expect my reply late, if you write now.
 > The best answer is, it can't be expressed.
 > But, if you need to understand anyhow then consider it as GYAna of ghaTa
 > without mentioning ghaTatvam as it's dharma.
-> ​
+> 
 >
 >
 > Will it be the same knowledge, or different?
 >
 >
-> ​akhaNDAkAravRtti or niShprakAraka-vRtti is different from saprakAraka or
+> akhaNDAkAravRtti or niShprakAraka-vRtti is different from saprakAraka or
 > sakhaNDa one, otherwise why should we use different words for them.
-> ​
+> 
 >
 >
 > I guess that it will be different because of the fact that the
@@ -143,18 +143,18 @@ Expect my reply late, if you write now.
 > If different, how different will be those two from one another?
 >
 >
-> ​The difference will be in the way they reveal ghaTa. One will reveal only
+> The difference will be in the way they reveal ghaTa. One will reveal only
 > ghaTa and other will reveal it with it's quality/ties.
-> ​
+> 
 >
 >
 > "ghaTAkAra-vRtti-janya-jnAna of the ghaTa"  -and-
 >  "akhanDAkAra-vRtti-janya-jnAna of the ghaTa".
 >
 >
-> ​First learn to use words correctly.
+> First learn to use words correctly.
 > I'm saying this because just a few days ago I corrected someone here. I
-> thought he will correct this after learning!!​
+> thought he will correct this after learning!!
 >
 >
 >

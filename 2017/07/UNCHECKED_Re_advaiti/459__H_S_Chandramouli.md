@@ -21,7 +21,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 > My understanding is that the microindividual referred to here is  साक्षी
 > /  प्रत्यगात्मन् (sAkShI / pratyagAtman ),  the Innermost Self. That is
 > how the microindividual is talked of as the macro/cosmic Ishvara.
-> ​​
+> 
 >
 >
 >

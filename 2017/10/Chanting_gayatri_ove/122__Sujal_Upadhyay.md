@@ -85,7 +85,7 @@ On Mon, Oct 9, 2017 at 11:00 AM, Kalyan <kalyan_kg at yahoo.com> wrote:
 >
 > You might want to read this directly from Sringeri website -
 >
-> ​​
+> 
 > https://www.sringeri.net/activities/affiliated-institutions/overseas-
 > affiliations/svbf-usa
 >

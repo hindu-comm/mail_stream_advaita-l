@@ -53,13 +53,13 @@ ________________________________
 > or relation. It just dispels ignorance of / illuminates one thing,  
 > either brahman or pot without revealing it's qualties and relations." 
 >  
-> Doubts: vRttiH  is dispelling ignorance of say,a परिच्छिन्न​ pot. 
+> Doubts: vRttiH  is dispelling ignorance of say,a परिच्छिन्न pot. 
 > 1. Why it is called akhaNDAkAra of vRtti? What is the reason for using  
 > the term 'akhaNDa'? 
 >  
-> ​If you try to find meanings of both parts in the term akhaNDAkAra,  
+> If you try to find meanings of both parts in the term akhaNDAkAra,  
 > then you will be able to find that akhaNDa and AkAra both are technical  
-> terms of our system​. They don't mean what they appear to say. 
+> terms of our system. They don't mean what they appear to say. 
 > I've give meaning of both terms in old posts. Check them. 
 > Now, the vRtti is called akhaNDAkAra because it dispels ignorance of a  
 > single(akhaNDa) entity. 
@@ -68,26 +68,26 @@ ________________________________
 > 2. Can it be called आवरण भंगत्व of vRttiH? Is there a difference  
 > between आवरण भंगत्व and akhaNDAkAratva? 
 >  
-> ​Don't use Sanskrit terms if you don't know their correct meaning and  
+> Don't use Sanskrit terms if you don't know their correct meaning and  
 > uses, is my suggestion to all here. It just makes us feel that we, who  
 > know their meaning, are in alien world who are abusing our language. 
 >  
 > Now, I've to take help of imagination to know what did you mean. But,  
 > my imagination fails. So, make your statement clear. 
-> ​ 
+>  
 >  
 > 3. As per this definition, any vRttiH that dispels ignorance of any  
-> vastu, परिच्छिन्न​ or अपरिच्छिन्न, has akhaNDAkAratva.  Am I right? 
+> vastu, परिच्छिन्न or अपरिच्छिन्न, has akhaNDAkAratva.  Am I right? 
 >  
-> ​No. It may have akhaNDAkAratva, if it reveals that vastu, परिच्छिन्न  
+> No. It may have akhaNDAkAratva, if it reveals that vastu, परिच्छिन्न  
 > or अपरिच्छिन्न , without revealing it's attributes and relations -- is  
 > the correct expression. 
-> ​ 
 >  
-> 4. Is the characteristics of  of dispelling ignorance of परिच्छिन्न​  
+>  
+> 4. Is the characteristics of  of dispelling ignorance of परिच्छिन्न  
 > vastu and अपरिच्छिन्न vastu same? 
 >  
-> ​Make it more clear. What do you mean by sameness of the characteristic  
+> Make it more clear. What do you mean by sameness of the characteristic  
 > of dispelling ignorance(अज्ञाननिवर्त्तनस्वभावः) ? 
 > It is same for all vRtti, because vRtti is अज्ञानविरोधी or it itself is  
 > अज्ञाननाश. 
@@ -146,7 +146,7 @@ ________________________________
 >  
 > Thanks. 
 >  
-> ​ 
+>  
 >  
 >  
 > Thank you and regards 

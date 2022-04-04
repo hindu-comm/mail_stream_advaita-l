@@ -47,7 +47,7 @@ advaita-l at lists.advaita-vedanta.org wrote:
 > Hare Krishna
 >
 > For we advaitins, it is immaterial whether Shiva is great or Vishnu is
-> great; for us it is 'मायाशबल ब्रह्म​' ... Yes, for personal worship, one
+> great; for us it is 'मायाशबल ब्रह्म' ... Yes, for personal worship, one
 > can consider मायाशबल ब्रह्म to be Rama, Krishna, Shiva, Vishnu, Devi etc.
 >
 > > yes, for the advaitins hari, hara, devi etc. saguNa brahma (kArya brahma

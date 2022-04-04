@@ -131,7 +131,7 @@ On Sat, 7/4/15, Venkatraghavan S <agnimile at gmail.com> wrote:
  The akAraH of vRttiH is defined as the
  yogyatA(capacity/ability?) of
 
- vRttiH, either paroxa or aparoxa, to ​dispel the
+ vRttiH, either paroxa or aparoxa, to dispel the
  aGYAna(which obstruct the
 
  vyavahAra of pot, etc. as existing, shining, etc.);
@@ -179,13 +179,13 @@ On Sat, 7/4/15, Venkatraghavan S <agnimile at gmail.com> wrote:
  viditvAtimRtyumeti. Here 'eva' implies that it
  should not illuminate pot
 
- etc. /or parts / or qualities with brahman.​
+ etc. /or parts / or qualities with brahman.
 
 
 
- ]​
+ ]
 
- ​
+ 
 
  I hope that it mentions that I'm accepting that the
  GYAna which causes
@@ -215,7 +215,7 @@ On Sat, 7/4/15, Venkatraghavan S <agnimile at gmail.com> wrote:
  Also, note that I'm objecting limit of uses of the term
  akhaNDAkAra, as
 
- they appear, for brahmaGYAnam only.​ That's why I
+ they appear, for brahmaGYAnam only. That's why I
  brought सोयम् and
 
  प्रकृष्टप्रकाशश्चन्द्रः.

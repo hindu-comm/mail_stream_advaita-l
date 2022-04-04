@@ -51,10 +51,10 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 >
 > On Sun, 2 Oct 2016 at 21:07 Venkatraghavan S <agnimile at gmail.com> wrote:
 >
->> ​First of all, these are not those tattva-s which are said to be one by
+>> First of all, these are not those tattva-s which are said to be one by
 >> shruti.
 >> The parichchhina-chaitanya is not tattva.
->> So, no knowing these two is not enough.​
+>> So, no knowing these two is not enough.
 >>
 >>
 >> Yes, I agree. Knowing the two is not enough. However, one knows these two
@@ -80,7 +80,7 @@ lalitaalaalitah at lalitaalaalitah.com> wrote:
 > can't remind them and hence there is no possibility of aikya-bodha.*
 >
 >
->> If he was taught, then you are in my camp, not other's.​
+>> If he was taught, then you are in my camp, not other's.
 >> BTW, just 'hearing' a sentence from someone somewhere can't be termed as
 >> learning the same. More so when the meaning was never taught.
 >>

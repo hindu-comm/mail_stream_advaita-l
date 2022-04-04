@@ -41,7 +41,7 @@ I'm not particularly interested in what it translates into English, since
 it seems to be that the connotation of the word अनुभव is unfortunately
 reverse-engineered from its English translation 'experience'.
 
-​Thanks much
+Thanks much
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

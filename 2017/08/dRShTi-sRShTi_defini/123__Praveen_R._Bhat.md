@@ -15,7 +15,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > I had thought of  withdrawing at this stage, what with threats of harsh
 > > response etc.
 
-​Threats?!!! I just said that I didn't mean to be harsh when I said that
+Threats?!!! I just said that I didn't mean to be harsh when I said that
 your Sanskrit translation is opposed to Hindi meaning derived by Swamiji
 and suggested that you check someone who knows Hindi. It was not a threat
 in any sense of the word! Yet, since you felt it was a threat, I offer my
@@ -28,7 +28,7 @@ fallen apart badly for no reason apparent to me!
 > > decided to address the Forum directly with my response.
 > >
 >
-As I said, ​I do not know what​ the dispute is since your quotation today
+As I said, I do not know what the dispute is since your quotation today
 along with translation is not different than what I am saying. To clarify,
 I just said that यत् and तत् refer to कर्म (what is seen) and what is
 created. You said they are आत्मन्। I supply आत्मन् as कर्ता of the क्रिया,
@@ -48,12 +48,12 @@ below as well as the English translation too says:
 > > needs no introduction here.  He quotes from AS page 536
 > >
 > > << द्ृष्टिसृष्टौ च "
-> ​​
+> 
 > एवमेवास्मादात्मनः
-> ​​
+> 
 > सर्वे प्राणाः सर्वे लोकाः सर्वे
 > > देवाः सर्वाणि भूतानि व्युच्चरन्ति इति  श्रुतिः सुप्तोत्थितजीवात्
-> ​​
+> 
 > > प्राणादिसृष्टि-प्रतिपादयन्ती  प्रमाणम्  >>
 > >
 > > Translation by Sri Swaminathan  << The Sruti  “ from this Atman, all
@@ -63,14 +63,14 @@ below as well as the English translation too says:
 > > >>
 >
 
-​To sync in with earlier Hindi translation of अज्ञात सत्ताक वस्तुएँ​ are "
-​
+To sync in with earlier Hindi translation of अज्ञात सत्ताक वस्तुएँ are "
+
 सर्वे प्राणाः सर्वे लोकाः सर्वे देवाः सर्वाणि भूतानि" here. Please note the
 सामानाधिकरण्यम् (apposition) between 5th cases अस्माद् आत्मनः and जीवात्
 across the Shruti statement quoted and the vision of Drishti-Srishti
 established. This is also what I have been maintaining all along every DSV
 discussion. I'm correcting the words above as its a typo:
-​
+
 प्राणादिसृष्टिं प्रतिपादयन्ती, unless you have a different reading.
 
 The अन्वय of the above for clarity before translation would be so:
@@ -82,10 +82,10 @@ The अन्वय of the above for clarity before translation would be so:
    - का सा प्रतिपादयन्ती? What is that which maintains/ proves?
    - श्रुतिः। Shruti statement.
    - पुनः का सा श्रुतिः?
-   ​ Which is that Shruti statement, again?
+    Which is that Shruti statement, again?
    - "
    एवमेवास्मादात्मनः
-   ​​
+   
    सर्वे प्राणाः सर्वे लोकाः सर्वे देवाः सर्वाणि भूतानि व्युच्चरन्ति" इति
    श्रुतिः। The Shruti statement thus: "From this Atman, all Pranas, all
    worlds, all Vedas, all elements".

@@ -6,7 +6,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-August
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-August/046416.html)
 
-​​​Namaste Chandramouliji,
+Namaste Chandramouliji,
 
 On Sun, Aug 13, 2017 at 9:41 PM, H S Chandramouli <hschandramouli at gmail.com>
 wrote:
@@ -19,10 +19,10 @@ wrote:
 > him.
 >
 
-​I'm just responding for the closure of the topic. The question is not
+I'm just responding for the closure of the topic. The question is not
 whether or not neuter gender is possible for आत्मन्। I can very well use
 ब्रह्म and then say that यद् ब्रह्म पश्यति तत् ब्रह्म सृजति and be done
-with that. ​The question, however, is that whether it is necessary to
+with that. The question, however, is that whether it is necessary to
 switch genders when it fits the context, especially with the Hindi
 translation you yourself quoted! अज्ञात सत्ताक वस्तुएँ  न  मानकर, आत्मा  जब
  जो देख  रहाहै ऐसास्वीकारना दृष्टिसृष्टि  है ।  मधुसूधन  स्वामी  ने  "यदा
@@ -54,8 +54,8 @@ wonder if this statement of MS could also accommodate NJV, Anandji?) This
 removes the possibility of interpreting the Sanskrit verse also the way it
 has been interpreted by you.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
-That owing to which all this is known! [Br.Up. 4.5.15] */​
+That owing to which all this is known! [Br.Up. 4.5.15] */

@@ -50,9 +50,9 @@ different ontological status.
 
 According to the interpretation of Sri Bhagavatpada, since Brahman is
 nirvikara, the correct interpretation would be
-​
 
-<< ​<< वाचारम्भणं विकारो नामधेयं ब्रह्म एव सत्यम् >>,
+
+<< << वाचारम्भणं विकारो नामधेयं ब्रह्म एव सत्यम् >>,
 
 
 

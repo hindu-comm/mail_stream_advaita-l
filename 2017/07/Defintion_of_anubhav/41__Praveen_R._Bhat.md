@@ -27,7 +27,7 @@ same usage as their laukika counterparts.
 
 The word anubhava gives a sense of immediacy without dependency on karaNas,
 more than the word jnAna does.
-​
+
 
 > Coming back to laukika fields, it is possible for a person to have
 > "theoretical" or "bookish" knowledge without "practical" experience. This
@@ -35,11 +35,11 @@ more than the word jnAna does.
 > no such parallel in traditional Vedanta, although modern day students
 > taking Vedanta courses, including online courses, may be considered to have
 > this kind of "theoretical" knowledge.
-> ​
+> 
 >
-​True. It becomes akin to: pustakasthA tu yA vidyA.​..
+True. It becomes akin to: pustakasthA tu yA vidyA...
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

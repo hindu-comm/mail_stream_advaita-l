@@ -23,17 +23,17 @@ wrote:
 >  I see that you've already replied to others, so I am taking the liberty
 > to respond to this mail.
 >
-​That's OK.
+That's OK.
 You know the reason to request for hold. If that is not there, you are free
 to proceed.
-​
 
-> ​I
+
+> I
 >>>  can give the benefit of doubt while you can doubt the benefit given.
 >>>
->> ​Basically, the doubt stays. So, we are not at any conclusion. That's
+>> Basically, the doubt stays. So, we are not at any conclusion. That's
 fine and favourable.
-​
+
 
 > You may do that, but it's not enough for those who know that he always
 >> emphasised on 'knowing AtmA', and not anything else.
@@ -47,12 +47,12 @@ fine and favourable.
 > go beyond the tvampada, that you suspect he reached, into tat and asitvam.
 >
 
-​This next step which you said in last sentence is favourable. Once you
+This next step which you said in last sentence is favourable. Once you
 accept that he initial knowledge coming from 'shock' was not aikyaGYAna and
 he may have gained that after coming in contact with shAstraGYa-s, that's
 fine. Although, it still is only a possibility and a guess to prove him a
 brahmaGYAnI. It doesn't help his devotees to reach conclusion.
-​
+
 
 > But, that's not enough for me.
 >> There is no way to know that he actually had firm conviction of aikya as
@@ -65,15 +65,15 @@ brahmaGYAnI. It doesn't help his devotees to reach conclusion.
 > The latter is an assumption you are making,
 >
 
-​The assumption was made just because all here are making assumptions that
+The assumption was made just because all here are making assumptions that
 he was a brahmaGYAnI. If I have to assume that he indeed said something
 which is similar to brahmaGYAna, while he doesn't have any means to gain
 the same, then the best I can do is to assume that he was confused about
 his own understanding or he was defining his experiencing otherwise to
 match the audience.
-​If I don't have to entertain any of other's imagination, then I don't have
+If I don't have to entertain any of other's imagination, then I don't have
 to imagine anything.
-​
+
 
 >
 > If you are not yet convinced about limitation of samAdhi, you may need
@@ -85,32 +85,32 @@ to imagine anything.
 > in vAsanakShaya.
 >
 
-​If you understand limitations regarding GYAna, my case is still strong.
+If you understand limitations regarding GYAna, my case is still strong.
 To add, vAsanAxaya is not result of samAdhi, it just helps them suppress.
 The eradication is brought by practicing shubhavAsanA and finding faults.
-​kAraNa means asAdhAraNakAraNa, whenever we talk.
+kAraNa means asAdhAraNakAraNa, whenever we talk.
 
 My argument, ergo, was that even if one who has studied these claims the
 > anubhava of whatever Ramana Maharshi claimed, another cannot prove that.
 > That is, another can still entertain doubt that you do.
 >
-​
+
 In case of shAstraGYA, if the person has studied mImAMsA to ascertain
 validity of veda-s and then vedAnta(definitely according to
 advaita-sampradAya) to ascertain the meaning as aikya, there is nothing
 left to cause doubt.
 pramANa doesn't expect your inclination towards it.
-​
+
 
 > The only benefit of doubt you would give is that since he studied
 > shAstras, maybe he really knows.
 >
 
-​If study doesn't generate knowledge, then what does? Not studying and some
+If study doesn't generate knowledge, then what does? Not studying and some
 peculiar shock!?
 We are talking of kAraNa, which itself is kAryaniyatapUrvavR^itti. If you
 think knowledge can't be gained by study, then you must not study yourself
-and try to get some shock which again is not in your control.​
+and try to get some shock which again is not in your control.
 
 BTW, if a person has some means, it's not a small thing to lead us to
 decisions. Compare it with the case of person who claims that he has gained
@@ -123,11 +123,11 @@ I am giving the benefit of doubt that maybe Maharshi studied in earlier
 > life.
 >
 
-​Without deciding that the person had results, you can't ascertain that he
+Without deciding that the person had results, you can't ascertain that he
 had means even in some distant time. If you are willing to guess that he
 had results and so he must have means. Then I wish best of luck for you are
 showing bias, which makes you unfit for a meaningful dialogue.
-​
+
 
 > I seriously doubt that those who are supporting ramaNa, has the
 >> understanding of the same.
@@ -138,8 +138,8 @@ showing bias, which makes you unfit for a meaningful dialogue.
 > However, w.r.t., I have a question.
 >
 
-​I'll try to clarify that.
-​
+I'll try to clarify that.
+
 
 > In a response to someone else, you said that prAmANyabuddhi in earlier
 > life does not help in this life.

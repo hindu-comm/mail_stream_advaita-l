@@ -20,27 +20,27 @@ rajaramvenk at gmail.com> wrote:
 > understanding?
 >
 
-​Only relation of word with meaning doesn't grants that word will produce
+Only relation of word with meaning doesn't grants that word will produce
 understanding. It is 'the knowledge of relation of word and meaning' which
 is needed. That's why I can't understand Tamil, although Tamil words have
 meanings.
 So, it is possible that words may not generate any understanding.
-​
+
 
 
 >  > > > RV: I'm explaining two cases where a pot is eternal.
-> ​
+> 
 > There can be no eternal pot.
 > RV: Why? If the word pot is eternal, then the object indicated by it must
-> also be eternal. ​
+> also be eternal. 
 >
 
-​The name of devadatta's grandfather is eternal, hence his grandfather is
+The name of devadatta's grandfather is eternal, hence his grandfather is
 eternal !!! Who is going to put faith in such idiotic logic?
-​
 
 
-> ​See here, the 'is called a pot' portion can be directed to the subject
+
+> See here, the 'is called a pot' portion can be directed to the subject
 > 'collection of objects' in your sentence. Now, how could a collection of
 > objects, which are definitely not pot(otherwise you would have mentioned
 > it), which shares certain characteristics(of whom ? pot or plant ?) be
@@ -51,9 +51,9 @@ eternal !!! Who is going to put faith in such idiotic logic?
 > mud pot).
 >
 
-​It may be. But, you were talking of eternal pot. What does this logic
+It may be. But, you were talking of eternal pot. What does this logic
 benefits to that stance ?
-​
+
 
 
 > >> Anyway, I just sense that you have no understanding of jAti and you are
@@ -66,5 +66,5 @@ benefits to that stance ?
 > dogmas.
 >
 
-​Sure, I'll ask once I meet him.​
+Sure, I'll ask once I meet him.
 

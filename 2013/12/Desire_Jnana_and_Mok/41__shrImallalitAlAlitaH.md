@@ -14,24 +14,24 @@ On Fri, Dec 6, 2013 at 5:29 PM, Venkatesh Murthy <vmurthy36 at gmail.com>wrote:
 > Namaste
 > You are saying Jnana alone is sufficient for escaping birth and death.
 
-​
+
 Yes. This is true. Don't you accept that GYAna destrys aGYAna which is
 cause of birth-death-cycle? If GYAna destroys cause of saMsAra, what else
 is needed to destroy saMsAra.
 I already made clear that vAsanA-s are not cause of saMsAra on their own.
-​
+
 
 
 > But
 > how can any person know he has got Jnana if he has not conquered himself.
 >
 
-​What does 'conquered himself' mean​
+What does 'conquered himself' mean
 
-​?
+?
 If 'Killed himslef '? This is not useful for GYAna and moxa.
 
-If 'Conquered mind' ? Then, up to what level.​
+If 'Conquered mind' ? Then, up to what level.
 
 If to utmost level, then what is it ?
 
@@ -72,17 +72,17 @@ Someone said 'No person is free who is not a master of himself' If his
 > Vasanas and Manas are not in his control how he can say he is Jnani?
 
 
-​See, a person is GYAnI means that he has GYAna. What is it's relation with
+See, a person is GYAnI means that he has GYAna. What is it's relation with
 control of vAsanA and mind ?
-I'm a knower of pot b​ecause ​
-​I posses knowledge of pot. Nothing else is needed.
-​
+I'm a knower of pot because 
+I posses knowledge of pot. Nothing else is needed.
+
 
 > How
 > can he act like a brute and say he is a Jnani?
 >
 
-​He can do like that and say that he is GYAnI if he knows that 'he is one
+He can do like that and say that he is GYAnI if he knows that 'he is one
 and everything else is adhyasta, and he is akartA'.
 The question, who will decide that he feels like that or not is easy to
 answer. Leave it on him who is claiming that he is untouched by karma, only

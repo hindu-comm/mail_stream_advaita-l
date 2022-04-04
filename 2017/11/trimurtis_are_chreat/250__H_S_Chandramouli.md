@@ -17,15 +17,15 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 >
 >
 >
-> ​A request to the Moderators. This post from Sreenivasa Murthy Ji and any
+> A request to the Moderators. This post from Sreenivasa Murthy Ji and any
 > responses thereto may please be shifted to a new thread as discussions are
 > in progress in the current thread and this post is not related to this
 > subject.
 >
 
-​Regards​
+Regards
 
-> ​
+> 
 >
 
 <https://www.avast.com/sig-email?utm_medium=email&utm_source=link&utm_campaign=sig-email&utm_content=webmail>

@@ -10,7 +10,7 @@ Further, the explanation of taskarANAM pati was an absolute beauty!
 
 Ganapati Bhatru also quoted some interesting parts from Abhinavashankara's
 commentary on Rudra. For those interested, its available on archives here:
-https://archive.org/details/Shri-rudra-bhashyamOfShri-abhinava-shankara​
+https://archive.org/details/Shri-rudra-bhashyamOfShri-abhinava-shankara
 
 Kind rgds,
 --Praveen R. Bhat

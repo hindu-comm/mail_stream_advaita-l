@@ -18,7 +18,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > Sri vAdirAja's question is if the pramANa viShaya is
 > vyAvahArikam, it is by definition bAdhyam upon brahma jnAna.
 
-​Upon brahmajnAna, except for vastu, everything is bAdhya. Ergo, Vadiraja's
+Upon brahmajnAna, except for vastu, everything is bAdhya. Ergo, Vadiraja's
 questioning prAmANya is invalid after jnAnotpatti. Its valid only in
 vyavahArakAla. Thence...
 
@@ -51,17 +51,17 @@ with your specific supplementation of the argument:
 > the shruti vAkya that have vyAvahArika vastu as their viShaya are not
 > pramANas.
 
-​As above, they are still pramANa for vyavahArika vastu not grasped by
-​other sense organs.
-​
+As above, they are still pramANa for vyavahArika vastu not grasped by
+other sense organs.
+
 
 
 > This point by vAdirAja is valid in my opinion, but is not a
 > problem for advaita.
 >
-So its not a valid objection.​
+So its not a valid objection.
 
-​gurupAdukAbhyAm
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

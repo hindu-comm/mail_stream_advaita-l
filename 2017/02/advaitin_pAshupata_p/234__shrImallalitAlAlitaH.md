@@ -17,5 +17,5 @@ wrote:
 > author. If anyone knows about it please give details.
 >
 
-​Interesting~!
+Interesting~!
 Then what was the source of information about the work and it's nature?

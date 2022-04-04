@@ -47,14 +47,14 @@ wrote:
 >> > in essence is akhandaakara vRitit jnaanam.
 >> >
 >>
->> ​I'm sorry to say that your this understanding is also not in line with
+>> I'm sorry to say that your this understanding is also not in line with
 >> those who coined this word and defined it.
 >> Obviously, I didn't define it like this.
 >> If you think that svAmI told you, then I seriously doubt his understanding
 >> of this term. He may be defining this technical term without reading
 >> original texts which mention this term. He may be defining this
 >> system-specific-term according to his present limited learning, similar to
->> what most were doing here.​
+>> what most were doing here.
 >>
 >>
 >>

@@ -8,7 +8,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-March/
 
 Namaste Sriramji, Subbuji
 
-​
+
 On Thu, Mar 16, 2017 at 3:19 PM, V Subrahmanian via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 
@@ -20,9 +20,9 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > >
 >
 
-True. ​​Precisely why I said I like the आत्मनेपद usage. कुरुते conveys a
+True. Precisely why I said I like the आत्मनेपद usage. कुरुते conveys a
 lot more to me there than करोति (just thinking inline with Panini Sutra
-१.३.७२ स्वरितञितकर्त्रभिप्राये क्रियाफलम्)।​ As I mentioned Laghu/
+१.३.७२ स्वरितञितकर्त्रभिप्राये क्रियाफलम्)। As I mentioned Laghu/
 Tattvasudha or Manasollasa, both do not cover why Atmanepada usage, I have
 seen bits of both. However, to me, the entire explanation is itself
 justifying the Atmanepada word, which by itself beautifully covers all that
@@ -34,12 +34,12 @@ they say.
 > in the Br.Up.mantra 1.4.10 and the elaborate commentary of Shankara.
 >
 
-​Thanks for this reference​. I'll look it up.
+Thanks for this reference. I'll look it up.
 
-​
-​
+
+
 Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

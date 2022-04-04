@@ -10,7 +10,7 @@ Namaste,
 
 Here the sentence "sameness of buddhi" has a deep meaning. 
 
-Wherever the term 'सम​' is used in BG, it should be taken as आत्मा / ब्रह्मा. 
+Wherever the term 'सम' is used in BG, it should be taken as आत्मा / ब्रह्मा. 
 We have references & definitions as समत्वं योग उच्यते / पण्डिताः समदर्शिनः.
 
 So, endowed with व्यसायात्मिकबुद्धिः, one who sees / perceives the same SELF 

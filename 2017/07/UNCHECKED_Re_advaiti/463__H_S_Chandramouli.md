@@ -31,7 +31,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-July/0
 >
 > Regards
 >
-> ​
+> 
 >
 
 

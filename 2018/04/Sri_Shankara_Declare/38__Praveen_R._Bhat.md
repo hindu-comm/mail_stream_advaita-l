@@ -16,7 +16,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > a dream vessel, can't use the gold obtained in dreams etc.
 
 
-​ ​​This utility argument has been refuted in Mandukya karika by showing
+ This utility argument has been refuted in Mandukya karika by showing
 that the comparison is improper just like apples with oranges. The waking
 object is as useless to a dreamer in the dream as the dream object is
 useless in waking for a waker! You can surely cook using dream vessel in
@@ -35,8 +35,8 @@ nailcutter example in the Chandogya 6th chapter mantra.
 
 The pramANatva of waking is also w.r.t. to waking which is equally true of
 a dream during the dream.
-​
+
 gurupAdukAbhyAm,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
-That owing to which all this is known! [Br.Up. 4.5.15] */ ​
+That owing to which all this is known! [Br.Up. 4.5.15] */ 

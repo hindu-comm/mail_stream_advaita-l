@@ -12,7 +12,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Octobe
 >
 >
 > While I
-> ​
+> 
 > was
 >  not keen to continue with participation in the thread, recent spate of
 > posts concerning the views of Shankaracharyas  persuaded me to point out
@@ -41,20 +41,20 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Octobe
 >
 > The Sagaras, at last, found the horse near the hermitage of Kapila
 > maharshi. Thinking that he
-> ​ ​
+>  
 > must be the man who had stolen the animal and hidden it in the nether
 > world they laid violent hands on him. Whereupon the sage reduced them to
 > ashes with a mere glance of his eye. Such is the story according to the
 > RAmAyana.  America, which is at the antipodes, may be taken to be the
 > PAtAla or the nether world. Kapil
-> ​
+> 
 > A
-> ​
+> 
 > aranya ( the forest in which Kapila had his hermitage ), we
-> ​
+> 
 > ma
 > y further take it, was situated there. It is likely that Kapil
-> ​
+> 
 > A
 > aranya changed to California in the same manner as Madurai is sometimes
 > altered to “ Marudai “. Also noteworthy is the fact that there is a Horse
@@ -71,9 +71,9 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Octobe
 >
 >
 > There are many more such  references
-> ​
+> 
 > in the article
-> ​
+> 
 > to support the very first quote cited above.
 >
 >

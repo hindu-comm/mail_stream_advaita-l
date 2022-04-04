@@ -20,7 +20,7 @@ I have not said vAsana is not the result of karma phala. It is the residual impr
 Ø  jnana pravrutti daurbalyaM due to karma phala (labdhavrutteH karmaNO baleeyastvAt) and to overcome this daurbalya tyAga, vairAgya sAdhana prescribed  shankara clarifies in this bhAshya bhAga…Myself and Sri Vidya prabhuji talked a lot about this a decade back ☺ hence I am taking this issue again afresh to get more clarity.
 
 
-​,
+,
 though not with reference to BUB cited by you.
 
 

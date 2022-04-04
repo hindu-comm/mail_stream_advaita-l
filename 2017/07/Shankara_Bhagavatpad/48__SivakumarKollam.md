@@ -12,17 +12,17 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > a great advaitin whose mind
 
 
-​SAdara pranAm Sriramji,
+SAdara pranAm Sriramji,
 
 Can we say "a great advaitin whose mind" ?
 >From the study of life of great advaitins what I came to conclude is that
-they have no mind at all !​
+they have no mind at all !
 For example see the works of Sadasiva brahmendra, only advaitin who wrote
 commentaries on both Brama sutra and Yoga sutra, and a great avadhuta. From
 his experiences that he described in his wonderful keerthanas we are
 compelled to infer like that.There is nothing that is impossible for a
 realized one! eg.see "sarvam brhmamayam".
-​
-With praNAms,​
+
+With praNAms,
 
 *Sivakumar *

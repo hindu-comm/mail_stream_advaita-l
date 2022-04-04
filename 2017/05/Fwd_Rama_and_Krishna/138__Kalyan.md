@@ -22,10 +22,10 @@ Namaste Kalyanji,,On 24 May 2017 9:48 pm, "Kalyan" <kalyan_kg at yahoo.com> wrot
 > For your third point, the idea that Vishnu is Ishwara is present in the upanishads (narayana suktam). If it were not present, even Shankara would not have accepted. So the vaishnavas are well justified in calling themselves as vedantins. Shaivas too would be similarly justified.For one, Vishnu being Ishvara in the Upanishad does not lead to conclusion that Vishnu gives mukti. And for another, if you insist that it does and also say that so does Shiva, then the logical explanation would be that they are one and the same or the common basis among them is to be inquired into.gurupAdukAbhyAm,
 --Praveen
 
-​On Thu, May 25, 2017 at 8:43 AM, Praveen R. Bhat<bhatpraveen at gmail.com>wrote:
+On Thu, May 25, 2017 at 8:43 AM, Praveen R. Bhat<bhatpraveen at gmail.com>wrote:
 
 Namaste Kalyanji,
-​On Wed, May 24, 2017 at 10:06 PM, Kalyan<kalyan_kg at yahoo.com>wrote:
+On Wed, May 24, 2017 at 10:06 PM, Kalyan<kalyan_kg at yahoo.com>wrote:
 I am not sure how to respond to your post, since I am only putting forward the position of other schools.
-​If you can't defend them, they may not be the doctrine. Pls. remember that this is in the context of calling other deities as jIva, etc.
+If you can't defend them, they may not be the doctrine. Pls. remember that this is in the context of calling other deities as jIva, etc.
 

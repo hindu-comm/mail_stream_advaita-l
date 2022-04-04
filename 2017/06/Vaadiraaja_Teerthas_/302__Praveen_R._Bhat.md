@@ -22,13 +22,13 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > perceived. Also, note that memory has no role to play here.
 >
 
-​Thank you, that was helpful and purposeful for me for further inquiry some
+Thank you, that was helpful and purposeful for me for further inquiry some
 other related questions.
 
-​
-​
+
+
 Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

@@ -12,13 +12,13 @@ wrote:
 > Maybe, there are different versions, but I didn't find these in 4.3.5-6-7
 
 
-​No difference. You just went for sUtra-s, while I mentioned adhikaraNa-s.
+No difference. You just went for sUtra-s, while I mentioned adhikaraNa-s.
 
 I'll try to write something.
 But, it will be better if you could present your present understanding of
 three adhikaraNa-s and the problems you are facing.
 Then I will be able to help you understand the parts which are tricky or
-unfamiliar.​
+unfamiliar.
 
 
 

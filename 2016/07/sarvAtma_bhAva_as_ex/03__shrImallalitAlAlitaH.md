@@ -20,7 +20,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > Yes. It is sagunOpAsana.  Jivanmukti is just one step ahead.
 >
 
-​It appears as if it is being propagated that jIvanmukti is result of
+It appears as if it is being propagated that jIvanmukti is result of
 saguNopAsanA.
 If it is, let me clearly say that it is unacceptable in advaita-matam. We
 accept that GYAna leads to videhamukti and if it is accompanied by
@@ -29,7 +29,7 @@ unperturbed-ness of mind.
 That person who is not emancipated from ignorance, can't be called free
 while alive.
 Just being upAsaka is not a sign of knowledge of advitIya-brahma.
-​
+
 
 >
 > //
@@ -49,7 +49,7 @@ totally unrelated place.. Aren't veda-s enough to prove that devI or
 chaitanya is to be worshipped as kuNDalinI for specific result.
 
 Another thing, the word suShumnA is not necessarily related with kuNDalinI
-vidyA​. It was used to propound the dream-state too. So, why conclude that
+vidyA. It was used to propound the dream-state too. So, why conclude that
 just mention of suShumnA is enough to prove that kuNDalinI-upAsanA is
 hinted there and hence is vaidika?
 

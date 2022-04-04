@@ -28,12 +28,12 @@ Show Start Timings : Every half an hour.
 
 Date and timings of the show.
 
-Sun, 12th Nov​​​, 3pm to 9pm i.e. 3:00, 3:30, 4:00 etc. Tiil 8:30pm.
+Sun, 12th Nov, 3pm to 9pm i.e. 3:00, 3:30, 4:00 etc. Tiil 8:30pm.
 
-Mon, 13th & Tue, 14th Nov​, 5pm to 9pm i.e. 5:00, 5:30, 6:00 etc. Till
+Mon, 13th & Tue, 14th Nov, 5pm to 9pm i.e. 5:00, 5:30, 6:00 etc. Till
 8:30pm.
 
-Wed, 15th Nov​​​, 7pm to 9pm i.e. 7:00, 7:30, etc. until 8:30pm.
+Wed, 15th Nov, 7pm to 9pm i.e. 7:00, 7:30, etc. until 8:30pm.
 
 Admission Free!
 Sridhar Sathi

@@ -9,5 +9,5 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2016-Septem
 Good to see such dedication. Older generation is an inspiration to younger
 generation.
 
-​Kind Regards
-Sujal​
+Kind Regards
+Sujal

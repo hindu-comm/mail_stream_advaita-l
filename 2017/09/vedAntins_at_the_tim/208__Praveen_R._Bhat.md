@@ -10,7 +10,7 @@ Namaste Anandji, Chandramouliji
 
 Thanks, I was also thinking that as a reason, but wasn't sure.
 
-​C​handramouliji, thanks for the Bhedabheda book link.
+Chandramouliji, thanks for the Bhedabheda book link.
 
 Kind rgds,
 --Praveen R. Bhat

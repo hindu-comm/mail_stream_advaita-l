@@ -18,4 +18,4 @@ on Acharya.
 On one occasion, His Holiness admonished an accomplished scholar with a gentle remark that 
 that our arrogance has reached to such a level that we are trying to judge Sankara Bhagavatpada.
 
-अलं विस्तरेण​...धिक्
+अलं विस्तरेण...धिक्

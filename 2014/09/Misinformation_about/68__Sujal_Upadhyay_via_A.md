@@ -26,7 +26,7 @@ interpretations of advaita. They are interpreting Adi Sankara from
 Vaishnava POV :) So they think that sattva guNa is free from ignorance :)
 What more to say
 
-​OM
+OM
 
 Sujal
 

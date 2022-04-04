@@ -25,11 +25,11 @@ regards
 subbu
 
 >
-> ​Thanks,
+> Thanks,
 > Sriram
 >
 >
-> Hamsah Soham​
+> Hamsah Soham
 > _______________________________________________
 > Archives: http://lists.advaita-vedanta.org/archives/advaita-l/
 > http://blog.gmane.org/gmane.culture.religion.advaita

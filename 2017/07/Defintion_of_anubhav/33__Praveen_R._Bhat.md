@@ -25,7 +25,7 @@ wrote:
 > (anubhava).
 >
 
-​I mentioned the sense of immediacy of the word anubhava only w.r.t. jnAna
+I mentioned the sense of immediacy of the word anubhava only w.r.t. jnAna
 as two words in those forms. If qualifiers are added, they can be added to
 अनुभव also, although परोक्षानुभव is a word unseen, the usage would mean
 परानुभव or अननुभव, else the qualifier leading to the title अपरोक्षानुभूति
@@ -33,10 +33,10 @@ would not be needed. (I have already said that अनुभूति and अन�
 same connotation with different suffixes). Ergo, I don't see any difference
 between ज्ञान and अनुभव with same qualifiers.
 
-​
-​
+
+
 Kind rgds,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

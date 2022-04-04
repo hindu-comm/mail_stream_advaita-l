@@ -7,7 +7,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/0
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-June/045431.html)
 
 Namaste Raviji,
-​
+
 On Mon, Jun 12, 2017 at 2:52 PM, Ravi Kiran <ravikiranm108 at gmail.com> wrote:
 
 > Nothing separated from the self by avidyA doesn't mean self is not hidden
@@ -18,7 +18,7 @@ On Mon, Jun 12, 2017 at 2:52 PM, Ravi Kiran <ravikiranm108 at gmail.com> wrote:
 > *When you say, "one with the self", in That, as ekibhUta or ekibavana or
 > samprasAda, there is no distinction, whatsoever .. *
 >
-​That lack of distinction in suShupti is of no use to anyone, but the
+That lack of distinction in suShupti is of no use to anyone, but the
 waker. The same understanding holds that even in waking there is no
 distinction for the perspective of turIya. That is mokShakAraka.
 
@@ -26,7 +26,7 @@ distinction for the perspective of turIya. That is mokShakAraka.
 > *
 >
 
-​And only upon waking do come efforts for samAdhi too. :) Attributing
+And only upon waking do come efforts for samAdhi too. :) Attributing
 bhAvarUpA works, otherwise doesn't; else we will have no argument with
 shUnyavAdins, who say that abhAvarUpa shUnya causes something! This is the
 reason that Tikakaras insist that avidyA is not abhAvarUpA. I am
@@ -38,4 +38,4 @@ gurupAdukAbhyAm,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

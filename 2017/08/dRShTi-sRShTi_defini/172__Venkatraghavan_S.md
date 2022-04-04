@@ -30,7 +30,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 2017-08-16 9:03 GMT+05:30 Anand Hudli via Advaita-l <
 advaita-l at lists.advaita-vedanta.org>:
 
-> >>​
+> >>
 > Although, I too interpreted दृष्टिव्व्यक्ति as कर्मधारय translating to
 > "individual sights", but I wondered if it could be made द्वन्द्व by
 someone

@@ -7,9 +7,9 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2014-Septem
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2014-September/037365.html)
 
 T
-​hanks for your observation..
+hanks for your observation..
 I'll be trying to get hands on manuscripts, if possible.
-veda-paNDita-s are also being contacted.​
+veda-paNDita-s are also being contacted.
 
 
 *श्रीमल्ललितालालितः*www.lalitaalaalitah.com

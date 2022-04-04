@@ -10,7 +10,7 @@ To avoid confusion, perhaps the statement
 
  << 'The body-mind (that was wrongly seen
  as the Self) is (now known to be) nothing but the Upaniṣadic Atman.'
-​ >>
+ >>
 
 could be rephrased as
 

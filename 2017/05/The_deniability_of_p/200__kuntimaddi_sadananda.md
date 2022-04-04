@@ -72,9 +72,9 @@ Regards,
 On Mon, May 22, 2017 at 8:23 AM, Praveen R. Bhat via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 
-> Namaste Venkatraghavanji. ​
+> Namaste Venkatraghavanji. 
 >
-> Of course not, ​but I was thinking I would miss Mani Dravid Shastriji's
+> Of course not, but I was thinking I would miss Mani Dravid Shastriji's
 > presentation. Thats all. :)
 >
 > Thanks for links. However, if possible, I plan to study an intermediate

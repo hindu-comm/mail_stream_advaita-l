@@ -41,7 +41,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > advaita-l at lists.advaita-vedanta.org> wrote:
 >
 > > Namaste Subbuji,
-> > ​
+> > 
 > > On Sat, Jul 15, 2017 at 12:18 PM, V Subrahmanian <
 > v.subrahmanian at gmail.com
 > > >
@@ -52,7 +52,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > > > prkriya alone, before arriving at the destination.
 > > >
 > >
-> > Very well said, a thinking I wholeheartedly agree with.​​ This is
+> > Very well said, a thinking I wholeheartedly agree with. This is
 > precisely
 > > what I indicated in my earlier post to Adityaji that SDV should land on
 > > aikya without the dream example to stand on its two feet. I will reply to

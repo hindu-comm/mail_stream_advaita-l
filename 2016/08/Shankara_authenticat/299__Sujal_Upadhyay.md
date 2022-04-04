@@ -66,14 +66,14 @@ celebrated Rudras, eleven in number, who are the lords of all the worlds.
 Even these eleven high-souled ones have been mentioned as a hundred in the
 Satarudra (of the Vedas)”. (MBH 13:CL)
 We
-​ will again try to understand whether if rudra is really born from VP
+ will again try to understand whether if rudra is really born from VP
 itself.
 
 VP 1.8.1: Śrī Parāśara jī said - O Great Muni! I have described you
 tāmasa-sarga created by brahmā jī. Now I will describe you rudra-sarga,
 hence listen [carefully].
 
-VP 1.8.2:  ​In the beginning of kalpa, Brahmājī, for the sake of creation,
+VP 1.8.2:  In the beginning of kalpa, Brahmājī, for the sake of creation,
 contemplated to create a son like him and hence a dark-blue complexioned
 baby (nilalohita-varṇa) manifested (prādurbhāva) in Brahmā's lap.
 

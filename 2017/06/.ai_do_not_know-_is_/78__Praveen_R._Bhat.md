@@ -17,8 +17,8 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > (samAdhi) experienced ones.
 >
 >
-​As to how this works, I like Panchadashikara's beautiful parallel that
-drives the point ​home. He gives an example of a brahmachArI that tries
+As to how this works, I like Panchadashikara's beautiful parallel that
+drives the point home. He gives an example of a brahmachArI that tries
 over the day to learn the VedapATha by rote, but just can't get it right.
 However, he sleeps at night and on waking up in the morning, he chants
 easily! How this happens cannot be explained, it just does. I'd be
@@ -33,15 +33,15 @@ jnAnotpatti, but savikalpakasamAdhi can.
 निर्विकल्पकविज्ञानादज्ञानं न निवर्तते।
 निर्विकल्पकविज्ञानं केनचिन्न विरुद्ध्यते॥
 
-​Also on a related note, Vidyasankarji had written a good series on Yoga
-and Vedanta which you may find in the mail archives, if you haven't seen​.
+Also on a related note, Vidyasankarji had written a good series on Yoga
+and Vedanta which you may find in the mail archives, if you haven't seen.
 Unfortunately, I haven't been able to find the series beyond 10, where it
 seems to be incomplete. Vidyasankarji, could you lead us to the rest? For
 some reason, it is not listed in the series section on the main page.
 
-​
-​
-​gurupAdukAbhyAm
+
+
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know

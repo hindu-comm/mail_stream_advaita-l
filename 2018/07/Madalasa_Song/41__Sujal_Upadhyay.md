@@ -16,5 +16,5 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > The song of Madalasa is stated to be in the Markandeya Purana:  It is full
 > of teaching generating dispassion and instilling Advaitic relization:
 >
-> ​... <listmaster at advaita-vedanta.org>
+> ... <listmaster at advaita-vedanta.org>
 >

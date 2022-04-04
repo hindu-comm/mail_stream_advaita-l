@@ -114,9 +114,9 @@ On Friday, May 16, 2014 10:23:38 AM UTC-4, विश्वासो वासु
 
 >
 > घोषणात्मकमिदं
-> ​ पत्त्रं‌ नैकत्र प्रेष्यते - (संस्कृतसन्देशश्रेणिः samskrta-yUthaH <
+>  पत्त्रं‌ नैकत्र प्रेष्यते - (संस्कृतसन्देशश्रेणिः samskrta-yUthaH <
 > sams... at googlegroups.com>, bhAratIya vidvat pariShad भारतीयविद्वत्परिषद् <
-> bvpar... at googlegroups.com>, rAShTriya-shikshakagana राष्ट्रिय-शिक्षकगणः)​
+> bvpar... at googlegroups.com>, rAShTriya-shikshakagana राष्ट्रिय-शिक्षकगणः)
 >
 >
 > FYI......

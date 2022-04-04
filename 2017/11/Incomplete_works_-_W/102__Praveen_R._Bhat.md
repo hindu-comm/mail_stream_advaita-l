@@ -6,7 +6,7 @@ upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2017-Novemb
 +++
 [Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2017-November/047506.html)
 
-​​Namaste Adityaji,
+Namaste Adityaji,
 
 On Mon, Nov 6, 2017 at 10:59 AM, Aditya Kumar via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
@@ -20,7 +20,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > OR works that are wrongly attributed OR any other thoughts?
 >
 
-​​I don't think tradition considers an incomplete work as a sign of
+I don't think tradition considers an incomplete work as a sign of
 inauspiciousness when a prayer is made. More than wrong attribution, it may
 be possible that some part is lost (eg, Charyakhanda of Haritayanasamhita
 of Tripurarahasya fame).
@@ -30,11 +30,11 @@ in a Tika under Tarkasangraha so:
 
 Doubt: There are many texts without मंगलाचरणम् and still complete and
 famous.
-Answer: The orthodox ​tradition say​s​ that the prayer is बहिः​ ​कृतम्
+Answer: The orthodox tradition says that the prayer is बहिः कृतम्
 prayed outside of the text or even in earlier birth.
 Doubt: There are many texts with prayer, but incomplete.
-Answer: ​The prayer helped get what is complete​d​, but for the incomplete
-part, ​a ​new prayer is needed. This means that the obstacles/ forces
+Answer: The prayer helped get what is completed, but for the incomplete
+part, a new prayer is needed. This means that the obstacles/ forces
 countering the work are stronger than the prayers created adRShTa for.
 
 The reason I said forces as an option to obstacles is because sometimes the
@@ -45,12 +45,12 @@ as incomplete for those who think each verse should be commented upon (eg,
 HH Chandrashekara Bharati Swamiji said that he had commented on everything
 to be commented upon before all verses had ended in Vivekachudamani). Then
 there may be other reasons unknown to us.
-​
-​
-​
-​gurupAdukAbhyAm
+
+
+
+gurupAdukAbhyAm
 ,
 --Praveen R. Bhat
 /* येनेदं सर्वं विजानाति, तं केन विजानीयात्। Through what should one know
 That owing to which all this is known! [Br.Up. 4.5.15] */
-​
+

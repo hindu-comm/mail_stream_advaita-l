@@ -13,14 +13,14 @@ Apologies for answering a question asked to Subbuji...
 On Wed, Jul 19, 2017 at 5:51 PM, Venkatraghavan S via Advaita-l <
 advaita-l at lists.advaita-vedanta.org> wrote:
 
-> ​​
+> 
 >
 > Could the order not be: 1) I see creation. 2) What I see is an appearance
 > 3) Therefore there is no creation 4) I am all there is.
 >
 
 1 is SDV.
-​2+3 = DSV.
+2+3 = DSV.
 4 is moksha.
 
 
@@ -31,7 +31,7 @@ necessary to attribute an causal agent for that appearance? If no causal
 > srishTa drishTi before moksha.
 >
 
-​Ergo, Subbuji's statement is right.
+Ergo, Subbuji's statement is right.
 
 gurupAdukAbhyAm,
 --Praveen R. Bhat

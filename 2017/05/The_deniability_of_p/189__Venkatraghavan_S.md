@@ -36,7 +36,7 @@ advaita-l at lists.advaita-vedanta.org> wrote:
 > is going against a reality that is intimately experienced on an everyday
 > basis. How can such a conclusion arrived at by shruti and anumAna
 > contradict pratyaksha?
-> ​...​
+> ...
 >
 >
 _______________________________________________
