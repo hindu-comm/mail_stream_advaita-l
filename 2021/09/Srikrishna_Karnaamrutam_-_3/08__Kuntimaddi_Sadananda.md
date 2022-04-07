@@ -1,0 +1,63 @@
++++
+title = "08 Kuntimaddi Sadananda"
+date = "2021-09-01"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2021-September/057343.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2021-September/057343.html)
+
+
+| 
+PraNAms
+
+>From the pages of my book – Self and the Supreme – published by Indic Academy.
+
+-------------------------------------------------               
+
+
+
+Shree Krishna Karnaamrutam-III
+
+ Here is one of the beautiful images of Baala Krishna that Leelasuka leaves with us. Many may already know this sloka without knowing who the author was. Many of the slokas are so enchanting that children can learn these slokas very fast.
+
+
+करार विन्देन पदारविन्दम् मुखारविन्दे विनिवेशयन्तम्|
+
+वटस्यपत्रस्य पुटे शयानाम् बालम् मुकुन्दम् मनसा स्मरामि||
+
+karaara vindena padaaravindam
+ mukhaara vinde viniveshayantam|
+ vatasya patrasya pute shayaanam
+ baalam mukundam manasaa smaraami||
+
+
+ Here is Lord Krishna depicted as vatapatra shaaee– lying on a banyan tree as a small baby who is pulling his right leg with his hands and putting the toe-thumb in his mouth trying to suck. As the thumb slips out, he pulls it again and tries to suck. The banyan tree is very symbolic in our scriptures and occurs in many places. As the tree grows from the branches, the roots start coming down and get into the earth to provide not only support for the expanding tree-like pillars but also means for supporting the tree from a wider area of the land. This way, the banyan tree becomes huge and ever-expanding by firmly rooting itself into the ground. This is, in a way, how our samsara gets firmly rooted in the ground that is difficult to uproot. The roots that are coming down are our attachments spreading all over the world, some children in America, some in Europe, some in India, and at each place the roots going deeper and deeper and also stronger and stronger. This is ever-expanding samsara tree.
+
+Vata vruksham or banyan tree is also a symbol of the faith of the seeker, says Swami Tejomayanandaji, in his recent talk on Ramayana. Panca vati –therefore involves five-fold faith required for a sadhak for his pursuit of the ultimate truth. a) Faith in the existence of God, b) Faith in the scriptures c) Faith in the teacher and the teaching d) Faith in oneself – aatma viswasam that I can realize in this life itself and e) Faith in the efficacy of sadhana that it will take me to the highest goal.
+
+ It is under the shadow of Vata vruksham or banyan tree that Lord Shiva sits as Dakshinamurthy and teaches the highest Vedanta to the qualified seekers, who have realized that all other pursuits to gain happiness are in vain. वट विटपि समीपे भूमि भागे निषन्नाम् ….. वटतरोर् मूले वृद्धाशिष्या गुरुर् युवा..-Vata vitapi samiipe bhuumi bhaage nishannaam …; … vatataror mule vruddhaa shishyaa gurur yuvaa… , says DakshiNamurthy stotram.
+
+ In Chandogya Upanishad Uddalaka while teaching, asks his son Swetaketu to look at the big banyan tree there on the grounds and ask him to bring seed from the tree. When he brings, he asked him to cut it and examine. Swetaketu cuts it and looks inside and finds there nothing that he can identify as something. Uddaalaka says that you cannot see clearly, but it is there, and from that subtle thing, the whole humongous tree is created – thus explaining how the manifestation of this ever-expanding samsara can come when the seeds are sown in a proper environment conducive for their growth. The unmanifested vaasanaas now express themselves as ever-expanding samsara like the Banyan tree.
+
+ Baby Krishna is lying down on the leave of that Banyan tree leaves that can float even in the high seas, thus carrying the remnants of the vaasanas of all jiivas. This is a symbolic picture of maha pralayam where the whole universe goes into subtle form. 
+
+
+
+Aravinda is the lotus, which grows in the muddy waters but does not get affected by the muddy environment. Krishna says, all beings are in Me, and yet I am untouched by the actions that is performed by all beings…mastaani sarva bhuutani na ca aham teshu avathitaH| Thus their modifications, trials, and tribulations do not affect me, even though they are all in Me, mastaani sarva bhuutani. The feet of the Lord is the symbolism of the jiivas that are traveling around and around the lokas – one life after the other – He is pulling the leg and putting into the mouth showing that there is the real peace that one is longing for and one can gain that only by surrendering to the Lord, whose breathing-in and breathing-out represents the Life-Force that is getting activated and being withdrawn. The toe-thumb keeps slipping out the mouth, and the Lord is again pulling back into the mouth – as vaasaanas propel the jiivas to search for happiness elsewhere.
+
+ Leelasuka says to that baala mukunda I prostrate with my full heart.
+ |
+| 
+|  |
+
+ |
+
+
+-------------------------------
+
+Hari Om!
+
+Sadananda
+
+
+

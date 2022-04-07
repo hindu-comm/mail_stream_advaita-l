@@ -1,0 +1,68 @@
++++
+title = "08 Raja Krishnamurti"
+date = "2022-02-05"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2022-February/057995.html"
+
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2022-February/057995.html)
+
+Ultimately Man has to go beyond names and forms to realize the Ultimate Truth that is I am Brahman and I appear and disappear as And when it becomes necessary, I am Brahma Vishnu and Rudra all in one. I am the ONE and without a second. It should not be understood that I am ignoring any of these names of Gods or Forms. In fact, one has to discover the best path for oneself to attain that ultimate Realization.
+Best Regards,
+Raja Krishnamurti
+
+Sent from my iPhone
+
+> On Feb 5, 2022, at 8:55 AM, V Subrahmanian via Advaita-l <advaita-l at lists.advaita-vedanta.org> wrote:
+> 
+> Dear Putran ji,
+> 
+> Very well articulated. In fact
+> 
+> Shankara has said in the BSB itself:
+> Brahman/Ishwara can and does take on a form, to bless/help an aspirant in
+> his sadhana.: स्यात्परमेश्वरस्यापि इच्छावशात् मायामयं रूपं
+> साधकानुग्रहार्थम् । (1.1.vii.20) (Ishwara, out of compassion, takes on, by
+> His Maya, a form to grace the spiritual aspirant.//
+> 
+> The Uttara Khanda of Padma Purana has a beautiful reference to Panchayatana
+> puja. Bhagavan Krishna says the following to Satyabhama in the 88th Chapter
+> :
+> शैवाः सौराश्च गाणेशा वैष्णवाः शक्तिपूजकाः ।
+> मामेव प्राप्नुवंतीह वर्षांभः सागरं यथा ॥ ४३ ॥
+> एकोऽहं पंचधा जातः क्रीडयन्नामभिः किल ।
+> देवदत्तो यथा कश्चित्पुत्राद्याह्वाननामभिः ॥ ४४ ॥  ( 6.88.43-44)
+> Bhagvan says to Satyabhama , "As  rain-water reaches the ocean, so also,
+> the worshippers of Shiva,Surya,Ganesha,Vishnu and Shakti attain me. I am
+> one, yet manifest in five ways. As one Devadatta is addressed in many ways,
+> so also, I am called variously owing to my play. "
+> 
+> It now comes to my light that the first line directly and the second line
+> implicitly form the basis for this shloka of Sri Madhusudana Saraswati in
+> his Gudhartha dipika commentary to the Bh.Gita:
+>                      शैवाः सौराश्च गाणेशा वैष्णवाः शक्तिपूजकाः।
+> भवन्ति यन्मयाः सर्वे सोहमस्मि परः शिवः।।3।
+> I am that Supreme Consciousness that Shaivas, Sauras, Gaaneshas, Vaishnavas
+> and Shaakta hold to be their upasya devataa. It is well known that the
+> Ishta Devataa of Madhusudana Saraswati is Balakrishna. So, we have the
+> authority of the Padma purana that the five sects such as Shaiva, Saura,
+> etc. are authentic.
+> 
+> warm regards
+> subbu
+> 
+>> On Sat, Feb 5, 2022 at 7:49 PM putran M <putranm4 at gmail.com> wrote:
+>> 
+>> This is a wonderful site
+>> https://www.youtube.com/channel/UC16Lip5huUx63iFX-0J9t_w/featured (from
+>> Advaita-l) where Shiva is seen as the Supreme Godhead or Personality.
+>> 
+> _______________________________________________
+> Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+> http://blog.gmane.org/gmane.culture.religion.advaita
+> 
+> To unsubscribe or change your options:
+> https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> 
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+
