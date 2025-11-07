@@ -1,0 +1,187 @@
++++
+title = "28 Bhaskar YR"
+date = "2023-05-09"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2023-May/060166.html"
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2023-May/060166.html)
+
+praNAms
+Hare Krishna
+
+I vaguely remember and heard  in some tattva vAda discourse that all tAmasa pUrANa-s written in such a way that all patita jeeva-s (mukti ayOgya jeeva-s) would get attracted to it so that they will reach eternal hell.  Though all great virtues written there it is only with the intention to attract and impress the patita jeeva-s and to guide them to their deserved destination.  And all mukti yOgya jeeva-s will not be deluded by flowery nature of tAmasa pUraNa-s because they have the grace of Hari (hari karuNa) !!??  And I don’t remember on what basis he was concluding like this.  Perhaps some madhwa's work would support it!!
+
+Hari Hari Hari Bol!!!
+Bhaskar YR
+
+
+-----Original Message-----
+From: Advaita-l <advaita-l-bounces at lists.advaita-vedanta.org> On Behalf Of V Subrahmanian via Advaita-l
+Sent: Tuesday, May 9, 2023 1:16 PM
+To: A discussion group for Advaita Vedanta <advaita-l at lists.advaita-vedanta.org>
+Cc: V Subrahmanian <v.subrahmanian at gmail.com>
+Subject: Re: [Advaita-l] Do 'Tamasa' Puranas enjoin practice of Adharma?
+
+Warning
+
+This email comes from outside of Hitachi Energy. Make sure you verify the sender before clicking any links or downloading/opening attachments.
+If this email looks suspicious, report it by clicking 'Report Phishing' button in Outlook.
+See the SecureWay group in Yammer for more security information.
+
+Dear Raghave ji,
+
+I have not seen any explanation for these alleged verses.
+
+ If even if leave out the sectarian angle we can give a thought the
+following:
+
+The Brahma Sutra begins with the declaration of the requirement of the four fold qualifications viz Viveka, vairagya, etc. We find in the Tamasa Puranas these aspects laid out clearly. Unless someone is able to establish  the Tamasa Puranas do not teach these for taking up the enquiry into Bramhan for liberation, the alleged statement of the Padma purana that the Tamasa Puranas teach wrong knowledge and result in hell remains invalid.
+
+It is also to be noted that Brahma sutras do not state either Vishnu or Shiva as the Parabrahman.
+
+Also, interestingly, if it is said that the Tamasa puranas also contain sattva portions, on the same lines, the Sattva puranas also, since it is admitted that they contain tamasa portions, should be admitted to lead to naraka.  But what those 'portions' are can never be determined to the agreement of all.  It is like the question: Which interpretation of the Prasthana traya is agreeable to all. In any case it is this classification of Puranas that is crucial, the very life line for the very existence of the Vaishnava sects.  Advaita alone is not in such a pitiable position as to depend for its existence on this classification.
+
+For, the classification is patently shruti viruddha. There are many Vedic portions and Upanishads that are clearly depicting Shiva/Rudra as the Para Brahman, JagatkAraNam, Mokshaprada.  Since the Purana classification contradicts this, as taught by Anandagiri (while explaining Sureshwaracharya's Vartika on Brihadaranyaka Antaryami Brahmanam Bhashya saying 'that Antaryami is known by the names Hari, Brahma and Pinaki'), since the Puranas (that seem to distinguish between the Trimurtis) are subservient to Veda and wherever they differ/contradict the Veda they cease to be pramana.
+
+On this shaastraic logic it is quite alright for Advaitins to consider the classification of puranas as a-prAmANika for Vedantins.  For sectarians, that is theistic schools, these are prAmANika since this classification alone sustains their siddhanta.
+
+
+warm regards
+
+subbu
+
+On Tue, May 9, 2023 at 7:23 AM Raghav Kumar Dwivedula via Advaita-l < advaita-l at lists.advaita-vedanta.org> wrote:
+
+> Namaste Subbu ji
+> The verse here remains problematic if it indeed is taken to refer to
+> Shiva purANa etc.
+>
+> Is there any other explanation for this Padma purANa verse. Or could
+> it be shown to be an interpolation with there being editions in which
+> this verse does not figure?
+>
+>
+>  The Padma purana says:
+> >
+>
+> >
+> > सात्विका मोक्षदाः प्रोक्ताः राजसा सर्वदा अशुभाः ।
+> >
+> > तथैव तामसा देवि निरयप्राप्तिहेतवः ।।
+> >
+> >   प.पु. उत्तर 236.21
+> >
+> >
+> > Sattvika puranas lead to mukti, liberation, Rajasika puranas,
+> > inauspiciousness and Tamasa puranas lead to hell.
+> >
+> >
+> > The question that arises is: Do the Tamasa puranas enjoin one to
+> > perform sinful deeds, that is, adharma? Is there evidence for such
+> > an enjoining like 'engage in stealing, killing brahmanas, drink alcohol, etc.'
+> >
+> >
+> > The following is a sample of Dharma being taught in a Tamasa Purana,
+> Shiva
+> > Purana:
+> > Here the teaching is:  Since Dharma leads to punya and happiness and
+> > adharma leads to papa and misery, one should take to the practice of
+> > Dharma.
+> > शिवपुराणम्/संहिता १ (विश्वेश्वरसंहिता)/अध्यायः १३
+> > https://sa/
+> > .wikisource.org%2Fs%2Fsqg&data=05%7C01%7Cbhaskar.yr%40hitachienergy.
+> > com%7Cb44b2923bf214da529e008db50618ba7%7C7831e6d9dc6c4cd19ec61dc2b41
+> > 33195%7C0%7C0%7C638192152120511884%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiM
+> > C4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000%7C%
+> > 7C%7C&sdata=hJgAol2x5XClTq1nIRegJ2FUvg%2Bg3CMctVXe74PZjek%3D&reserve
+> > d=0
+> >
+> > यादृशं पुण्यं पापं वा तादृशं फलमेव हि । द्रव्यदेहांगभेदेन
+> > न्यूनवृद्धिक्षयादिकम् ५६ । अधर्मो हिंसिकारूपो धर्मस्तु सुखरूपकः ।
+> > अधर्माद्दुःखमाप्नोति धर्माद्वै सुखमेधते ५७ । विद्यादुर्वृत्तितो
+> > दुःखं सुखं विद्यात्सुवृत्तितः । धर्मार्जनमतः
+> > कुर्याद्भोगमोक्षप्रसिद्धये ५८ । ज्ञानसिद्ध्या मोक्षसिद्धिः सर्वेषां
+> > गुर्वनुग्रहात् । मोक्षात्स्वरूपसिद्धिः स्यात्परानन्दं समश्नुते ६६ ।
+> > सत्संगात्सर्वमेतद्वै नराणां जायते द्विजाः । धनधान्यादिकं सर्वं देयं
+> > वै गृहमेधिना ६७ । यद्यत्काले वस्तुजातं फलं वा धान्यमेव च ।
+> > तत्तत्सर्वं ब्राह्मणेभ्यो देयं वै हितमिच्छता ६८ ।
+> >
+> > शिवपुराणम्/संहिता ७ (वायवीयसंहिता)/पूर्व भागः/अध्यायः ३२
+> > https://sa/
+> > .wikisource.org%2Fs%2Fhz7&data=05%7C01%7Cbhaskar.yr%40hitachienergy.
+> > com%7Cb44b2923bf214da529e008db50618ba7%7C7831e6d9dc6c4cd19ec61dc2b41
+> > 33195%7C0%7C0%7C638192152120511884%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiM
+> > C4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000%7C%
+> > 7C%7C&sdata=SkFlO9NMFO6gRTZJRtGPnONPlqjbhLDmcxRxkOek%2BB0%3D&reserve
+> > d=0
+> >
+> > वायुरुवाच
+> > शैवो हि परमो धर्मः श्रेष्ठानुष्ठानशब्दितः ॥ ७.१,३२.२ यत्रापरोक्षो
+> > लक्ष्येत साक्षान्मोक्षप्रदः शिवः ॥ ७.१,३२.२ स तु पञ्चविधो ज्ञेयः
+> > पञ्चभिः पर्वभिः क्रमात् ॥ ७.१,३२.३
+> > क्रियातपोजपध्यानज्ञानात्मभिरनुत्तरैः ॥ ७.१,३२.३ तैरेव
+> > सोत्तरैस्सिद्धो धर्मस्तु परमो मतः ॥ ७.१,३२.४ परोक्षमपरोक्षं च ज्ञानं
+> > यत्र च मोक्षदम् ॥ ७.१,३२.४ परमोऽपरमश्चोभौ धर्मौ हि श्रुतिचोदितौ ॥
+> > ७.१,३२.५ धर्मशब्दाभिधेयेर्थे प्रमाणं श्रुतिरेव नः ॥ ७.१,३२.५ परमो
+> > योगपर्यन्तो धर्मः श्रुतिशिरोगतः ॥ ७.१,३२.६ धर्मस्त्वपरमस्तद्वदधः
+> > श्रुतिमुखोत्थितः ॥ ७.१,३२.६ अपश्वात्माधिकारत्वाद्यो धरमः परमो मतः ॥
+> > ७.१,३२.७ साधारणस्ततोऽन्यस्तु सर्वेषामधिकारतः ॥ ७.१,३२.७ स चायं परमो
+> > धर्मः परधर्मस्य साधनम् ॥ ७.१,३२.८ धर्मशास्त्रादिभिस्सम्यक्सांग
+> > एवोपबृंहितः ॥ ७.१,३२.८ शैवो यः परमो धर्मः श्रेष्ठानुष्ठानशब्दितः ॥
+> > ७.१,३२.९
+> >
+> > If there are instances of Tamasa Puranas asking one to commit sins,
+> > the exact verses may be cited.
+> >
+> > Om Tat Sat
+> > _______________________________________________
+> > Archives:
+> > https://li/
+> > sts.advaita-vedanta.org%2Farchives%2Fadvaita-l%2F&data=05%7C01%7Cbha
+> > skar.yr%40hitachienergy.com%7Cb44b2923bf214da529e008db50618ba7%7C783
+> > 1e6d9dc6c4cd19ec61dc2b4133195%7C0%7C0%7C638192152120511884%7CUnknown
+> > %7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiL
+> > CJXVCI6Mn0%3D%7C3000%7C%7C%7C&sdata=76%2FhDkT2LYfyCh0UCYPX9WPlSUAJIN
+> > mm4tM%2Bf548tMw%3D&reserved=0
+> >
+> > To unsubscribe or change your options:
+> > https://li/
+> > sts.advaita-vedanta.org%2Fcgi-bin%2Flistinfo%2Fadvaita-l&data=05%7C0
+> > 1%7Cbhaskar.yr%40hitachienergy.com%7Cb44b2923bf214da529e008db50618ba
+> > 7%7C7831e6d9dc6c4cd19ec61dc2b4133195%7C0%7C0%7C638192152120511884%7C
+> > Unknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik
+> > 1haWwiLCJXVCI6Mn0%3D%7C3000%7C%7C%7C&sdata=w8Zqta4tiqmZrHSIJ4eAH25d%
+> > 2B%2FWbZJAh2DlxncB%2BZ6s%3D&reserved=0
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> >
+> _______________________________________________
+> Archives:
+> https://list/
+> s.advaita-vedanta.org%2Farchives%2Fadvaita-l%2F&data=05%7C01%7Cbhaskar
+> .yr%40hitachienergy.com%7Cb44b2923bf214da529e008db50618ba7%7C7831e6d9d
+> c6c4cd19ec61dc2b4133195%7C0%7C0%7C638192152120668110%7CUnknown%7CTWFpb
+> GZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0
+> %3D%7C3000%7C%7C%7C&sdata=xV7mhMszHwZHqQZOCG8tbHKCWq9KbUKnZF2gzwjoiRE%
+> 3D&reserved=0
+>
+> To unsubscribe or change your options:
+> https://list/
+> s.advaita-vedanta.org%2Fcgi-bin%2Flistinfo%2Fadvaita-l&data=05%7C01%7C
+> bhaskar.yr%40hitachienergy.com%7Cb44b2923bf214da529e008db50618ba7%7C78
+> 31e6d9dc6c4cd19ec61dc2b4133195%7C0%7C0%7C638192152120668110%7CUnknown%
+> 7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJX
+> VCI6Mn0%3D%7C3000%7C%7C%7C&sdata=5B9Hg62dgClkWFst496LWoXakHAQN4%2BOPqA
+> Dr5Fdwaw%3D&reserved=0
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
+_______________________________________________
+Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+
+To unsubscribe or change your options:
+https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+
+For assistance, contact:
+listmaster at advaita-vedanta.org

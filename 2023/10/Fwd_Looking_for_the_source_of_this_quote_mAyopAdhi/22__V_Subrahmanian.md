@@ -1,0 +1,29 @@
++++
+title = "22 V Subrahmanian"
+date = "2023-10-03"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2023-October/060809.html"
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2023-October/060809.html)
+
+---------- Forwarded message ---------
+From: V Subrahmanian <v.subrahmanian at gmail.com>
+Date: Wed, Oct 4, 2023 at 9:09 AM
+Subject: Looking for the source of this quote: “मायोपाधिरयं जीवः:
+अविद्योपाधिरीश्वर” इत्युक्तेः
+To: BHARATIYA VIDVAT <bvparishat at googlegroups.com>
+
+
+Namaste
+
+The following quote is found in the Vachaspatyam:
+
+“मायोपाधिरयं जीवः: अविद्योपाधिरीश्वर” इत्युक्तेः...
+
+There is, however, a well known quote:  कार्योपाधिरयं जीवः कारणोपाधिरीश्वरः।
+in the Shukarahasyopanishad. But the above cited one is not seen to be in
+any text.
+
+The source of the quote is not known.  Any help is appreciated.
+
+Thanks
+subrahmanian.v
