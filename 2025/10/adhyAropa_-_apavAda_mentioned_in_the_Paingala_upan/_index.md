@@ -1,0 +1,3 @@
++++
+title = "Adhyāropa - apavāda mentioned "
++++

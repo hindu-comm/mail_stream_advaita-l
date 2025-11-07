@@ -1,0 +1,22 @@
++++
+title = "52 Bhaskar YR"
+date = "2025-01-29"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2025-January/063146.html"
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2025-January/063146.html)
+
+
+सर्वश्रुतिषु च ब्रह्मणि आत्मशब्दप्रयोगात् आत्मशब्दस्य च प्रत्यगात्माभिधायकत्वात् , ‘एष सर्वभूतान्तरात्मा’ (मु. उ. २ । १ । ४) इति च श्रुतेः परमात्मव्यतिरेकेण संसारिणोऽभावात् — ‘एकमेवाद्वितीयम्’ (छा. उ. ६ । २ । १) ‘ब्रह्मैवेदम्’ (मु. उ. २ । २ । ११) ‘आत्मैवेदम्’ (छा. उ. ७ । २५ । २) इत्यादिश्रुतिभ्यः युक्तमेव अहं ब्रह्मास्मीत्यवधारयितुम् ॥   - बृ. उ. भा  २ । १ । २०
+
+praNAms Acharya Jaishankar prabhuji
+Hare Krishna
+
+When the realization happens like above there is NO AVIDYA to anyone whatsoever.  This is what bhAshyakAra clarifies in sUtra bhAshya.  Till that time or till the realization of this parama siddhAnta, in the vyavahAra there is jeeva who is different from Ishwara and jagat.  This jeeva tries to get rid of his avidyA.  And in this scenario, avidyA means the absence of jnAna, abhAva of his svarUpa jnAna. And in our day to day transactions also, if any person has ignorance about something different from himself, it is clear that that avidyA / ignorance belongs to him. We dont have any confusion about this. I have the
+avidyA of grammar; another has the avidyA of gaNita shAstra, etc. Most of the time avidyA in vyAvahArika jagat dealt with apriori acceptance  as absence of knowledge in our intellect.  But when it comes to jeeva’s svarUpa ajnAna the question is rather complicated and bit confusing. Because, this avidyA in jeeva is about brahman which is his own svarUpa. Therefore, the question arises “does
+it belong to jeeva or to brahman.  If we say avidyA belongs to jeeva, the next question is :  is not jeeva nothing but brahman??  And when the jeeva is nothing but brahman, what is the problem in saying avidyA belongs to brahman??  Here exactly we have to take the shruti help in understanding the jeeva who is in vyavahAra is different from brahman and jeeva is the one who is doing the jignAsa to realize brahman i.e. his own svarUpa.  Any shAstrAdhyAyi starts his jignAsa on the platform that :  it is my avidyA and with the aid of sAdhana I have to eradicate it to realize my svarUpa.  No one would entertain the doubt like : Is it my avidyA or brahman’s ( who I am trying to realize)  avidyA!!??  In this enquiry by jeeva, that is me (self), would like to see / realize the SELF as the creator of the jagat is that brahman only  which is sarvajna and sarva shakta and he is  eternally forever pure SELF (paramAtma) and liberated and always greater than me (self/jeeva). Here me (the tiny self) the jeeva is not like sarvajnAdi guNa saMpanna paramAtma coz. I have avidyA even though I am not different from that ekameva Chaitanya, at this stage,  I will be under the impression that I am avidyAvanta yet to realize that bhUma vidyA.  Shankara in his bhAshya clarifies the difference between self and SELF somewhere and says brahman is nitya Shuddha buddha mukta svabhAvaM but jeeva even though he has the same qualities/ dharma as Ishwara he is covered by the fault of avidyA (sU bh 3.2.5). In this way for the jeeva Ishwara is forever free from avidyA. From the above analysis, IMO it is unambiguously clear that avidyA is in the jeeva ( this also would be denied in geeta bhAshya as kshetrajna is nothing but brahman hence avidyA is kevala karaNa dOsha), not in Ishwara/brahman,   Yes, it is true that it is said in br.up. that  the superimposition of the dharma not existing in brahman is made in brahman. And for the question, but can I not say that brahman is not responsible for this imposition and It is not the cause of avidyA? The answer given is : let brahman not be the cause of avidyA and not Itself confused. But, note that the jeeva who has created avidyA for himself and confused is not different
+from brahman.  So it is evident all the talks about jeeva, his avidyA etc. is from jeeva’s perspective not to prove that brahman is the Ashraya of avidyA.  The point to be noted as per my understanding is though jeeva is in reality of the nature of brahman, it is the jeeva who is having the avidyA and brahman being sarvajna and sarva shakta is always and forever free from avidyA and definitely HE is not of the nature of tiny jeeva who is imprisoned in avidyA.  So, above bhAshya vAkya is the siddhAnta vAkya to be realized here in vyavahAra by jeeva.
+
+Humble praNAms once again.
+
+Hari Hari Hari Bol!!!
+bhaskar

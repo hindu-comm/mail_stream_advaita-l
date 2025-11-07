@@ -1,0 +1,106 @@
++++
+title = "48 Krishna Kashyap"
+date = "2024-12-12"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2024-December/062870.html"
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2024-December/062870.html)
+
+in particular my question is here:
+
+यामिमां ब्राह्मीमुपनिषदं तवाग्रेऽब्रूमेति तस्यै तस्या उक्ताया उपनिषदः
+प्राप्त्युपायभूतानि तपआदीनि । तपः कायेन्द्रियमनसां समाधानम् । दमः उपशमः ।
+कर्म अग्निहोत्रादि । एतैर्हि संस्कृतस्य सत्त्वशुद्धिद्वारा
+तत्त्वज्ञानोत्पत्तिर्दृष्टा ।
+
+here once a person gets satva shuddhi through agnihotra, tapas, dama and so
+on, if automatically one gets tatva jnana, then why does shankaracharya
+denies that status of anga, sahakari karana and so on for the karma
+portion, which includes these agnihotra and so on?
+
+this is the question. I dont know of a clear answer here.
+
+
+*Best Regards,*
+
+*Krishna Kashyap*
+
+
+
+
+On Thu, Dec 12, 2024 at 8:09 PM Krishna Kashyap <kkashyap2011 at gmail.com>
+wrote:
+
+> I am studying Kena Upanishad. at the end of 4th khanda, there is a
+> discussion about why Jnani should give up karma. the vedadhyayana and other
+> karmas are unnecessary for moksha. This kind of discussion occurs in all of
+> Prasthana scriptures commented by Shankaracharya.
+>
+> If you see kena upanishad bhashya, invariably there will be a reference to
+> bramhasutra bhashya or some brihadaranyaka or chandogya sentence. Has
+> anyone done a document that indicates the root of all such arguments and
+> why Shankaracharya is denying jnana-karma samucchaya or anga-angi bhava
+> between jnana and karma?. Even in Isavasya, the same concept comes up.
+> However, in every Upanishad or gita bhashya, there are a lot of references
+> that go back to either Brahma sutra bhashya or some brihadaranyaka or other
+> Upanishad bhashya.
+>
+> Obviously, if anyone quotes for example kena upanishad bhashya line to
+> justify isavasya line, and vice-versa, that becomes a game or cyclic
+> dependency issue.
+>
+> Has someone studied this issue and come up with a concept as to why
+> Shankaracharya is against karma being an anga for jnana?
+>
+> I know we can study any particular upanishad bhashya of Shankaracharya and
+> go on a linear line by line understanding. However, he often emphatically
+> suggests how can you mix light and darkness? tejas timira iva? and all such
+> powerful statements to prove this point. However, where is the root of such
+> arguments? This is an academic study I am thinking about where the entire
+> concept of why karma cannot be an anga for jnana. If so why karmas are
+> prescribed and to whom? how does one transcend from being a karma-doer to a
+> karma-ignorer?
+>
+> I am particularly looking for the concept behind it.
+> I have come across things like seeing a serpent in a dream you cannot take
+> a stick and chase it away. You have to get out of the dream state and then
+> know there is no serpent to start with and you don't need a stick or
+> action. so here the idea is ajnana is the reason for action. if one has
+> atmaikya jnana no karma is possible. the problem is in the phase of
+> sadhana, where does one give up and when should a person never give up.
+>
+> All these are stray concepts. I want the definitive concept and upanishad
+> reference proof which is the origin behind why the shastras keep on
+> insisting and prescribing so many karmas to people and at the same time a
+> jnani should stay away from karmas.
+>
+> I know that if one knows that there is one entity atman, which is nitya,
+> shuddha, buddha, mukta, nishkriya, shanta and so on, in addition to knowing
+> that there is nothing else other than that atman, Obviously karma becomes
+> superfluous and a jnani cannot do karma, since he is not an agent nor does
+> he need something to achieve to start with. Where exactly is this concept
+> first referenced in shankara bhashya so that we can avoid looking at so
+> many upanishads and jump right to the origin of that argument within
+> shankara bhashya.
+>
+> I prefer only shankara bhashya and not the later authors of advaita. Not
+> that I don't respect them. However, I want to avoid post-Shankara-advaita
+> branches and deal with the words of Shankaracharya only for now.
+>
+> sorry for the repetitive thoughts. I had to point out my question clearly
+> and I have repeated some thoughts.
+>
+> *Best Regards,*
+>
+> *Krishna Kashyap*
+>
+>
+> --
+> You received this message because you are subscribed to the Google Groups
+> "भारतीयविद्वत्परिषत्" group.
+> To unsubscribe from this group and stop receiving emails from it, send an
+> email to bvparishat+unsubscribe at googlegroups.com.
+> To view this discussion visit
+> https://groups.google.com/d/msgid/bvparishat/CANkLSM%3DqX7raBPk9LM%2B%3Dd0yLKGXzXJf9e7WSyjtDxMzQo6o6uA%40mail.gmail.com
+> <https://groups.google.com/d/msgid/bvparishat/CANkLSM%3DqX7raBPk9LM%2B%3Dd0yLKGXzXJf9e7WSyjtDxMzQo6o6uA%40mail.gmail.com?utm_medium=email&utm_source=footer>
+> .
+>

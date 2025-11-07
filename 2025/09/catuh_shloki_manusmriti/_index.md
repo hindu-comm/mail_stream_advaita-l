@@ -1,0 +1,3 @@
++++
+title = "catuh shloki manusmriti"
++++

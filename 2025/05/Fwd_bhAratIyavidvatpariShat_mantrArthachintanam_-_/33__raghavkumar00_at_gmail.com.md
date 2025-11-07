@@ -1,0 +1,175 @@
++++
+title = "33 raghavkumar00 at gmail.com"
+date = "2025-05-12"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2025-May/063598.html"
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2025-May/063598.html)
+
+Namaste Aravinda jiSri Shankaracharya in PTBhas not commented on two of the 10 North Indian shanti mantras-
+“yo brahmANan vidadhAti pUrvaM ….”and alsobhadraM no apivAtaya manaHWhich are the shanti mantras of the North Indian Vedanta tradition
+Although श्वेताश्वतर has the first one within it (not as aShanti mantra)
+And similarly he has not commented on most of the South Indian traditional shanti mantras either, like
+namo vAce ya coditA ya cAnuditA etc
+द्यौःशान्तिरन्तरिक्षंशान्तिः
+पृथिवीशान्तिरापःशान्तिरोषधयःशान्तिः। etc
+
+OmRaghav
+
+
+
+On Mon, 12 May 2025 at 11:47 AM, Aravinda Rao via Advaita-l <advaita-l at lists.advaita-vedanta.org> wrote:
+
+Namaskars,
+The commentary on all the shanti-mantras is given by Sri Shankaracharya as
+part of his commentaries on the ten upanishads. They are from the four
+vedas and hence most of the shanti mantras have been commented upon. Other
+acharyas might have similarly given the meanings as per their tradition.
+Same Reality described differently by different sages.
+Aravinda Rao
+
+On Mon, May 12, 2025 at 11:26 AM V Subrahmanian via Advaita-l <
+advaita-l at lists.advaita-vedanta.org> wrote:
+
+> On Mon, May 12, 2025 at 11:14 AM Raghav Kumar Dwivedula via Advaita-l <
+> advaita-l at lists.advaita-vedanta.org> wrote:
+>
+> > Namaste Subbuji
+> > In the northern Indian vedantic ashrams, the dasha shanti mantras are
+> > different. All the shanti mantras of the different Upanishads are
+> > collectively called the dasha shanti mantras. They are chanted daily
+> prior
+> > to ptb study along with Vedanta guruparamparA stotram.
+> >
+> > https://archive.org/details/DashaShantiMantra
+> >
+> >
+> > I have certainly heard the dasha shanti mantras referenced in Sri
+> Jayaraman
+> > Ji’s blog from
+> > Challakere brothers etc. but was curious to know if there is any detailed
+> > background or rationale based on which these particular mantras (which no
+> > doubt have suitable meaning and content) are chosen rather than others.
+> >
+>
+> Dear Raghav ji,
+>
+> Interesting question. I think it is a tradition that has been followed for
+> the shanti mantras for the respective Upanishads. Going by the Taittiriya
+> Shanti mantra/s commented by Bhagavatpada, it looks like it has been handed
+> down in tradition.
+>
+> regards
+> subbu
+>
+> >
+> > Om
+> > Raghav
+> >
+> >
+> >
+> >
+> >
+> >
+> > On Mon, 12 May 2025 at 7:12 AM, V Subrahmanian via Advaita-l <
+> > advaita-l at lists.advaita-vedanta.org> wrote:
+> >
+> > > ---------- Forwarded message ---------
+> > > From: Jayaraman M <jramanm at gmail.com>
+> > > Date: Sun, May 11, 2025 at 6:00 PM
+> > > Subject: {भारतीयविद्वत्परिषत्} मन्त्रार्थचिन्तनम् - शान्तिमन्त्राः
+> > > To: भारतीयविद्वत्परिषत् <bvparishat at googlegroups.com>
+> > >
+> > >
+> > > Namaste
+> > >
+> > > I am happy to share a playlist of 14 videos where I discuss the
+> > traditional
+> > > Vedic Shanti Mantras in Samskritam - based on Samskrita commentaries of
+> > > Acharya Shankara and Acharya Sayana.
+> > >
+> > > Link for the playlist -
+> > >
+> https://www.youtube.com/playlist?list=PLHwsf77PLjWvtav6YyXlwznsJvcD0SWfb
+> > >
+> > > -------------
+> > > I also invite you to explore the list of *368 hours Lecture repository
+> > *(in
+> > > English) on Vedic Mantras, Stotras, select Yoga texts| Procedure to
+> > Access
+> > > the repostiry is also given in the link -
+> > > https://mantrartha.blogspot.com/2023/08/mantra-artha-150-hours.html
+> > >
+> > > regards
+> > > Dr. M.Jayaraman
+> > > Professor & Dean, Division of Yoga and Spirituality, SVYASA Yoga
+> > > University, Bengaluru
+> > > Mantra Artha - *https://tinyurl.com/bdcu7xpw
+> > > <https://tinyurl.com/bdcu7xpw> *
+> > > Member, Board of Studies (Yogic Science and Spirituality), Central
+> > Sanskrit
+> > > University, New Delhi
+> > > Member, Task Force, Traditional Knowledge Digital Library-CSIR, Govt of
+> > > India
+> > > Member, Governing Board, Kalakshetra Foundation
+> > > Member, Board of Studies, Department of Yoga and Alternative Therapy,
+> > > Kavikulaguru Kalidasa Sanskrit University, Nagpur
+> > > Member, Editorial Board, Standard Publicity, Publication And Public
+> > > Relations Committee, Indian Yoga Association
+> > > Member, BoS, Dept of Sanskrit, University of Madras *& RKM Vivekananda
+> > > College, Chennai*
+> > >
+> > >
+> > > --
+> > > You received this message because you are subscribed to the Google
+> Groups
+> > > "भारतीयविद्वत्परिषत्" group.
+> > > To unsubscribe from this group and stop receiving emails from it, send
+> an
+> > > email to bvparishat+unsubscribe at googlegroups.com.
+> > > To view this discussion visit
+> > >
+> > >
+> >
+> https://groups.google.com/d/msgid/bvparishat/CAEukK4zk5GoeMQAZdEa3E8nZ9s9_fakARnuXW1xCHMGWinUrkw%40mail.gmail.com
+> > > <
+> > >
+> >
+> https://groups.google.com/d/msgid/bvparishat/CAEukK4zk5GoeMQAZdEa3E8nZ9s9_fakARnuXW1xCHMGWinUrkw%40mail.gmail.com?utm_medium=email&utm_source=footer
+> > > >
+> > > .
+> > > _______________________________________________
+> > > Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+> > >
+> > > To unsubscribe or change your options:
+> > > https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> > >
+> > > For assistance, contact:
+> > > listmaster at advaita-vedanta.org
+> > >
+> > _______________________________________________
+> > Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+> >
+> > To unsubscribe or change your options:
+> > https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> >
+> _______________________________________________
+> Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+>
+> To unsubscribe or change your options:
+> https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
+_______________________________________________
+Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+
+To unsubscribe or change your options:
+https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+
+For assistance, contact:
+listmaster at advaita-vedanta.org
+

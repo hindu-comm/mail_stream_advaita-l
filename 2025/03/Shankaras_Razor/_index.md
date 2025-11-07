@@ -1,0 +1,3 @@
++++
+title = "Shankara's Razor"
++++

@@ -1,0 +1,82 @@
++++
+title = "06 সপ্ত Rishi"
+date = "2025-03-06"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2025-March/063300.html"
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2025-March/063300.html)
+
+In case of Sr Ramakrishna, he was done puja while he was sa-sharira infront
+of him.
+
+Ramchandra dutta,Girish chandra Ghosh,and then the 12 disciples, all of
+them did do that.
+
+My 2 cents on this.
+
+Yours sincerely
+Saptarshi
+
+On Fri, 7 Mar 2025, 07:27 Aravinda Rao, <karavind09 at gmail.com> wrote:
+
+> Namaskars,
+> Would Shankaracharya approve of his deification and approve of his puja? I
+> doubt it. We may be doing a disservice to him because some lazy persons
+> would be content to do puja and leave it at that, without actually reading
+> and critically understanding what he wrote. Some people are doing the same
+> for Ramakrishna and Vivekananda.
+> I have all regard for Shankaracharya, and I have been teaching his
+> bhashyams.
+> Regards,
+> Aravinda Rao
+>
+> On Fri, Mar 7, 2025 at 12:57 AM Divya Shiva <divyameedin at gmail.com> wrote:
+>
+>> Namaste
+>>
+>> Sharing:
+>>
+>> Sri Shankarabhagavatpadacharya Saparya Paddhati - Sri Bhashya Swamigal
+>> (Puja Kalpam)
+>>
+>>
+>> https://archive.org/details/acc.-no.-6062-sabarya-pathathi/mode/2up?view=theater
+>>
+>> Members may kindly share any available reading material on the life and
+>> works of Sri Bhashya Swamigal, adding to a writing project.
+>>
+>> Regards
+>> Divya
+>>
+>>
+>>
+>> On Sun, May 10, 2020 at 4:14 PM Divya Meedin <divyameedin at gmail.com>
+>> wrote:
+>>
+>>> Blessed with the Srimukham of Sringeri Jagadguru, a translation of
+>>> Matrupanchakam composed by Shri Bhashya Swamigal:
+>>>
+>>>
+>>> https://archive.org/details/matrupanchakamofbhashyaswami_20200229/mode/2up
+>>>
+>>>
+>>>
+>>> --
+>> You received this message because you are subscribed to the Google Groups
+>> "advaitin" group.
+>> To unsubscribe from this group and stop receiving emails from it, send an
+>> email to advaitin+unsubscribe at googlegroups.com.
+>> To view this discussion visit
+>> https://groups.google.com/d/msgid/advaitin/CAO01tg%3DdzpfG%2BGg85sh%3D0KUceYFy06AiB1HoVJqG7CTj085xSA%40mail.gmail.com
+>> <https://groups.google.com/d/msgid/advaitin/CAO01tg%3DdzpfG%2BGg85sh%3D0KUceYFy06AiB1HoVJqG7CTj085xSA%40mail.gmail.com?utm_medium=email&utm_source=footer>
+>> .
+>>
+> --
+> You received this message because you are subscribed to the Google Groups
+> "advaitin" group.
+> To unsubscribe from this group and stop receiving emails from it, send an
+> email to advaitin+unsubscribe at googlegroups.com.
+> To view this discussion visit
+> https://groups.google.com/d/msgid/advaitin/CAGwUMpR75qzKQqtkJrprJWKoSpRr7jL-9tAnS1sKF5y1OmrWDg%40mail.gmail.com
+> <https://groups.google.com/d/msgid/advaitin/CAGwUMpR75qzKQqtkJrprJWKoSpRr7jL-9tAnS1sKF5y1OmrWDg%40mail.gmail.com?utm_medium=email&utm_source=footer>
+> .
+>

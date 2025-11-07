@@ -1,0 +1,71 @@
++++
+title = "107 K Kameswaran"
+date = "2025-08-31"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2025-August/064006.html"
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2025-August/064006.html)
+
+Namaste.
+
+ you can see it in the link below..
+
+https://www.gitasupersite.iitk.ac.in/srimad?htrskd=1&httyn=1&htshg=1&scsh=1&hcchi=1&hcrskd=1&scang=1&language=dv&field_chapter_value=18&field_nsutra_value=50
+
+देहचैतन्यवादिनश्च लोकायतिकाः चैतन्यविशिष्टः कायः पुरुषः इत्याहुः। तथा अन्ये
+इन्द्रियचैतन्यवादिनः? अन्ये मनश्चैतन्यवादिनः? अन्ये बुद्धिचैतन्यवादिनः।
+ततोऽपि आन्तरम् अव्यक्तम् अव्याकृताख्यम् अविद्यावस्थम् आत्मत्वेन प्रतिपन्नाः
+केचित्। सर्वत्र बुद्ध्यादिदेहान्ते आत्मचैतन्याभासता आत्मभ्रान्तिकारणम्
+इत्यतश्च आत्मविषयं ज्ञानं न विधातव्यम्। किं तर्हि
+नामरूपाद्यनात्माध्यारोपणनिवृत्तिरेव कार्या? आत्मचैतन्यविज्ञानं कार्यम्?
+अविद्याध्यारोपितसर्वपदार्थाकारैः विशिष्टतया दृश्यमानत्वात् इति। अत एव हि
+विज्ञानवादिनो बौद्धाः विज्ञानव्यतिरेकेण वस्त्वेव नास्तीति प्रतिपन्नाः?
+प्रमाणान्तरनिरपेक्षतां च स्वसंविदि तत्वाभ्युपगमेन। तस्मात्
+अविद्याध्यारोपितनिराकरणमात्रं ब्रह्मणि कर्तव्यम्? न तु ब्रह्मविज्ञाने
+यत्नः? अत्यन्तप्रसिद्धत्वात्।
+
+Thanks and Regards
+K.Kameswaran
+
+
+
+
+
+On Sun, 31 Aug 2025 at 16:29, Sudhanshu Shekhar via Advaita-l <
+advaita-l at lists.advaita-vedanta.org> wrote:
+
+> Gita bhAshya 18.50
+>
+>
+>
+> On Sun, 31 Aug, 2025, 4:07 pm XTR via Advaita-l, <
+> advaita-l at lists.advaita-vedanta.org> wrote:
+>
+> > Namaste learned members,
+> >
+> > Can you please tell where in Sankaracharya's works the following
+> statement
+> > was said?
+> >
+> >  nāmarūpādi-anātma-adhyāropaṇa-nivṛttiḥ eva kāryā na
+> > ātma-caitanya-vijñānam
+> >
+> > Thank you.
+> > J.
+> > _______________________________________________
+> > Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+> >
+> > To unsubscribe or change your options:
+> > https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> >
+> _______________________________________________
+> Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+>
+> To unsubscribe or change your options:
+> https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
