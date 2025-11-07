@@ -1,0 +1,63 @@
++++
+title = "89 Jaishankar Narayanan"
+date = "2022-11-25"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2022-November/059193.html"
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2022-November/059193.html)
+
+Dear Michael ji,
+
+Since Rope-Snake / Shell-Silver is nowhere to be found in the Upanishads
+commented by Shankara, Gita and Brahmasutra and only clay-pot, gold-lump
+and iron-nail cutter is found in the Upanishad, please present your reply
+with these instead of rope-snake analogy. I think then it will be clear
+what Ontology and epistemology are and how they are related to each other.
+
+with love and prayers,
+Jaishankar
+
+On Fri, Nov 25, 2022 at 7:28 PM Michael Chandra Cohen <
+michaelchandra108 at gmail.com> wrote:
+
+> Jaishankar ji, I will respond - please be patient.
+>
+> Kindly consider the well presented reply to your original objection from
+> another source:
+> https://drive.google.com/file/d/1nOxJ6CDZUEfZ2Kol2ncRHHjMT1z3UbA9/view
+>
+> On Fri, Nov 25, 2022 at 8:30 AM Jaishankar Narayanan via Advaita-l <
+> advaita-l at lists.advaita-vedanta.org> wrote:
+>
+>> Dear Raja Krishnamurti ji,
+>>
+>> Mithya / Asat / Anrtam are all synonymous and used a ontological terms.
+>> That means - they do not signify an object (vastu) but signify the reality
+>> status of an object. So the right statement is 'Maya is mithya / Asat /
+>> Anrtam' as Maya is not of the same order of reality as Brahman and is only
+>> in vyavahaara. Maya is used to explain away the creation and the apparent
+>> creatorship of Brahman.
+>>
+>> with love and prayers,
+>> Jaishankar
+>>
+>> On Wed, Nov 23, 2022 at 9:19 PM Raja Krishnamurti via Advaita-l <
+>> advaita-l at lists.advaita-vedanta.org> wrote:
+>>
+>> > Hari Om, Jaishankar ji, for this beautiful explanation of mithya and
+>> Maya.
+>> > Only one question. Is Maya the cause for mithya?
+>> > With great regards,
+>> > Raja Krishnamurti
+>> >
+>> >
+>> >
+>> _______________________________________________
+>> Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+>>
+>> To unsubscribe or change your options:
+>> https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>>
+>> For assistance, contact:
+>> listmaster at advaita-vedanta.org
+>>
+>

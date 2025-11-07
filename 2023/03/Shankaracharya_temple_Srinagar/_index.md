@@ -1,0 +1,3 @@
++++
+title = "Shankaracharya temple, Srinaga"
++++

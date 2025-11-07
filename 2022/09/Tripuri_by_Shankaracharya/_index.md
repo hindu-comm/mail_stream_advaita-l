@@ -1,0 +1,3 @@
++++
+title = "Tripuri by Shankaracharya"
++++

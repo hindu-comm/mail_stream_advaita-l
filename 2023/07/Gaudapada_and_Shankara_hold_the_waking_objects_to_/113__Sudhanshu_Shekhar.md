@@ -1,0 +1,257 @@
++++
+title = "113 Sudhanshu Shekhar"
+date = "2023-07-27"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2023-July/060491.html"
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2023-July/060491.html)
+
+Namaste Vemkataraghavan ji.
+
+//There has to be some anupapatti to be resolved for any rule to be
+postulated. What is the need to postulate such a thing? It cannot just be
+so that we can explain our pUrvAchArya's statement.//
+
+If ajnAna is removed completely by jnAna, there cannot remain any form of
+ajnAna or its kArya. In case of mirage water etc, the mUla-ajnAna is not
+destroyed and hence there can be some mechanism whereby the sustenance of
+perception can be explained. But in case of destruction of ajnAna by
+Brahma-jnAna, there cannot remain perception. Hence, the tuchchhatva of
+ajnAna is a logical necessity also.
+
+In case of nirupAdhika bhrama, like in rajju sarpa, mithyA is indeed
+tuchcha post-jnAna. avidyA-adhyAsa on Brahman is also nirupAdhika. Hence my
+query.
+
+I think it is only to explain the continued perception of world post-jnAna,
+that ajnAna is termed as anirvachanIya. To explain jIvanmukti, prArabdha
+etc, we need continued perception of world which requires anirvachanIya
+ajnAna. This is valid in SDV. But not in DSV.
+
+//I don't recall exactly, but I think jIvanmukti is accepted in DSV - the
+six anAdi entities are outside the scope of dRShTi sRShTi, so avidyAlesha
+also has to be technically outside its scope.//
+
+Yes. That is how Advaita Siddhi explains it. But if we see VedAnta
+SiddhAnta MuktAvali, there is negation of jIvanmukti. All references
+thereto are termed as arthavAda. post-jnAna, perception of world cannot
+continue in DSV as per my understanding as avidyA-lesha, prArabdha etc are
+not admitted.
+
+
+
+On Fri, 28 Jul 2023, 07:59 Venkatraghavan S, <agnimile at gmail.com> wrote:
+
+> Namaste Sudhanshu ji
+> There has to be some anupapatti to be resolved for any rule to be
+> postulated. What is the need to postulate such a thing? It cannot just be
+> so that we can explain our pUrvAchArya's statement.
+>
+> I don't recall exactly, but I think jIvanmukti is accepted in DSV - the
+> six anAdi entities are outside the scope of dRShTi sRShTi, so avidyAlesha
+> also has to be technically outside its scope.
+>
+> Regards,
+> Venkatraghavan
+>
+> On Fri, 28 Jul 2023, 10:06 Sudhanshu Shekhar, <sudhanshu.iitk at gmail.com>
+> wrote:
+>
+>> Namaste Vemkataraghavan ji.
+>>
+>> Quite clear.
+>>
+>> Can the rule, however, be made in case of nirupAdhika bhrama, like
+>> illusory snake/silver? It cannot be made in case of say mirage water
+>> because despite knowledge of substratum, the perception continues and hence
+>> we are forced to accept prAtibhAsika water. So, even post-bAdha, the
+>> pratIti-arhatva continues.
+>>
+>> Also, what is the position in drishTi-srishTi-vAda? Do they accept
+>> continued perception of world post-jnAna? I think not. That is why
+>> avidyA-lesha etc which is admitted in SDV is denied in DSV.
+>>
+>> On Fri, 28 Jul 2023, 07:02 Venkatraghavan S, <agnimile at gmail.com> wrote:
+>>
+>>> Namaste Sudhanshu ji,
+>>> I don't think we can make a general rule like that with any such bAdhaka
+>>> jnAna - for pratIti can continue even after bAdha in certain cases, like
+>>> sopAdhika bhrama.
+>>>
+>>> However from a pAramArthika standpoint, we can perhaps say that. I think
+>>> the reason is that there is no vyavahAra or pratibhAsa at all (न‌ निरोधो न
+>>> चोत्पत्तिः, केन कं पश्येत् etc). Therefore, there is no need for there to
+>>> be the idea of mithyAtva also.
+>>>
+>>> Like in dRShTi sRShTi vAda, we say there is no vyAvahArika prapancha, in
+>>> paramArtha we can say there is no vyAvhArika and prAtibhAsika satya.
+>>>
+>>> Regards,
+>>> Venkatraghavan
+>>>
+>>> On Fri, 28 Jul 2023, 09:05 Sudhanshu Shekhar, <sudhanshu.iitk at gmail.com>
+>>> wrote:
+>>>
+>>>> Namaste Venkatraghavan ji.
+>>>>
+>>>> Yes. It is clear.
+>>>>
+>>>> Post bAdha, can we term mithyA entities as tuchcha?
+>>>>
+>>>> For e.g. I confuse shell for silver. The silver seen there is
+>>>> prAtibhAsika silver. Post understanding, I know there was no rajata there
+>>>> and the pratiyogitA-avachchedaka of this abhAva is rajata-tva and not
+>>>> laukika-pAramAthikatva(as held by VedAnta ParibhAshA).
+>>>>
+>>>> So, while I confused shell for silver, it was prAtibhAsika silver and
+>>>> when I understood it to be shell, there has never been any silver there,
+>>>> not even prAtibhAsika silver. So, the prAtibhAsika silver, a mithyA entity
+>>>> prior to bAdha, is tuchcha post bAdha.
+>>>>
+>>>> Can a general rule, therefore, be made: mithyA entity, post bAdha, is
+>>>> understood as tuchcha.
+>>>>
+>>>> Regards.
+>>>>
+>>>> On Thu, 27 Jul, 2023, 10:18 pm Venkatraghavan S, <agnimile at gmail.com>
+>>>> wrote:
+>>>>
+>>>>> Namaste Sudhanshuji,
+>>>>>
+>>>>> From the standpoint of the Shruti, when it is speaking of the
+>>>>> paramArtha sthiti, there is no pratIti of mAyA or mAyAkArya and thus it is
+>>>>> said to be tucCha. When the bAdha happens, it sublates the pratIti arhatva
+>>>>> dharma also in all three periods of time.
+>>>>>
+>>>>> Re - "If mithyAtva of avidyA does not violate advaita,
+>>>>> then what is the need to posit its tuchchatva?"
+>>>>>
+>>>>> To point out the paramArtha satya -  the utter insignificance / non
+>>>>> existence of anything other than the Atma, in the vein of na nirodho,
+>>>>> notpattih etc.
+>>>>>
+>>>>> And if anyone says this is Buddhism...naitad buddhena bhAShitam.
+>>>>>
+>>>>> Regards,
+>>>>> Venkatraghavan
+>>>>>
+>>>>>
+>>>>>
+>>>>> On Thu, 27 Jul 2023, 14:06 Sudhanshu Shekhar via Advaita-l, <
+>>>>> advaita-l at lists.advaita-vedanta.org> wrote:
+>>>>>
+>>>>>> Namaste V Subramanian ji.
+>>>>>>
+>>>>>> How do you explain this shloka:
+>>>>>>
+>>>>>> तुच्छानिर्वचनीया च वास्तवी चेत्यसौ त्रिधा।
+>>>>>> ज्ञेया माया त्रिभिर्बोधैः श्रौतयौक्तिकलौकिकैः॥
+>>>>>>
+>>>>>> It says that as per Shruti, MAyA is tuchchA i.e. क्वचिदप्युपाधौ
+>>>>>> सत्त्वेन
+>>>>>> प्रतीयमानत्वानधिकरणत्वम्. It is only as per logic that MAyA is stated
+>>>>>> to be
+>>>>>> anirvachanIya i.e. mithyA i.e. something different from asat and sat
+>>>>>> i.e.
+>>>>>> non-existent in all three period of time in the locus where it
+>>>>>> appears to
+>>>>>> exist.
+>>>>>>
+>>>>>> As per Shruti, MAyA is tuchchA i.e. ineligible to even appear as
+>>>>>> existing
+>>>>>> in any locus.
+>>>>>>
+>>>>>> I think if Brahman is the sole reality, there is no option but to hold
+>>>>>> MAyA/avidyA as tuchchA. If mithyAtva of avidyA does not violate
+>>>>>> advaita,
+>>>>>> then what is the need to posit its tuchchatva?
+>>>>>>
+>>>>>> Or should we say: tuchchatva of avidyA is from the frame of reference
+>>>>>> of
+>>>>>> Brahman AND mithyAtva of avidyA is from the frame of reference of
+>>>>>> avidyA.
+>>>>>> And mithyAtva of avidyA is not contradictory to advaita as tuchchatva
+>>>>>> and
+>>>>>> mithyAtva have non-existence in common?
+>>>>>>
+>>>>>> Regards.
+>>>>>>
+>>>>>>
+>>>>>>
+>>>>>> On Thu, Jul 27, 2023 at 9:46 AM V Subrahmanian <
+>>>>>> v.subrahmanian at gmail.com>
+>>>>>> wrote:
+>>>>>>
+>>>>>> >
+>>>>>> >
+>>>>>> > On Thu, Jul 27, 2023 at 7:47 AM Sudhanshu Shekhar via Advaita-l <
+>>>>>> > advaita-l at lists.advaita-vedanta.org> wrote:
+>>>>>> >
+>>>>>> >> Namaste.
+>>>>>> >>
+>>>>>> >> The problem is - how can a completely non-existent thing appear to
+>>>>>> exist
+>>>>>> >> even in the middle.
+>>>>>> >>
+>>>>>> >> Tuchchha and mithyA are both non-existent. While the former does
+>>>>>> not even
+>>>>>> >> appear to exist, the latter appears to exist.
+>>>>>> >>
+>>>>>> >> But how can something which is non-existent in past, present and
+>>>>>> future
+>>>>>> >> can
+>>>>>> >> even appear to exist?
+>>>>>> >>
+>>>>>> >
+>>>>>> > Namaste
+>>>>>> >
+>>>>>> > न हि दृष्टे अनुपपन्नं नाम |  When something is so glaringly
+>>>>>> experienced,
+>>>>>> > there is nothing unreasonable about it.
+>>>>>> >
+>>>>>> > The stock example is: the experiencing of the unreal snake during a
+>>>>>> > bhrama.  The snake there is not in that locus rope during all three
+>>>>>> periods
+>>>>>> > of time.  Yet it is experienced by the one who is under the
+>>>>>> > spell/delusion.  Shankara says in the opening lines of the
+>>>>>> Sridakshinamurti
+>>>>>> > stotram:  पश्यन्नात्मनि मायया बहिरिवोद्भूतं यथा निद्रया:  a person
+>>>>>> > perceives/experiences the world within him just like one would
+>>>>>> experience a
+>>>>>> > dream. In a dream one experiences all as though it is 'outside'
+>>>>>> him, the
+>>>>>> > waking. Yet upon waking one would realize that they were never
+>>>>>> 'outside',
+>>>>>> > were inside alone but gave the feeling of outside.   The dream
+>>>>>> > objects/events are not there, they did no happen at all, during all
+>>>>>> three
+>>>>>> > periods of time. Yet one experiences them.  However, upon
+>>>>>> questioning, he
+>>>>>> > realizes their non-existence during all periods of time.  This is
+>>>>>> the
+>>>>>> > vaibhava of maya/avidya: Shankara said: अघटितघटनापटीयसी माया Maya
+>>>>>> is that
+>>>>>> > inscrutable power that is an expert in displaying something that is
+>>>>>> > impossible.
+>>>>>> >
+>>>>>> > regards
+>>>>>> > subbu
+>>>>>> >
+>>>>>> >>
+>>>>>> >>
+>>>>>> >>
+>>>>>>
+>>>>>> --
+>>>>>> Additional Commissioner of Income-tax,
+>>>>>> Pune
+>>>>>>
+>>>>>> sudhanshushekhar.wordpress.com
+>>>>>> _______________________________________________
+>>>>>> Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+>>>>>>
+>>>>>> To unsubscribe or change your options:
+>>>>>> https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>>>>>>
+>>>>>> For assistance, contact:
+>>>>>> listmaster at advaita-vedanta.org
+>>>>>>
+>>>>>>

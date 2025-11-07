@@ -1,0 +1,310 @@
++++
+title = "143 V Subrahmanian"
+date = "2023-07-28"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2023-July/060508.html"
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2023-July/060508.html)
+
+Many thanks, Sudhanshu ji for the lucid explanation. That will be very
+useful to understand this concept.
+
+warm regards
+subbu
+
+On Fri, Jul 28, 2023 at 6:12 PM Sudhanshu Shekhar <sudhanshu.iitk at gmail.com>
+wrote:
+
+> Namaste Bhaskar ji, V Subramanian ji.
+>
+> SAmAnAdhikaraNya is defined as सामानाधिकरण्यं नाम
+> भिन्नप्रवृत्तिनिमित्तानां शब्दानामेकस्मिन्नर्थे वृत्ति:। It is a
+> relationship between two words.
+>
+> When two words have different pravritti-nimitta, i.e. when two words are
+> used due to different reasons and yet they reside in same object i.e. they
+> indicate the same object, then there is sAmAnAdhikaraNya-sambandha between
+> those two words.
+>
+> Pitcher is a synonym of pot. We can use either of the two words to
+> indicate a pot. So, if someone says – pitcher is pot, then it is NOT an
+> example of sAmAnAdhikaraNya because the causes of using the words pitcher
+> and pot are not different. SAmAnAdhikaraNya applies only when the
+> pravritti-nimitta of two words are different and yet the words reside in
+> the same object.
+>
+> When we say “सः अयं देवदत्तः”, then two words सः and अयं are used to
+> indicate same object, Devadatta. However, the reasons for using these two
+> words are different. सः is used to denote
+> Devadatta-qualified-with-time-t1-and-space-s1
+> (तद्देश-तत्काल-विशिष्ट-देवदत्त) whereas अयं is used to denote
+> Devadatta-qualified-with-time-t2-and-space-s2
+> (एतद्देश-एतत्काल-विशिष्ट-देवदत्त). Thus, it is a situation wherein there is
+> sAmAnAdhikaraNya between the words सः and अयं.
+> Badhayam sAmAnAdhikaraNya
+>
+> A and B are said to be in bAdhAyAm sAmAnAdhikaraNya if the objects denoted
+> by the literal meanings of the words A and B have different ontological
+> status. For e.g. take the statement स्थाणुरयं पुरुषः – This post is a man.
+> Here, a man was taken as a stump. The statement equating post to man does
+> not have mukhya sAmAnAdhikaraNya as the entities denoted by the literal
+> meaning of the word stump and man are different ontologically. Here, it is
+> not a case of lakshaNA. It is a case where the object denoted by the
+> literal meaning of stump is sublated completely and thus the word stump
+> indicates the same entity which is indicated by another word.
+>
+> Application of sAmAnAdhikaraNya in advaita
+>
+> In the Shruti “sarvam…..Brahm”, it is clear that there is
+> sAmAnAdhikaraNya. Now, it needs to be understood as to whether it is bAdha
+> or mukhya. There is no debate here. It is bAdhAyAm-sAmAnAdhikaraNya. It is
+> just as “this stump is man”. The entity denoted by the literal meaning of
+> the word “sarvam” is sublated completely and the indicated meaning i.e.
+> Brahman is achieved. BhAshyakAra says –  ‘सर्वं ब्रह्म’ इति तु
+> सामानाधिकरण्यं प्रपञ्चप्रविलापनार्थम्.
+>
+> Regards.
+>
+> On Fri, 28 Jul, 2023, 5:50 pm V Subrahmanian via Advaita-l, <
+> advaita-l at lists.advaita-vedanta.org> wrote:
+>
+>> On Fri, Jul 28, 2023 at 2:48 PM 'Bhaskar YR' via advaitin <
+>> advaitin at googlegroups.com> wrote:
+>>
+>> > praNAms Sri Subbu prabhuji
+>> >
+>> > Hare Krishna
+>> >
+>> >
+>> >
+>> > Let us get more clarity on this instead of mere statements.  Would you
+>> > please explain in detail what exactly is baadhaayaam
+>> saamaanaadhikaranyam
+>> > in the context of baadha (sublation) of mithyA prapancha and how it is
+>> > relevant in this discussion of ‘kevala Kalpita prapancha’ ??
+>> >
+>>
+>> As stated in the Gita bhashya I cited, the equation 'that which is silver
+>> =
+>> shell'.  The equation will make no sense unless it is explained. 'That
+>> which I wrongly saw as silver is actually the shell.'  In other words
+>> 'Instead of knowing the object in front of me as a shell, I wrongly
+>> perceived it as silver.'  With this explanation, the equation makes sense:
+>> silver = shell.  In the shruti example: brahma pashcaat, brahma purastaat,
+>> uttaratah, dakshinatah... this equation will translate to: sarvam
+>> khalvidam
+>> brahma, atmaivedam sarvam, brahmaivedam sarvam, etc. The 'this, that,
+>> etc.'
+>> that I perceived as real before the shruti taught me, now I say 'All this
+>> that etc. is actually Brahman.'  This is possible only if Brahman was
+>> wrongly seen as this, that etc.   So,the right knowledge is expressed as
+>> 'sarvam brahma' etc. after negating/sublating the this, that, etc. This
+>> negating part is called 'baadhaa'. The saamaanaadhikaranyam is possible
+>> only after the baadhaa of the mithya jagat.  Thus, it is not 'kevala'
+>> mithya jagat but the Brahman-alone-wrongly-perceived-jagat. The
+>> adhishthanam remains after the baadhaa of the aropita. Hence alone this is
+>> not vijnanavada. Shankara has clarified this.
+>>
+>> regards
+>> subbu
+>>
+>> >
+>> >
+>> > Hari Hari Hari Bol!!
+>> >
+>> > bhaskar
+>> >
+>> >
+>> >
+>> > *From:* advaitin at googlegroups.com <advaitin at googlegroups.com> *On
+>> Behalf
+>> > Of *V Subrahmanian
+>> > *Sent:* Friday, July 28, 2023 1:56 PM
+>> > *To:* advaitin at googlegroups.com
+>> > *Cc:* A discussion group for Advaita Vedanta <
+>> > advaita-l at lists.advaita-vedanta.org>
+>> > *Subject:* Re: [advaitin] Re: Gaudapada and Shankara say: the world is
+>> > imagined by the jiva through avidya
+>> >
+>> >
+>> >
+>> > *Warning*
+>> >
+>> >
+>> >
+>> > This email comes from outside of Hitachi Energy. Make sure you *verify
+>> > the sender* before clicking any links or downloading/opening
+>> attachments.
+>> > If this email looks suspicious, *report it* by clicking 'Report
+>> Phishing'
+>> > button in Outlook.
+>> > See the SecureWay group in Yammer for more security information.
+>> >
+>> > Dear Bhaskar ji,
+>> >
+>> >
+>> >
+>> > What you are saying as the words of Sri SSS is not new to Shankara.  He
+>> > has already said that in the BG bhashya;
+>> >
+>> >
+>> >
+>> > ब्रह्मार्पणं ब्रह्म हविर्ब्रह्माग्नौ ब्रह्मणा हुतम् ।
+>> > ब्रह्मैव तेन गन्तव्यं ब्रह्मकर्मसमाधिना ॥ २४ ॥
+>> >
+>> >
+>> >
+>> > ब्रह्म अर्पणं येन करणेन ब्रह्मवित् हविः अग्नौ अर्पयति तत् ब्रह्मैव इति
+>> > पश्यति, तस्य आत्मव्यतिरेकेण अभावं पश्यति, यथा शुक्तिकायां रजताभावं
+>> पश्यति
+>> > ; तदुच्यते ब्रह्मैव अर्पणमिति, यथा यद्रजतं तत् शुक्तिकैवेति ।
+>> >
+>> > Shankara says: Just as one would see the abhaava of silver in shell,
+>> here
+>> > too the Jnani's drushti will be: the abhaava of the dvaita prapancha in
+>> > Brahman. He gives the equation: that which is silver is shell.
+>> >
+>> >
+>> >
+>> > This equation is called: baadhaayaam saamaanaadhikaranyam.  Thus, the
+>> > mithya dvaita prapancha is equated to Brahman only upon negating,
+>> baadhaa,
+>> > of the mithya prapancha.
+>> >
+>> >
+>> >
+>> > Sri SSS has also said this alone.  The explicit expression of the
+>> > mithyatva of the world cannot be avoided at any cost in Shankara and
+>> > Gaudapada's texts.  Shankara invariably gives the rajjusarpa,
+>> shuktirajata,
+>> > svapna, magician analogies while saying this. Thus you can see that I
+>> have
+>> > not misrepresented or twisted Sri SSS's statements.
+>> >
+>> >
+>> >
+>> > regards
+>> >
+>> > subbu
+>> >
+>> >
+>> >
+>> >
+>> >
+>> > On Fri, Jul 28, 2023 at 1:13 PM 'Bhaskar YR' via advaitin <
+>> > advaitin at googlegroups.com> wrote:
+>> >
+>> > praNAms Sri Subbu prabhuji
+>> >
+>> > Hare Krishna
+>> >
+>> >
+>> >
+>> > I hope you can understand Kannada which I have typed in English 😊
+>> > vikalpavellavannu brahma tattvavAgiye tiLidu kollabeku emba maatinalli
+>> > dvaitavaagi vikalpadinda kaaNuttiruvudannu ‘ekarUpavaagi’ brahma
+>> tattvavAgi
+>> > tilidu kola beku endu baayibittu heluttiddare Sri SSS adannu tiruchi
+>> neevu
+>> > nimmade arthavannu aa vakyagaLalli tumbuttiddira…I cannot help it but to
+>> > stop this discussion with you.  Anyway final attempt from my side what
+>> Sri
+>> > SSS said in Kannada :
+>> >
+>> >
+>> >
+>> >    1. ‘kArya-kAraNa bhAvavu ‘nijavaagi brahmave ( the ‘bhAva’ if
+>> >    kArya-kAraNa in reality brahman only)
+>> >    2. ‘avidyAdrushtiyinda namma munde enenu kaaNisuttiruvadO edellavu
+>> >    brahmave’ ( those which you are cognizing in front of you as dvaita
+>> in
+>> >    reality it is brahman only)
+>> >    3. ‘hindiruvudu brahmave, balakku, edakku, mele, keelage  ellavu
+>> >    varishTavAda brahmave’ ( behind, front, right, left, top bottom all
+>> these
+>> >    are supreme brahman only (varishTa brahma)
+>> >    4. ‘.  Brahmavallavendu naavu ariyuvudellavu haggadalliruva
+>> >    haavinarivinante avidyeyindaada vikalpa maatrave’ ( that which we are
+>> >    perceiving deciding as NOT brahman (abrahma vastu / anAtma vastu) is
+>> due to
+>> >    avidyA vikalpa like wrongly ‘seeing’ the snake in place of rope)
+>> >    5. OLage deha, indriya, manassu muntaagi kANuva AdhyAtmika
+>> >    vikalpavellavannu ‘paramAtma tattvave endu aritukoLLabeku, horage
+>> >    kaaNuttiruva pruthivAdi vikalpagaLannu tattvavende kaNdukOllabeku (
+>> those
+>> >    which are residing inside and those which are existing outside
+>> everything
+>> >    needs to be understood ‘paramArtha tattva only)
+>> >
+>> >
+>> >
+>> > Compare these with what you are interpreting as Sri SSS’s perspective.
+>> > Please note I am not denying the meaning of vikalpa here but I am
+>> quoting
+>> > Sri SSS how he is telling us that those vikalpa-s should be understood
+>> as
+>> > ekatatva (tattva / varishTa brahma) and seeing the duality in it is like
+>> > seeing the sarpa in rajju.  With this I rest my case.
+>> >
+>> >
+>> >
+>> > Hari Hari Hari Bol!!!
+>> >
+>> > bhaskar
+>> >
+>> >
+>> >
+>> > --
+>> > You received this message because you are subscribed to the Google
+>> Groups
+>> > "advaitin" group.
+>> > To unsubscribe from this group and stop receiving emails from it, send
+>> an
+>> > email to advaitin+unsubscribe at googlegroups.com.
+>> > To view this discussion on the web visit
+>> >
+>> https://groups.google.com/d/msgid/advaitin/AM7PR06MB6581A3490195A615C77AD7B08406A%40AM7PR06MB6581.eurprd06.prod.outlook.com
+>> > <
+>> https://groups.google.com/d/msgid/advaitin/AM7PR06MB6581A3490195A615C77AD7B08406A%40AM7PR06MB6581.eurprd06.prod.outlook.com?utm_medium=email&utm_source=footer
+>> >
+>> > .
+>> >
+>> > --
+>> > You received this message because you are subscribed to the Google
+>> Groups
+>> > "advaitin" group.
+>> > To unsubscribe from this group and stop receiving emails from it, send
+>> an
+>> > email to advaitin+unsubscribe at googlegroups.com.
+>> > To view this discussion on the web visit
+>> >
+>> https://groups.google.com/d/msgid/advaitin/CAKk0Te2W3gJvU%3DX6WU%3DfNSt8RHQ90JBM_4ENLtsmJ6VBMfjCyw%40mail.gmail.com
+>> > <
+>> https://groups.google.com/d/msgid/advaitin/CAKk0Te2W3gJvU%3DX6WU%3DfNSt8RHQ90JBM_4ENLtsmJ6VBMfjCyw%40mail.gmail.com?utm_medium=email&utm_source=footer
+>> >
+>> > .
+>> >
+>> > --
+>> > You received this message because you are subscribed to the Google
+>> Groups
+>> > "advaitin" group.
+>> > To unsubscribe from this group and stop receiving emails from it, send
+>> an
+>> > email to advaitin+unsubscribe at googlegroups.com.
+>> > To view this discussion on the web visit
+>> >
+>> https://groups.google.com/d/msgid/advaitin/AM7PR06MB6581538DAE97947727E5754D8406A%40AM7PR06MB6581.eurprd06.prod.outlook.com
+>> > <
+>> https://groups.google.com/d/msgid/advaitin/AM7PR06MB6581538DAE97947727E5754D8406A%40AM7PR06MB6581.eurprd06.prod.outlook.com?utm_medium=email&utm_source=footer
+>> >
+>> > .
+>> >
+>> _______________________________________________
+>> Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+>>
+>> To unsubscribe or change your options:
+>> https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>>
+>> For assistance, contact:
+>> listmaster at advaita-vedanta.org
+>>
+>

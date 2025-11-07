@@ -1,0 +1,68 @@
++++
+title = "133 V Subrahmanian"
+date = "2024-02-23"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2024-February/061554.html"
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2024-February/061554.html)
+
+See image here: https://groups.google.com/g/advaitin/c/5Qp55E_rVNs
+
+Parallel programs for adults and kids this summer at Sringeri. Give your
+children a strong foundation in Dharma and nurture their spiritual growth
+through Samskara Sudha's immersive activities. Gift them a meaningful
+journey while you attend your own Vedanta sessions. Please note that
+children aged 10 to 14 must be accompanied by a parent or an elder sibling,
+while those above the age of 14 can attend independently.
+[image: 📢]Further info & Registration: https://tinyurl.com/VedantaAB
+<https://l.facebook.com/l.php?u=https%3A%2F%2Ftinyurl.com%2FVedantaAB%3Ffbclid%3DIwAR2bjC5BAp1XQHAEA2otk6S6fYY2kTpdzToiGe6stZEH4iszmMuW2VK-Ns8&h=AT0tzb0b5eBbVEYDPWwxUXkda7inn58Y5a2jrv3Z99f4SMhShgPlG7mvss6-bSxLWxnb2WGrmX32OqQUGyYutn45tmCuXoc0Wr0yiPnuyy-MgVs6BAi1NMbvUDQAEsciMq8s&__tn__=-UK-y-R&c[0]=AT3-Uwo6HoaVKfW4SYnsvJRIx9uxMH3q44eMTdFM0kzF-vuNNEadCIS5yvP5rYf1t5r3Viv0lBy-03ZhMmTJYps8oa60vKa6Z2J1robdVe7XFJCWWCwLrO_aY1UVaLwJlz5A6iiSdbrJV0V1Bvg_4vPUfdYRIZRA5ApyOCe8f4Qu1HhRhzZ5pgAmMQkLZVj8f5ScUcRrgZ7ht6EU7dNZ7_qikkD89Vm7ts3R7Gykiyjr4ZLe0-w>
+[image: 📷]Join our WhatsApp Channel (content differs):
+https://whatsapp.com/channel/0029VaAMDyF8V0trHeYwwn19
+<https://whatsapp.com/channel/0029VaAMDyF8V0trHeYwwn19?fbclid=IwAR2_nxJLklmk-G-kh-TlJDiStVZ_NVm1c1_k2U_SMLGnDk-VXefw3i3z8FA>
+#vedanta
+<https://www.facebook.com/hashtag/vedanta?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#Shankaracharyas
+<https://www.facebook.com/hashtag/shankaracharyas?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#sanatandharma
+<https://www.facebook.com/hashtag/sanatandharma?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#sringeri
+<https://www.facebook.com/hashtag/sringeri?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#shringeri
+<https://www.facebook.com/hashtag/shringeri?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#Jagadguru
+<https://www.facebook.com/hashtag/jagadguru?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#Sadhguru
+<https://www.facebook.com/hashtag/sadhguru?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#Guru
+<https://www.facebook.com/hashtag/guru?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#Hinduism
+<https://www.facebook.com/hashtag/hinduism?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#spirituality
+<https://www.facebook.com/hashtag/spirituality?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#philosophy
+<https://www.facebook.com/hashtag/philosophy?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#Bhakthi
+<https://www.facebook.com/hashtag/bhakthi?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#advaita
+<https://www.facebook.com/hashtag/advaita?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#philosophy
+<https://www.facebook.com/hashtag/philosophy?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#dharma
+<https://www.facebook.com/hashtag/dharma?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#sanatan
+<https://www.facebook.com/hashtag/sanatan?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#life
+<https://www.facebook.com/hashtag/life?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#vedic
+<https://www.facebook.com/hashtag/vedic?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#Shankaracharya
+<https://www.facebook.com/hashtag/shankaracharya?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#Ayodhya
+<https://www.facebook.com/hashtag/ayodhya?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#bhagavadgita
+<https://www.facebook.com/hashtag/bhagavadgita?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#hinduism
+<https://www.facebook.com/hashtag/hinduism?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#SanatanaDharma
+<https://www.facebook.com/hashtag/sanatanadharma?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>
+#Gita
+<https://www.facebook.com/hashtag/gita?__eep__=6&__cft__[0]=AZUeDYLdqZZWackNDNYXwybasYZHRf0l4QVWkDho9QpdjNCPf-wdIUPW3Yt41PoQP7licWHvk_CjgVI4aDS2-LDLqQRu9dxZRtpFjc6_u2NXwMPdQ1e3G1__4SZwdqL3nphNcOcUwYebeEf9FTJJUkQwhF85l03kRuqBpj4n7wrTBrKoXzQfcwH2QMjyR7AGnTgsUfGukf_gw9EOFEi8E4kx&__tn__=*NK-y-R>

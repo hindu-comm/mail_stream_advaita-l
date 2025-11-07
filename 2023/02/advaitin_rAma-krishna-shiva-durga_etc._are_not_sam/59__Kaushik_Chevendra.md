@@ -1,0 +1,192 @@
++++
+title = "59 Kaushik Chevendra"
+date = "2023-02-11"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2023-February/059628.html"
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2023-February/059628.html)
+
+Namaste sir.
+The only reason i am contending diffence between isvara and Surya devata
+etc is that they have specifically been stated to be jeevas attaining the
+post due to punya karma.
+Infact our very acharya shri chandrashekhara Bharathi swamin who is the
+guru of abhinava vidyatirtha swami, had clearly stated that surya has
+hiranyagarbha above him. And hiranyagarbha has isvara above him. This
+conversation has been recorded in the book. Hence the difference between
+jeevatmas and isvara is specified here.
+
+Now the correct understanding can be that because in our sampradaya, we
+accept worship of Surya etc granting krama mukthi, the reason is that the
+result of such worship is same. That is, if one worships isvara as
+everything (jagat karta etc) or he worships devata such as surya who has
+been accepted as a form of isvara (viboothi) he attains the same result.
+But the result being the same doesn't mean they are the same.
+
+Further the worship of these devatas, is the worship of isvara only.
+Because bagavan has already stated that all the worship of devatas goes to
+him only. And whatever Shakthi the devatas possess is also because of him.
+Hence when we worship surya bagavan it's isvara only who is being
+worshipped, hence asking him to grant mukthi and calling him jagat karta is
+not a contradiction. But statments such as surya being the source of
+Trimurtis should be understood differently such that there is no
+contradiction with Acharyas bhasya and sampradaya. If surya himself was
+given the position by isvara, how can he be the source of isvara?
+
+Namo narayana
+
+On Sat, 11 Feb, 2023, 11:23 am V Subrahmanian, <v.subrahmanian at gmail.com>
+wrote:
+
+> I agree with you. But in the Puranas for Skanda, Surya, etc. they have
+> been portrayed as Jagat srishti sthiti laya karanam and sometimes the
+> source from which the Trimurtis emerge. It is not just praying for mukti
+> but the stuti or some other statement which says 'this deity x is capable
+> of granting mukti'.  That is the indication of that deity being Para
+> Brahman, Saguna Brahman, Ishwara, for the one who composed that stuti.
+>
+> On Sat, Feb 11, 2023 at 9:45 AM Kaushik Chevendra <
+> chevendrakaushik at gmail.com> wrote:
+>
+>> Namaste sir.
+>> Even in the vedas indradi devatas are asked for mukthi but they aren't
+>> verily isvara himself.
+>> In the case of Surya and skanda, both are jeevas only. Because in
+>> acharyas bhasya itself Surya is said to have end of term and attain nirguna
+>> mukthi after his prarbdha karma. But in the case of isvara there is no
+>> karma to be exhausted.
+>> Further isvara is "unchanging", "eternal" and "unborn".
+>> The reconciliation i find is that they can be worshipped as non different
+>> from isvara. Because Shruthi has stated that saguna upasana includes Surya.
+>>
+>> On Sat, 11 Feb, 2023, 8:55 am V Subrahmanian, <v.subrahmanian at gmail.com>
+>> wrote:
+>>
+>>> Here is a composition of the present Jagadguru of the Sringeri Peetham
+>>> on Subrahmanya:
+>>>
+>>> सुब्रह्मण्यं सदा वन्दे
+>>> चिन्तितसकलेष्टदानदीक्षं तम् ।
+>>> दुष्टदैत्यविनाशनं देवसेनानायकं
+>>> दीनरक्षणतत्परं दयापारावारम् ॥
+>>>
+>>> subrahmaṇyaṃ sadā vande
+>>> cintitasakaleṣṭadānadīkṣaṃ tam ;
+>>> duṣṭadaityavināśanaṃ devasenānāyakaṃ
+>>> dīnarakṣaṇatatparaṃ dayāpārāvāram .
+>>>
+>>> भवभीतिनिवारणं भवानीप्रियतनयं
+>>> भुक्तिमुक्तिफलप्रदं भारतीतीर्थसेवितम् ॥
+>>>
+>>> bhavabhītinivāraṇaṃ bhavānīpriyatanayaṃ
+>>> bhuktimuktiphalapradaṃ bhāratītīrthasevitam .
+>>>
+>>> Here the Lord is said to confer Mukti too.  Similar is Shankaracharya's
+>>> famous Subrahmanya Bhujangam which says the Lord is the one hidden in the
+>>> Mahavakya:
+>>>
+>>> मयूराधिरूढं महावाक्यगूढं
+>>> मनोहारिदेहं महच्चित्तगेहम् ।
+>>> महीदेवदेवं महावेदभावं
+>>> महादेवबालं भजे लोकपालम् ॥३॥
+>>>
+>>> Shankara's famous Ganesha Pancharatnam begins with the verse:
+>>>
+>>> मुदा करात्तमोदकं सदा विमुक्तिसाधकं  He is always conducive to provide
+>>> Mukti.
+>>> कलाधरावतंसकं विलासलोकरक्षकम्।
+>>> अनायकैकनायकं विनाशितेभदैत्यकं
+>>> नताशुभाशुनाशकं नमामि तं विनायकम्॥१॥
+>>>
+>>> The present Jagadguru of Sringeri composed a song on Lord Ayyappa when
+>>> he had visited the place with his Guru:
+>>>
+>>> ज्ञानं षडास्यवरतातकृपैकलभ्यं
+>>> मोक्षस्तु तार्क्ष्यवरवाहदयैकलभ्यः ।
+>>> ज्ञानं च मोक्ष उभयं तु विना श्रमेण   The Lord confers both Jnanam and
+>>> Moksha with ease...
+>>> प्राप्यं जनैः हरिहरात्मजसत्प्रसादात् ॥ ६ ॥
+>>>
+>>> There are many other stotras of Shankara and other Acharyas of the
+>>> Peetham here: https://sringeri.net/stotras  on many deities where one
+>>> can see Moksha as a component in many of them.
+>>>
+>>> regards
+>>>
+>>> subbu
+>>>
+>>>
+>>>
+>>>
+>>>
+>>> On Fri, Feb 10, 2023 at 2:35 PM Venkatraghavan S <agnimile at gmail.com>
+>>> wrote:
+>>>
+>>>> Namaste Bhaskar ji,
+>>>>
+>>>>
+>>>> On Fri, 10 Feb 2023, 07:50 'Bhaskar YR' via advaitin, <
+>>>> advaitin at googlegroups.com> wrote:
+>>>>
+>>>>>
+>>>>>
+>>>>>    - Just I was thinking of closing this discussion since on most of
+>>>>>    the terms we are in agreement.  But this shruti reference I am not able to
+>>>>>    find it in dashOpanishat ( I might have missed it)  Kindly share up.
+>>>>>    Reference and shankara bhAshya on kAryOpAdnirayaM jeevaH
+>>>>>    kAraNOAdhireeshwaraH.
+>>>>>
+>>>>> It is not in the dashopaniShad. It is found in the
+>>>> shuka-rahasyopaniShad in the following mantra:
+>>>>
+>>>> कार्योपाधिरयं जीवः कारणोपाधिरीश्वरः।
+>>>> कार्यकारणतां हित्वा पूर्णबोधोऽवशिष्यते॥
+>>>>
+>>>> I also recall finding this statement in one of the pUrva / uttara
+>>>> nRsimha tApini upaniShad-s a few years back. I don't recall which - but I
+>>>> could be mistaken also.
+>>>>
+>>>> If it is ok, let us leave this discussion where it is for now - the
+>>>> rest of your comments below require a detailed discussion I think, which I
+>>>> do not have the time at present to participate in.
+>>>>
+>>>> Kind regards,
+>>>> Venkatraghavan
+>>>>
+>>>>
+>>>>>    - When it comes to upAdhi I think bhAshyakAra said upAdhi is
+>>>>>    avidyAkruta.  This is not about kAryOpAdhi, this is about kAraNOpAdhi of
+>>>>>    Ishwara, shankara explicitly says : evamavidyAkrutanAmarUpOpAdhyanurOdhi
+>>>>>    IshwarO bhavati…subsequent observations of bhAshyakAra substantiate this
+>>>>>    i.e.  even IshrOpAdhi is mere avidyAkruta hence his sarvajnatvaM,
+>>>>>    sharvashatitvaM etc. valid only in avidyA kshetra.  And in
+>>>>>    samanvayAdhikaraNa bhAshya bhAshyakAra talks about
+>>>>>    apekshitOpAdhisambandhaM.  (ekamekamapi brahma  apekshitOpAdhisambandhaM
+>>>>>    nirastOpAdhi sambandhaM cha upAsyatvena jneyatvena cha
+>>>>>    vedAnteshUpadishyate.  What is apekshti upAdhi here of upAsaka??  And how
+>>>>>    it is not kAryOpAdhi but kAraNOpAdhi of Ishwara??  Please clarify.
+>>>>>
+>>>>> Hari Hari Hari Bol!!!
+>>>>>
+>>>>> bhaskar
+>>>>>
+>>>>> --
+>>>>> You received this message because you are subscribed to the Google
+>>>>> Groups "advaitin" group.
+>>>>> To unsubscribe from this group and stop receiving emails from it, send
+>>>>> an email to advaitin+unsubscribe at googlegroups.com.
+>>>>> To view this discussion on the web visit
+>>>>> https://groups.google.com/d/msgid/advaitin/AM7PR06MB6581BF316D5F51CE87C6781184DE9%40AM7PR06MB6581.eurprd06.prod.outlook.com
+>>>>> <https://groups.google.com/d/msgid/advaitin/AM7PR06MB6581BF316D5F51CE87C6781184DE9%40AM7PR06MB6581.eurprd06.prod.outlook.com?utm_medium=email&utm_source=footer>
+>>>>> .
+>>>>>
+>>>> --
+>>>> You received this message because you are subscribed to the Google
+>>>> Groups "advaitin" group.
+>>>> To unsubscribe from this group and stop receiving emails from it, send
+>>>> an email to advaitin+unsubscribe at googlegroups.com.
+>>>> To view this discussion on the web visit
+>>>> https://groups.google.com/d/msgid/advaitin/CAL34aEnmqBcGTJPoh_sYg0JuBXev%3DrC7dHX6M9FbYYCCuMD9mg%40mail.gmail.com
+>>>> <https://groups.google.com/d/msgid/advaitin/CAL34aEnmqBcGTJPoh_sYg0JuBXev%3DrC7dHX6M9FbYYCCuMD9mg%40mail.gmail.com?utm_medium=email&utm_source=footer>
+>>>> .
+>>>>
+>>>

@@ -1,0 +1,94 @@
++++
+title = "04 H S Chandramouli"
+date = "2022-10-02"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2022-October/058967.html"
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2022-October/058967.html)
+
+On Wed, Sep 28, 2022 at 9:03 PM Sundar Rajan via Advaita-l <
+advaita-l at lists.advaita-vedanta.org> wrote:
+
+<<  Not sure about the sushupti state >>,
+
+Namaste.
+
+An ajnAni, on waking up, sums up his experience  ** I did not know anything
+**. This is attributed to avidyA.  Surely this would not be so  in the case
+of a jnAni ?. Can this not be considered as a difference between their
+respective experience of sushupti? I would understand so.
+
+There may not be any difference in their experience of Ananda as it would
+be difficult to quantify the same.
+Regards
+
+On Wed, Sep 28, 2022 at 9:03 PM Sundar Rajan via Advaita-l <
+advaita-l at lists.advaita-vedanta.org> wrote:
+
+> Namaste,
+>
+>
+> Not sure about the sushupti state. There is Shankara Bhasya
+> in Brihardaranyaka Upanishad 4.3.20 (for example) that indicates the Jnani
+> may have the same knowledge in the dream state. This text talks about the
+> case of a Ajnani and describes when Avidya is attenuated, that person's
+> waking state impressions show up in dream state as well.
+>
+>
+> Also, interesting to note the Bhasya considers the litmus test is
+> *Sarvatmabhava*, in contrast to the popular commentary that  'doubtless
+> knowledge' is itself sufficient!
+>
+>
+> एवम् अत्यन्तप्रक्षीयमाणा अविद्या उद्भूता च विद्या सर्वात्मविषया यदा, तदा
+> स्वप्नेऽपि तद्भावभावितः — अहमेवेदं सर्वोऽस्मीति मन्यते ;
+>
+> Then again, where ignorance decreases and knowledge increases, the text
+> describes the content and nature of the knowledge - Even in a dream it is
+> said that he is enthroned in the kingdom like a god and like a king (as it
+> were).
+>
+>
+> स यः सर्वात्मभावः, सोऽस्य आत्मनः परमो लोकः परम आत्मभावः स्वाभाविकः ।
+>
+> That, this *identity with all* (the universe) is his highest state, the
+> Atman’s own natural, supreme state.
+>
+>
+> यत्तु सर्वात्मभावादर्वाक् वालाग्रमात्रमपि अन्यत्वेन दृश्यते — नाहमस्मीति,
+> तदवस्था अविद्या ;
+>
+> When, prior to this realization of *sarvatma bhava* (identity with all), he
+> views the latter as other than himself even by a hair’s breadth, thinking,
+> “This is not myself”, *that is still the state of avidya (ignorance).*
+>
+>
+> Regards
+>
+> On Wed, Sep 28, 2022 at 6:50 AM Anand N via Advaita-l <
+> advaita-l at lists.advaita-vedanta.org> wrote:
+>
+> > Namaste,
+> >
+> > is the sleep and dream state of a Jivanmukta just like that of an Ajnani?
+> > Does Shruti or Bhashya talk about this?
+> >
+> > Om Namo Narayanaya,
+> > Anand
+> > _______________________________________________
+> > Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+> >
+> > To unsubscribe or change your options:
+> > https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+> >
+> > For assistance, contact:
+> > listmaster at advaita-vedanta.org
+> >
+> _______________________________________________
+> Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+>
+> To unsubscribe or change your options:
+> https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>

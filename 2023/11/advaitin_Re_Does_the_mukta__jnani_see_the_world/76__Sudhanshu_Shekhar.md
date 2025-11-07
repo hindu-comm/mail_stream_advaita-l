@@ -1,0 +1,143 @@
++++
+title = "76 Sudhanshu Shekhar"
+date = "2023-11-21"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2023-November/061052.html"
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2023-November/061052.html)
+
+Namaste Acharya Sada ji.
+
+//Dream is not a dream for a dreamer who is in the dream. That dream world
+is real for him.
+
+He realizes that it is not real only when he wakes up.
+
+The dream example is used to show that waking world is not absolutely real.
+Goudapaada negation of the waking world is only from the point of absolute
+truth - with the statement - adou antecha yat naasti, vartamaanepi
+tatttadaa. //
+
+>From the point of view of absolute truth, there is no world, there is no
+dream, there is no waking, there is no deep sleep. Absolute truth negates
+everything which is seen.
+
+The identity of dream and waking is derived from logic which is pretty much
+within the domain of dream/waking.
+
+What exactly is this "waking up"? A pramAtA can get anumiti pramA that
+waking world is dream. He is not bound to bear the burden of truth-ness of
+waking world despite having the anumiti pramA from the faultless anumAna of
+bhAshyakAra - जाग्रद्दृश्यानां भावानां वैतथ्यमिति प्रतिज्ञा । दृश्यत्वादिति
+हेतुः । स्वप्नदृश्यभाववदिति दृष्टान्तः । यथा तत्र स्वप्ने दृश्यानां भावानां
+वैतथ्यम् , तथा जागरितेऽपि दृश्यत्वमविशिष्टमिति हेतूपनयः । तस्माज्जागरितेऽपि
+वैतथ्यं स्मृतमिति निगमनम् ।
+
+Where is the need to hold the requirement of "waking up". anumiti pramA
+happens to pramAtA and not to shuddha Brahman. The anumAna of bhAshyakAra
+is capable of giving pramA to pramAtA, which is very much within waking,
+that waking is identical to dream. Where is the need to "wake up".
+
+//But there is difference between the two states. In the dream world, a
+dreamer cannot realize it as a dream while he is in the dream - for
+realization viveka or discriminative intellect is needed which he does not
+have. If has, he will not able to dream.//
+
+Waker alleges this to the dreamer disregarding the fact that dreamer had
+done so to the dreamer within his dream. When identity of waking and logic
+is established by anumAna, giving rise to pramA to pramAtA, how can such a
+statement be made.
+
+//In contrast, in the waking state, the seeker can develop the required
+Viveka to recognize the unreality of the waking world while still
+remaining in the waking world. Hence all the nine yards that you mentioned
+are important to develop the needed qualifications to discriminate what is
+real and what is apparently real. Study of Vedanta under a competent
+teacher, sampradaayic teaching, and required sadhana for the mind to
+develop the necessary qualifications - all are important. //
+
+Untenable in view of the anumAna presented. The waking-guru,
+waking-samrpadAya are identical to dream-guru and dream-sampradAya. Any
+preference given to either is violative of anumAna.
+
+//DSV vs SDV all intended to help in the sadhana only.//
+
+Sequentially to the same sAdhaka. One graduates from SDV to DSV.
+
+//In the final analysis there is shrushti and no vadas too when one
+realizes aham brahmaasmi.//
+
+I think, in the final analysis, there is no srishTi and no vAda. DSV and
+SDV are both before that.
+
+Regards.
+Sudhanshu Shekhar.
+
+On Tue, Nov 21, 2023 at 7:50 AM Kuntimaddi Sadananda <
+kuntimaddisada at yahoo.com> wrote:
+
+> On Monday, November 20, 2023 at 05:22:09 PM GMT+5:30, 'Bhaskar YR' via
+> advaitin <advaitin at googlegroups.com> wrote:
+>
+>
+>    - And for all practical purposes this is how our adhyAtma sAdhana
+>    would go forward and in this frame work, though one talks a lot about
+>    shAstra if he is asampradAyin needs to be ignored as idiot because for the
+>    brahma jnana we need the guidance of shrOtriya-brahmanishta saMpradAyavida
+>    Acharya.  And we have to prostrate before him and he is tattva darshi
+>    (tadviddhi praNipAtena pari prashneya sevaya).  Guru Ashraya is
+>    indispensable in brahma jignAsa, tadeva cha vishesheN jijnAsitavyaM
+>    gurvAshraya shavaNAdyupaayairarnishya cha sAkshAtkaraNeeyaM ityarthaH.  And
+>    I am sorry to say this more authentic way of jnana sAdhana will be highly
+>    diluted when we have the preconceived notion that this
+>    guru-sampradaaya-upadesha-sAdhana etc. are mere puppets dancing in my
+>    dream.
+>    -  And if you think that this sAmpradAyik way of jignAsa is just for
+>    maNda and Madhyama adhikAri-s and every thing is just dream is for uttama
+>    adhikAri-s, I would like to be mandAdhikAri 😊
+>
+> -------------------------------
+> Bhaskarji - PraNAms
+>
+> I agree with you. The analogy with dream world is provided to show that
+> the waking world is also not real.
+>
+> Dream is not a dream for a dreamer who is in the dream. That dream world
+> is real for him.
+>
+> He realizes that it is not real only when he wakes up.
+>
+> The dream example is used to show that waking world is not absolutely
+> real. Goudapaada negation of the waking world is only from the point of
+> absolute truth - with the statement - adou antecha yat naasti, vartamaanepi
+> tatttadaa.
+> But there is difference between the two states. In the dream world, a
+> dreamer cannot realize it as a dream while he is in the dream - for
+> realization viveka or discriminative intellect is needed which he does not
+> have. If has, he will not able to dream.
+>
+> In contrast, in the waking state, the seeker can develop the required
+> Viveka to recognize the unreality of the waking world while still
+> remaining in the waking world. Hence all the nine yards that you mentioned
+> are important to develop the needed qualifications to discriminate what is
+> real and what is apparently real. Study of Vedanta under a competent
+> teacher, sampradaayic teaching, and required sadhana for the mind to
+> develop the necessary qualifications - all are important.
+>
+> DSV vs SDV all intended to help in the sadhana only.
+>
+> In the final analysis there is shrushti and no vadas too when one realizes
+> aham brahmaasmi.
+>
+> Seeker should follow what is best approach for his realization under the
+> advise of his guru.
+>
+> Hari Om!
+> Sadananda
+>
+
+
+-- 
+Additional Commissioner of Income-tax,
+Pune
+
+sudhanshushekhar.wordpress.com

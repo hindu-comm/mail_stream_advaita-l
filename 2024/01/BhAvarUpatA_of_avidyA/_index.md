@@ -1,0 +1,3 @@
++++
+title = "BhAvarUpatA of avidyA"
++++

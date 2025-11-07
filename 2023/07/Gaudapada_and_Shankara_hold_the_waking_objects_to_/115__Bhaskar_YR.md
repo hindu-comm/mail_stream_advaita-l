@@ -1,0 +1,34 @@
++++
+title = "115 Bhaskar YR"
+date = "2023-07-28"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2023-July/060493.html"
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2023-July/060493.html)
+
+praNAms Sri Venkatraghavan prabhuji
+Hare Krishna
+
+>  Some interesting observations from you in this mail.  Just raising my doubts, if possible, please clarify.
+
+In the case of sopAdhika bhrama, avidyA is destroyed, but the upAdhi persists and until then, the appearance of the superimposed persists.
+
+> In sOpAdhika bhrama darshana ( like mirage water or can we include sun rise and set also!!??) the appearance of the adhyAropita continue because of the upAdhi but not due to avidyA.  So what is the bhrama part here ?? whether it is avidyA or darshana because jnAni still having the upAdhi saMbandha??  And can we say upAdhi saMbandha of the jnAni through which he will continue to have sOpAdhika bhrama and perceives the ahdhyArOpita vastu sans any sort of avidyA??  If yes, there must be some clear difference between avidyA drushti (misconception) and sOpAdhika bhrama due to upAdhi sambandha, is it not??  Or am I missing something??
+
+So, the perception of the superimposed is not because of some remnant of avidyA remaining post sublation, but because of the presence of an externality, an upAdhi, which is the cause for the continue perception of the superimposed - even when ignorance has been sublated.
+
+>  So from the above observation,  avidyA lesha in the paramArtha jnAni too negated by saying it is because of the PRESENCE of an externality, upAdhi.  So what exactly is avidyAlesha if it is NOT what you explained above??   
+
+In the case of the red crystal, the illusion persists so long as the red flower is nearby, even when the ignorance of the transparency of crystal has been sublated. In the case of jIvanmukti, the appearance of the world continues so long as prArabdha (upAdhi) persists.
+
+>  illusion and ignorance are completely different in this example.  Am I correct prabhuji??  
+
+The jnAni continues to perceive the world as a result - so the tucChatva cannot be from his standpoint also.
+
+>  So for the paramArtha jnAni,  world would continue to exist or illusion about the world continue to exist ( like continuation of illusionary perception of red crystal even after the jnana of clear crystal) and IT IS NOT athyanta abhAva  or tuccha for the paramArtha jnAni.    
+
+One can take tucchatva in the verse to be from the standpoint of paramArtha  where even such a pratIti does not occur - ie from the standpoint of Brahman or post videhakaivalya.
+
+>  I could see  subtle difference between Jeevan mukti of the jnAni  and videhakaivalya ( Videha mukti) of the jnAni here.  Do you mean here to have the clear crystal the upAdhi is the obstacle or perception of red crystal is due to presence of upAdhi??  
+
+Hari Hari Hari Bol!!!
+bhaskar

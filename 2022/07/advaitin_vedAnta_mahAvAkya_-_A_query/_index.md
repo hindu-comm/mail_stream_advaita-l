@@ -1,0 +1,3 @@
++++
+title = "[advaitin] vedAnta mahAvAkya -"
++++

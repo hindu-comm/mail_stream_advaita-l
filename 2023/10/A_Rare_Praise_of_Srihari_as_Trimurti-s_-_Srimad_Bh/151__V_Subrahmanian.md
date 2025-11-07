@@ -1,0 +1,59 @@
++++
+title = "151 V Subrahmanian"
+date = "2023-10-30"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2023-October/060929.html"
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2023-October/060929.html)
+
+In this hymn, it is noteworthy that in the stuti as Shiva, there is this
+verse:
+
+नमः शिवाय रुद्राय नमः शक्तिधराय च ।
+*सर्वविद्याधिपतये भूतानां पतये नमः ॥* ३२ ॥
+
+In the Mahanarayana Upanishad of Taittiriya Aranyaka there is a Shiva
+Upasana section where this famous verse occurs:
+
+*ईशानः सर्वविद्यानामीश्वरः सर्वभूतानां
+ब्रह्माधिपति*र्ब्रह्मणोऽधिपतिर्ब्रह्मा शिवो मे अस्तु सदाशिवोम् ॥ २॥
+
+
+ The name: sarvavidyAnAm sarvabhUtAnAm adhipati in the Bhagavatam is a
+upbruhmanam of the above veda mantra.
+
+regards
+subbu
+
+On Mon, Oct 30, 2023 at 10:51 PM V Subrahmanian <v.subrahmanian at gmail.com>
+wrote:
+
+> Here is a hymn to Vishnu. It contains praise of the Supreme Lord in the
+> Trimurti forms:
+>
+> श्रीमद्भागवतपुराणम्/स्कन्धः ८/अध्यायः १६
+> https://sa.wikisource.org/s/zh9
+> <https://sa.wikisource.org/s/zh9?fbclid=IwAR1pqt-dujszrWaIAzVYi7C2gJ6GYkAIOy8XQHNGv9t7dK7uwnxRz7gCO7w>
+> नमस्तुभ्यं भगवते पुरुषाय महीयसे ।
+> सर्वभूतनिवासाय वासुदेवाय साक्षिणे ॥ २९ ॥
+> नमोऽव्यक्ताय सूक्ष्माय प्रधानपुरुषाय च ।
+> चतुर्विंशद्‍गुणज्ञाय गुणसंख्यानहेतवे ॥ ३० ॥
+> नमो द्विशीर्ष्णे त्रिपदे चतुःश्रृंगाय तन्तवे ।
+> सप्तहस्ताय यज्ञाय त्रयीविद्यात्मने नमः ॥ ३१ ॥
+> ಇದು ನಾರಾಯಣನ್ನು ಕುರಿತ ಸ್ತುತಿ.
+> नमः शिवाय रुद्राय नमः शक्तिधराय च ।
+> सर्वविद्याधिपतये भूतानां पतये नमः ॥ ३२ ॥
+>
+> It is in praise of Srihari as Rudradeva. Shaktidhara = Ambikapati.
+>
+> नमो हिरण्यगर्भाय प्राणाय जगदात्मने ।
+> योगैश्वर्यशरीराय नमस्ते योगहेतवे ॥ ३३ ॥
+>
+> It is in praise of Srihari as Lord Brahma. Brahma = Sutratma
+>
+> नमस्ते आदिदेवाय साक्षिभूताय ते नमः ।
+> नारायणाय ऋषये नराय हरये नमः ॥ ३४ ॥
+>
+> Thus, in this praise of Srihari, it is meant to praise him as Trimurti.
+>
+> Om
+>

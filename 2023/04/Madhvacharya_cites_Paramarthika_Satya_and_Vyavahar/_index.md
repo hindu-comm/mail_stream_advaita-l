@@ -1,0 +1,3 @@
++++
+title = "Madhvacharya cites 'Paramarthi"
++++

@@ -1,0 +1,80 @@
++++
+title = "63 Venkatesh Murthy"
+date = "2023-01-16"
+upstream_url = "https://lists.advaita-vedanta.org/archives/advaita-l/2023-January/059450.html"
++++
+[Archive link](https://lists.advaita-vedanta.org/archives/advaita-l/2023-January/059450.html)
+
+Namaste
+This is why this forum must never be used for arguments and debates.
+Because you do not know what kind of person you are arguing with. He may be
+an armchair philosopher or an evil minded Dvaiti who wants to create doubts
+and confusion in others or a sincere seeker or a person with Vairagya who
+has given up everything. Online arguments cannot decide anything on who is
+right and who is wrong.
+
+The best use of this forum is only to exchange information like books,
+lectures, videos, events and so on.
+
+
+On Fri, Jan 13, 2023 at 1:12 PM Bhaskar YR via Advaita-l <
+advaita-l at lists.advaita-vedanta.org> wrote:
+
+> praNAms
+> Hare Krishna
+>
+> Recently I have seen Sri Jaishankar Narayanan prabhuji's photo in FB.  I
+> am happy to know through him only that he has been dedicating his whole
+> time in Advaita sAdhana, pravachana, building gurukula, helping vedAnta
+> students, teaching Sanskrit, vedanta etc. Frankly I did not know that when
+> I was engaging with him in dicussion, thought he was also like me an
+> armchair philosopher/householder discussing Vedanta  during his free time,
+> sitting at office .  But that is not the fact.  He gave up everything in
+> his life and completely dedicating in veda mAta seva.  Our philosophical
+> differences apart, my humble praNAms to him.  Being an ordinary householder
+> with all greed and ambitions in life, sAdhana as such not worth mentioning
+> I should not have discussed with him in freestyle .  My praNAms and utmost
+> respect to him.  I hereby tender by unconditional apologies if at all
+> during the discussion, at the heat of the moment,  hurt his feelings and
+> sentiments.
+>
+> He is really a true vedAnti and vairagya is OtaprOta in his life. Those
+> who want to know more about his dedicated and unselfish services , can read
+> the link provided by him below. Sincerely I feel I need minimum 100 janma-s
+> to get this dispassion  in me.  Being an ordinary materialistic householder
+> I really feel myself fortunate and proud for having the satsanga of noble
+> souls like Sri Jaishankar prabhuji, Sri Subbu prabhuji, Sri Praveen Bhat
+> prabhuji, Sri Venkatraghavan prabhuji etc.  My humble praNAms to them all.
+>
+> Here is the link and Sri Jaishankar prabhuji's words :
+>
+> //QUOTE//
+>
+>
+> If you are visiting Tirunelveli or Kanyakumari please call and come to the
+> Gurukulam we are building. You can get some idea about what we are doing
+> from here -
+> https://www.indica.today/conversations/human-problems-are-fundamentally-the-same-wherever-you-are-jaishankar-narayanan/
+> <
+> https://eur04.safelinks.protection.outlook.com/?url=https%3A%2F%2Fwww.indica.today%2Fconversations%2Fhuman-problems-are-fundamentally-the-same-wherever-you-are-jaishankar-narayanan%2F&data=05%7C01%7Cbhaskar.yr%40hitachienergy.com%7C62b6ae4e68964de0870608daf4c47d23%7C7831e6d9dc6c4cd19ec61dc2b4133195%7C0%7C0%7C638091422006656771%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000%7C%7C%7C&sdata=hdh9oiAz4ciNxsrZo4R1B1eewFwsoYF6qRN7d62tujY%3D&reserved=0
+> >
+>
+> //UNQUOTE//
+>
+> Hari Hari Hari Bol!!!
+> bhaskar
+> _______________________________________________
+> Archives: https://lists.advaita-vedanta.org/archives/advaita-l/
+>
+> To unsubscribe or change your options:
+> https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l
+>
+> For assistance, contact:
+> listmaster at advaita-vedanta.org
+>
+
+
+-- 
+Regards
+
+-Venkatesh
